@@ -14,7 +14,7 @@ menu:
     weight: 4
 ---
 
-<div style="background-image: url(https://wwwng.github.io/versuch/socialmediabackground.jpg); background-repeat: no-repeat; background-position: center; position: relative;">
+<div style="background-image: url(https://raw.githubusercontent.com/wwwng/versuch/main/assets/images/socialmediabackground.jpg); background-repeat: no-repeat; background-position: center; position: relative;">
 
 The main purpose of this article is to make sure that all basic HTML Elements are decorated with CSS so as to not miss any possible elements when creating new themes for Hugo.
 <!--more-->
