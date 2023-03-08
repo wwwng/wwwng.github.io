@@ -14,8 +14,6 @@ menu:
     weight: 4
 ---
 
-<div style="background-image: url(https://raw.githubusercontent.com/wwwng/versuch/main/assets/images/socialmediabackground.jpg); background-repeat: no-repeat; background-position: center; position: relative;">
-
 The main purpose of this article is to make sure that all basic HTML Elements are decorated with CSS so as to not miss any possible elements when creating new themes for Hugo.
 <!--more-->
 
@@ -171,4 +169,3 @@ X<sup>n</sup> + Y<sup>n</sup> = Z<sup>n</sup>
 Press <kbd>X</kbd> to win. Or press <kbd><kbd>CTRL</kbd>+<kbd>ALT</kbd>+<kbd>F</kbd></kbd> to show FPS counter.
 
 <mark>As a unit of information in information theory, the bit has alternatively been called a shannon</mark>, named after Claude Shannon, the founder of field of information theory.
-</div>
