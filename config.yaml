@@ -16,7 +16,7 @@ theme: hugo-refresh
 DefaultContentLanguage: de
 
 ## Option to disable additional language in your site.
-disableLanguages: ["ru"]
+disableLanguages: ["en", "ru"]
 
 disableKinds: ["sitemap","RSS"]
 
