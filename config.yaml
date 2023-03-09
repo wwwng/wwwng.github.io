@@ -1,6 +1,6 @@
 baseURL: https://wwwng.github.io
 languageCode: de-de
-title: Personal website and blog
+title: sakrum.de
 theme: hugo-refresh
 # theme: ../..
 
@@ -108,7 +108,7 @@ params:
     # option to specify the title in the homepage
     title: Markus
     # option to specify the subtitle in the homepage
-    subtitle: @sakrum.de
+    subtitle: sakrum.de
     # option to specify image in the homepage
     image: "/images/avatar.jpg" # worker.svg 
     # option to specify the width of the image in the homepage
