@@ -106,11 +106,11 @@ params:
     # this options let you specify the text of the link to the homepage
     # linkText: "Homepage"  
     # option to specify the title in the homepage
-    title: Julia The White
+    title: Markus
     # option to specify the subtitle in the homepage
-    subtitle: Personal website and blog
+    subtitle: @sakrum.de
     # option to specify image in the homepage
-    image: "/images/avataaars.png" # worker.svg 
+    image: "/images/avatar.jpg" # worker.svg 
     # option to specify the width of the image in the homepage
     imageWidth: 500px
 
@@ -118,7 +118,7 @@ params:
   footer:
     # option to specify the logo in the footer
     # the starting folder is configure in "assetDir" of this file
-    logo: "/images/refresh-square.svg"
+    logo: "/images/sakrum.svg"
     # option to specify your contact email in the footer
     email: 
       link: name.surname@domain.com
