@@ -13,7 +13,7 @@ theme: hugo-refresh
 
 # Option to specify the default language of the theme
 # I.e., the landing language of your root 
-DefaultContentLanguage: en
+DefaultContentLanguage: de
 
 ## Option to disable additional language in your site.
 disableLanguages: ["ru"]
