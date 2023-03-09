@@ -214,4 +214,10 @@ languages:
         #   link: username
         #   title: Gitlab
         copyright: Julia белая краска - 2020
-paginate: 5
+menu:
+  main:
+  - identifier: start
+    name: Start
+    pre: <i class='fa fa-heart'></i>
+    url: /
+    weight: -110
