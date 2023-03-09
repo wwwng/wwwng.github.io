@@ -75,7 +75,7 @@ params:
   sidebar:
     # option to specify the logo of the sidebar
     # the starting folder is configure in "assetDir" of this file
-    logo: "/images/refresh-square.svg"
+    logo: "/images/sakrum.svg"
     # option to specify the font of the sidebar
     fontFamily: "Open Sans" # "Open Sans"
 
