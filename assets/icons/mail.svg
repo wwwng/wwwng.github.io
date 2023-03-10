@@ -1,0 +1,58 @@
+<?xml version="1.0"?>
+<svg xmlns="http://www.w3.org/2000/svg" height="48" width="48" xmlns:xlink="http://www.w3.org/1999/xlink">
+<defs>
+	<linearGradient id="l" y2="7.41" gradientUnits="userSpaceOnUse" x2="40" gradientTransform="matrix(1.591 0 0-1.702-1.53 31.38)" y1="4.25" x1="11.84">
+		<stop stop-color="#fff" offset="0"/>
+		<stop stop-color="#ededed" offset="1"/>
+	</linearGradient>
+	<linearGradient id="n" y2="11.98" xlink:href="#a" gradientUnits="userSpaceOnUse" x2="13.85" gradientTransform="matrix(1.504 0 0-1.67-.21 31.79)" y1="11.48" x1="11.74"/>
+	<linearGradient id="k" y2="28.3" gradientUnits="userSpaceOnUse" x2="21.29" y1="30.96" x1="15.74">
+		<stop stop-color="#fff" offset="0"/>
+		<stop stop-color="#fff" stop-opacity="0" offset="1"/>
+	</linearGradient>
+	<linearGradient id="i" x1=".2727" gradientUnits="userSpaceOnUse" y1="7.991" gradientTransform="matrix(1.343 0 0 1.418 3.24-.69)" x2="32.64" y2="25.4">
+		<stop stop-color="#989690" offset="0"/>
+		<stop stop-color="#2e3436" offset="1"/>
+	</linearGradient>
+	<linearGradient id="h" x1="8.92" gradientUnits="userSpaceOnUse" y1="37.2" gradientTransform="matrix(2.455 0 0 .762 3.24-.66)" x2="9.89" y2="52.1">
+		<stop stop-color="#888a85" offset="0"/>
+		<stop stop-color="#b5beb5" offset="1"/>
+	</linearGradient>
+	<linearGradient id="j" y2="6.105" gradientUnits="userSpaceOnUse" y1="30.04" x2="18.5" x1="40.32">
+		<stop stop-color="#555753" offset="0"/>
+		<stop stop-color="#989898" offset="1"/>
+	</linearGradient>
+	<linearGradient id="m" y2="-7.53" xlink:href="#a" gradientUnits="userSpaceOnUse" x2="17.2" gradientTransform="matrix(1.823 0 0-1.431-1.11 31.94)" y1="20.2" x1="10"/>
+	<linearGradient id="f" gradientUnits="userSpaceOnUse" y1="366.6" gradientTransform="matrix(2.774 0 0 1.97-1892-872.9)" x2="0" y2="609.5">
+		<stop stop-opacity="0" offset="0"/>
+		<stop offset=".5"/>
+		<stop stop-opacity="0" offset="1"/>
+	</linearGradient>
+	<linearGradient id="g" x1="11.57" xlink:href="#a" gradientUnits="userSpaceOnUse" y1="4.75" gradientTransform="matrix(1.343 0 0 1.418 3.24-.69)" x2="18.48" y2="26"/>
+	<linearGradient id="a">
+		<stop stop-color="#fff" offset="0"/>
+		<stop stop-color="#e2e2e2" offset="1"/>
+	</linearGradient>
+	<radialGradient id="e" gradientUnits="userSpaceOnUse" cy="38.71" cx="27.74" gradientTransform="matrix(.731.534-.171.289 14.61 3.72)" r="17.98">
+		<stop stop-opacity=".13" offset="0"/>
+		<stop stop-opacity="0" offset="1"/>
+	</radialGradient>
+	<radialGradient id="b" gradientUnits="userSpaceOnUse" cy="487.7" cx="602.8" gradientTransform="matrix(-2.774 0 0 1.97 112.8 -872.9)" r="117.1">
+		<stop offset="0"/>
+		<stop stop-opacity="0" offset="1"/>
+	</radialGradient>
+</defs>
+<g opacity=".4" transform="matrix(.023 0 0 .023 45.1 37.3)">
+	<rect height="478.4" width="1340" y="-150.7" x="-1559" fill="url(#f)"/>
+	<path id="c" fill="url(#b)" d="m-1559-150.7v478.3c-142.9 0.9-345.4-107.2-345.4-239.2s159.4-239.1 345.4-239.1"/>
+	<use xlink:href="#c" transform="matrix(-1,0,0,1,-1778,0)"/>
+</g>
+<path stroke-linejoin="round" d="m2.9 10.19v30.2h42.91l-0.09-30.2z" stroke="url(#i)" stroke-width="1.2" fill="url(#g)"/>
+<path d="m19.32 25.97l-15.55 12.76 16.1-11.17h10.47l14.42 11-13.77-12.61h-11.71z" fill="url(#h)"/>
+<path stroke="#fff" d="m4 11.33l0.02 27.75h40.56l-0.08-27.75z" fill="none"/>
+<path d="m22.62 30.55c-2.78-0.52-17.91-16.53-19.43-19.32-0.02-0.03-0.05-0.1-0.06-0.13h40.1c-0.32 2.91-8.73 19.2-11.1 19.45h-9.34c-0.04 0-0.09 0.001-0.14 0z" fill="url(#e)"/>
+<path stroke-linejoin="round" d="m19.68 28.3c-2.78-0.43-14.92-14.46-15.88-16.9-0.001-0.03-0.03-0.08-0.04-0.11h41.3c-0.96 2.55-13.1 16.82-15.61 17.01z" stroke="url(#j)" fill="url(#n)"/>
+<path fill="url(#m)" d="m19.48 27.64c-2.45-0.57-14.98-14.53-15.78-16.3-0.065-0.13-0.216-0.48-0.216-0.6l41.53 0.33c-0.01938 0.07564-0.05464 0.1503-0.08 0.22-1.07 2.54-13.36 16-15.49 16.34h-0.07-9.72c-0.03 0-0.1 0.001-0.15 0"/>
+<path stroke="url(#l)" d="m44.54 11.24c-1.73 2.7-12.9 15.76-15.36 15.98l-9.38-0.09c-2.85-0.64-14.1-13.59-15.45-15.89z" fill="none"/>
+<path fill="url(#k)" d="m6.01 37.2h2.58l11.61-7.98 10.24-1.65-10.56 0.02z"/>
+</svg>
