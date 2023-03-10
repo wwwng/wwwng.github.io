@@ -7,6 +7,7 @@ authorbox: false
 sidebar: false
 pager: false
 weight: 3
+draft: true
 menu:
   main:
     name: FAQ

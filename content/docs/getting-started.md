@@ -11,6 +11,7 @@ sidebar: false
 pager: false
 weight: 1
 menu: main
+draft: true
 ---
 
 Welcome to the Mainroad theme documentation. This quick start guide covers Mainroad theme installation and minimal

@@ -14,6 +14,7 @@ sidebar: false
 pager: false
 weight: 2
 menu: main
+draft: true
 ---
 
 Customization page describes common Mainroad configuration parameters which can be specified via configuration file or
