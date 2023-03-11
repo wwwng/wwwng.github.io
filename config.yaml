@@ -151,6 +151,11 @@ params:
     twitter: 
        link: sakrumverum
        title: Twitter
+    # option to specify your Mastodon username in the footer;
+    # **uncomment** the below lines to show in footer
+    mastodon: 
+       link: https://muenchen.social/@markus
+       title: Mastodon
     # option to specify your instagram username in the footer; 
     # **uncomment** the below lines to show in footer
     # instagram: 
