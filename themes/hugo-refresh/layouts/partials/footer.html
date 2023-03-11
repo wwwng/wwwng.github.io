@@ -86,7 +86,7 @@
             {{ if isset .Site.Params.footer.email "link" }}
             <li>
               <a href="mailto:{{ .Site.Params.footer.email.link }}" target="_blank">
-                <span class="icon"><img src="/icons/mail.svg" alt=""></span>
+                <span class="icon"><i class="fa fa-envelope"></i></span>
                 {{ if isset .Site.Params.footer.email "title" }}
                   {{ .Site.Params.footer.email.title }}
                 {{ else }}
