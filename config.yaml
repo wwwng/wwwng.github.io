@@ -148,9 +148,9 @@ params:
     #   title: Gitlab
     # option to specify your twitter username in the footer;
     # **uncomment** the below lines to show in footer
-    # twitter: 
-    #    link: username
-    #    title: Twitter
+    twitter: 
+       link: sakrumverum
+       title: Twitter
     # option to specify your instagram username in the footer; 
     # **uncomment** the below lines to show in footer
     # instagram: 
@@ -158,9 +158,9 @@ params:
     #    title: Instagram
     # option to specify your telegram username in the footer; 
     # **uncomment** the below lines to show in footer
-    # telegram: 
-    #    link: username
-    #    title: Telegram
+    telegram: 
+       link: sakrumverum
+       title: Telegram
     # option to specify the copyright in the footer
     # copyright: sakrum 2023
 

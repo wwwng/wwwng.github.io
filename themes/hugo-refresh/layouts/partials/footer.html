@@ -59,30 +59,6 @@
               <h3>{{ i18n "contacts" }}</h3>
           </div>
           <ul class="link-list">
-            {{ if isset .Site.Params.footer.linkedin "link" }}
-            <li>
-              <a href="https://www.linkedin.com/{{ .Site.Params.footer.linkedin.link }}" target="_blank">
-                <span class="icon"><i class="fab fa-linkedin"></i></span>
-                {{ if isset .Site.Params.footer.linkedin "title" }}
-                  {{ .Site.Params.footer.linkedin.title }}
-                {{ else }}
-                  LinkedIn
-                {{ end }}
-              </a>
-            </li>
-            {{ end }}
-            {{ if isset .Site.Params.footer.github "link" }}
-            <li>
-              <a href="https://github.com/{{ .Site.Params.footer.github.link }}" target="_blank">
-                <span class="icon"><i class="fab fa-github-square"></i></span>
-                {{ if isset .Site.Params.footer.github "title" }}
-                  {{ .Site.Params.footer.github.title }}
-                {{ else }}
-                  Github
-                {{ end }}
-              </a>
-            </li>
-            {{ end }}             
             {{ if isset .Site.Params.footer.email "link" }}
             <li>
               <a href="mailto:{{ .Site.Params.footer.email.link }}" target="_blank">
@@ -130,7 +106,31 @@
                 {{ end }}
               </a>
             </li>
-            {{ end }}       
+            {{ end }} 
+            {{ if isset .Site.Params.footer.linkedin "link" }}
+            <li>
+              <a href="https://www.linkedin.com/{{ .Site.Params.footer.linkedin.link }}" target="_blank">
+                <span class="icon"><i class="fab fa-linkedin"></i></span>
+                {{ if isset .Site.Params.footer.linkedin "title" }}
+                  {{ .Site.Params.footer.linkedin.title }}
+                {{ else }}
+                  LinkedIn
+                {{ end }}
+              </a>
+            </li>
+            {{ end }}
+            {{ if isset .Site.Params.footer.github "link" }}
+            <li>
+              <a href="https://github.com/{{ .Site.Params.footer.github.link }}" target="_blank">
+                <span class="icon"><i class="fab fa-github-square"></i></span>
+                {{ if isset .Site.Params.footer.github "title" }}
+                  {{ .Site.Params.footer.github.title }}
+                {{ else }}
+                  Github
+                {{ end }}
+              </a>
+            </li>
+            {{ end }}      
             {{ if isset .Site.Params.footer.instagram "link" }}
             <li>
               <a href="https://instagram.com/{{ .Site.Params.footer.instagram.link }}" target="_blank">
