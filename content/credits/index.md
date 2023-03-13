@@ -7,4 +7,4 @@ showInMenu: true
 # no need for the "summary" parameter as it is not displayed in any previews
 ---
 
-<div class="icon baseline"><img="/icons/mail.svg"></img></div>The images used in the site comes from https://getavataaars.com/.
+<div class="icon baseline"><img="/icons/mail.svg">The images used in the site comes from https://getavataaars.com/.</div>
