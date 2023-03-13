@@ -121,12 +121,12 @@ params:
     logo: "/images/sakrum.svg"
     # option to specify your contact email in the footer
     email: 
-      link: name.surname@domain.com
-      title: My Email
+      decryptfunction: linkTo_UnCryptMailto('nbjmup;nbslvtAtblsvn/ef')
+      title: Email
     # option to specify your contact xmpp in the footer
-    xmpp: 
-      link: markus@sakrum.de
-      title: XMPP / Jabber
+    # xmpp: 
+    #   link: markus@sakrum.de
+    #   title: XMPP / Jabber
     # option to specify your contact xmpp in the footer
     gnupg: 
       key: 0bfa9786

@@ -59,9 +59,9 @@
               <h3>{{ i18n "contacts" }}</h3>
           </div>
           <ul class="link-list">
-            {{ if isset .Site.Params.footer.email "link" }}
+            {{ if isset .Site.Params.footer.email "decryptfunction" }}
             <li>
-              <a href="mailto:{{ .Site.Params.footer.email.link }}" target="_blank">
+              <a href="javascript:{{ .Site.Params.footer.email.decryptfunction }};">
                 <span class="icon"><i class="fa fa-envelope"></i></span>
                 {{ if isset .Site.Params.footer.email "title" }}
                   {{ .Site.Params.footer.email.title }}
