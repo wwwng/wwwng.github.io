@@ -6,7 +6,7 @@ hideLastModified: true
 showInMenu: true
 # no need for the "summary" parameter as it is not displayed in any previews
 ---
-
+{{< jsxmpp >}}
 {{< textsize size="+3" >}}{{< svgicon symbol="mail" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< jsmailto >}}markus{{< fontawesome symbol="fa fa-at" >}}&nbsp;sakrum.de{{< /jsmailto >}}{{< newLine >}}
 {{< textsize size="+3" >}}{{< svgicon symbol="xmpp" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< jsxmppto >}}markus{{< fontawesome symbol="fa fa-at" >}}&nbsp;sakrum.de{{< /jsxmppto >}}{{< newLine >}}
 {{< textsize size="+3" >}}{{< svgicon symbol="conversations" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< link "https://conversations.im/i/markus@sakrum.de" >}}https://conversations.im/i/markus@sakrum.de{{< /link >}}{{< newLine >}}
