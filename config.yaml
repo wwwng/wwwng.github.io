@@ -122,7 +122,7 @@ params:
     # option to specify your contact email in the footer
     email: 
       decryptfunction: linkTo_UnCryptMailto('nbjmup;nbslvtAtblsvn/ef')
-      title: Email
+      title: E-Mail senden
     # option to specify your contact xmpp in the footer
     # xmpp: 
     #   link: markus@sakrum.de
