@@ -27,7 +27,7 @@
           {{- $image = resources.Get .Site.Params.summary.defaultImage -}}
           {{- $imgWidth = $image.Width -}}
           {{- $imgHeight = $image.Height -}}
-          {{- .Scratch.Set "image" ($image.Resize "600x") -}}
+          {{- .Scratch.Set "image" ($image.Resize "100x") -}}
           {{- $image = .Scratch.Get "image" -}}
         {{- end }}
         <a href="{{- .Permalink | relURL -}}">
