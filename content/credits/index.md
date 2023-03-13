@@ -7,4 +7,4 @@ showInMenu: true
 # no need for the "summary" parameter as it is not displayed in any previews
 ---
 
-{{< link "javascript:linkTo_UnCryptMailto('nbjmup;nbslvtAtblsvn/ef');">}}{{< textsize size="+3" >}}{{< svgicon symbol="mail" >}}markus{{< fontawesome symbol="fa fa-at" >}}sakrum.de{{< /svgicon >}}{{< /textsize >}}{{< /link >}}
+{{< jsmailto >}}{{< textsize size="+3" >}}{{< svgicon symbol="mail" >}}markus{{< fontawesome symbol="fa fa-at" >}}sakrum.de{{< /svgicon >}}{{< /textsize >}}{{< /jsmailto >}}
