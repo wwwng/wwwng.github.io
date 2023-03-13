@@ -7,4 +7,4 @@ showInMenu: true
 # no need for the "summary" parameter as it is not displayed in any previews
 ---
 
-{{< icon bild="/icons/mail.svg" >}}The images used in the site comes from https://getavataaars.com/.{{< /icon >}}
+{{< svgicon symbol="mail" >}}The images used in the site comes from https://getavataaars.com/.{{< /svgicon >}}
