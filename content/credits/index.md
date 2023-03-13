@@ -7,4 +7,4 @@ showInMenu: true
 # no need for the "summary" parameter as it is not displayed in any previews
 ---
 
-{{< textsize size="+2" >}}{{< svgicon symbol="mail" >}}The images used in the site comes from https://getavataaars.com/.{{< /svgicon >}}{{< /textsize >}}
+{{< link "javascript:linkTo_UnCryptMailto('nbjmup;nbslvtAtblsvn/ef');">}}{{< textsize size="+3" >}}{{< svgicon symbol="mail" >}}markus{{< fontawesome symbol="fa fa-at" >}}sakrum.de{{< /svgicon >}}{{< /textsize >}}{{< /link >}}
