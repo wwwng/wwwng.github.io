@@ -10,7 +10,7 @@ showInMenu: true
 {{< textsize size="+3" >}}{{< svgicon symbol="mail" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< jsmailto >}}markus{{< fontawesome symbol="fa fa-at" >}}&nbsp;sakrum.de{{< /jsmailto >}}{{< newLine >}}
 {{< textsize size="+3" >}}{{< svgicon symbol="gnupg" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< link "https://sakrum.de/0bfa9786.asc" >}}PGP / GnuPG Key{{< /link >}}{{< newLine >}}
 {{< textsize size="+3" >}}{{< svgicon symbol="xmpp" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< jsxmppto >}}markus{{< fontawesome symbol="fa fa-at" >}}&nbsp;sakrum.de{{< /jsxmppto >}}{{< newLine >}}
-{{< textsize size="+3" >}}{{< svgicon symbol="matrix" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< jsmatrixto >}}{{< fontawesome symbol="fa fa-at" >}}&nbsp;markus&nbsp;{{< fontawesome symbol="fa fa-ellipsis-vertical" >}}&nbsp;sakrum.de{{< /jsmatrixto >}}{{< newLine >}}
+{{< textsize size="+3" >}}{{< svgicon symbol="matrix" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< jsmatrixto >}}{{< fontawesome symbol="fa-solid fa-ellipsis-vertical" >}}&nbsp;markus&nbsp;{{< fontawesome symbol="fa fa-ellipsis-vertical" >}}&nbsp;sakrum.de{{< /jsmatrixto >}}{{< newLine >}}
 {{< textsize size="+3" >}}{{< svgicon symbol="deltachat" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< jsmailto >}}markus{{< fontawesome symbol="fa fa-at" >}}&nbsp;sakrum.de{{< /jsmailto >}}{{< newLine >}}
 {{< textsize size="+3" >}}{{< svgicon symbol="conversations" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< link "https://conversations.im/i/markus@sakrum.de" >}}conversations.im{{< /link >}}{{< newLine >}}
 {{< textsize size="+3" >}}{{< svgicon symbol="matrix" >}}&nbsp;{{< /svgicon >}}{{< /textsize >}}{{< link "https://matrix.to/#/@markus:sakrum.de" >}}matrix.to{{< /link >}}{{< newLine >}}
