@@ -1,0 +1,14 @@
+<script language="JavaScript" type="text/javascript">
+function jabber {
+    var name = "lukas";
+    var mittelwert = Math.pow(2,6);
+    var mitteldarstellung = String.fromCharCode(mittelwert);
+    var gruppe = "evangelisten";
+    var land = "de";
+    var ausgabe = name + mitteldarstellung + gruppe + "." + land;
+    location.href="xmpp:"+ausgabe;
+}
+function xmpp {
+    location.href=jabber;
+}
+</script>
