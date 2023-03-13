@@ -7,4 +7,4 @@ showInMenu: true
 # no need for the "summary" parameter as it is not displayed in any previews
 ---
 
-{{< textsize size="+3" >}}{{< svgicon symbol="mail" >}}&nbsp;{{< /svgicon >}}{{< jsmailto >}}markus{{< fontawesome symbol="fa-duotone fa-at" >}}sakrum.de{{< /jsmailto >}}{{< /textsize >}}
+{{< textsize size="+3" >}}{{< svgicon symbol="mail" >}}&nbsp;{{< /svgicon >}}{{< jsmailto >}}markus{{< fontawesome symbol="fa fa-at" >}}sakrum.de{{< /jsmailto >}}{{< /textsize >}}
