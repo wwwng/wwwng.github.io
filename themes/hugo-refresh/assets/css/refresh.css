@@ -1,3 +1,18 @@
+/*SVG ICON SYSTEM*/
+.iconng {
+    display: inline-flex;
+    align-self: center;
+}
+.iconng svg, .iconng img {
+    height: 1em;
+    width: 1em;
+    fill: currentColor;
+}
+.iconng.baseline svg, .iconng img {
+    top: .125em;
+    position: relative;
+}
+
 /* Style for the summary pages */
 .refresh-summary{
   display: -webkit-box;
