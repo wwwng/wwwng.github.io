@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 30 August 2019 : Kommentar Hl. Gertrud von Helfta'
+date: 2019-08-29T17:49:00.003+02:00
+draft: false
+url: /2019/08/freitag-30-august-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Dass du mich in der Stunde meines Todes im Brautkleid mit brennender Lampe in der Schar der klugen Jungfrauen wie die Braut dem Bräutigam dir entgegengehen lässt: Wir bitten dich, erhöre uns. Dass du mich mit einem Kuss deines honigfließenden Mundes als dein Eigentum hineinführst in das Brautgemach festlicher Liebe \[…\] Zu dir, der das Herz erforscht, lass mich hingehen zur Schar der klugen Jungfrauen, nicht als eine, deren Leib, sondern deren Geist gefällt, damit ich den himmlischen Bräutigam mit entzündeter Lampe, mit dem Öl meiner Vorbereitung erwarten kann. Damit ich nicht in Verwirrung gestürzt werde durch eine unvorhergesehene Ankunft des Königs, vielmehr sicher mit dem Licht dem Chor der ihm vorausgehenden Jungfrauen entgegenlaufen kann und nicht mit den Törichten ausgeschlossen werde (Mt 25,1–13). Damit ich vielmehr frei bin, mit den klugen Jungfrauen den königlichen Palasthof zu betreten. Und in der ewigwährenden Gemeinschaft deines Lammes möchte ich bleiben in dieser Reinheit \[…\] O Liebe, o Liebe, in deiner schönen Liebe bereite mir den Weg zu dir: \[…\] Du führst im seligsten himmlischen Reigentanz mit dir die Tausende und Abertausende der alles überstrahlenden Jungfrauen an, \[…\] die voll Jubel singen die süßen Lieder von der ewigen Hochzeit mit dir. Ja, o Liebe, in diesem Elend behüte mich unter dem Schatten deiner erbarmenden Liebe, damit ich nach diesem Leben in der Fremde von dir geführt ohne jeden Makel eintreten kann in dein Heiligtum, in jene große Schar der Jungfrauen, und mich dann nur noch dies eine Äderigen göttlicher Zuneigung erfrischt, dieser eine honigfließende Genuss mich sättigt. Amen, Amen, sollen alle sagen.

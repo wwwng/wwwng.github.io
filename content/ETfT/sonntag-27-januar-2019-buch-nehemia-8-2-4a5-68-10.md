@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 27 Januar 2019 : Buch Nehemia 8,2-4a.5-6.8-10.'
+date: 2019-01-26T14:52:00.005+01:00
+draft: false
+url: /2019/01/sonntag-27-januar-2019-buch-nehemia-82.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen brachte der Priester Esra das Gesetz vor die Versammlung; zu ihr gehörten die Männer und die Frauen und alle, die das Gesetz verstehen konnten. Vom frühen Morgen bis zum Mittag las Esra auf dem Platz vor dem Wassertor den Männern und Frauen und denen, die es verstehen konnten, das Gesetz vor. Das ganze Volk lauschte auf das Buch des Gesetzes. Der Schriftgelehrte Esra stand auf einer Kanzel aus Holz, die man eigens dafür errichtet hatte. Neben ihm standen rechts Mattitja, Schema, Anaja, Urija, Hilkija und Maaseja und links Pedaja, Mischaël, Malkija, Haschum, Haschbaddana, Secharja und Meschullam. Esra öffnete das Buch vor aller Augen, denn er stand höher als das versammelte Volk. Als er das Buch aufschlug, erhoben sich alle. Dann pries Esra den Herrn, den großen Gott; darauf antworteten alle mit erhobenen Händen: Amen, amen! Sie verneigten sich, warfen sich vor dem Herrn nieder, mit dem Gesicht zur Erde. Man las aus dem Buch, dem Gesetz Gottes, in Abschnitten vor und gab dazu Erklärungen, so dass die Leute das Vorgelesene verstehen konnten. Der Statthalter Nehemia, der Priester und Schriftgelehrte Esra und die Leviten, die das Volk unterwiesen, sagten dann zum ganzen Volk: Heute ist ein heiliger Tag zu Ehren des Herrn, eures Gottes. Seid nicht traurig und weint nicht! Alle Leute weinten nämlich, als sie die Worte des Gesetzes hörten. Dann sagte Esra zu ihnen: Nun geht, haltet ein festliches Mahl und trinkt süßen Wein! Schickt auch denen etwas, die selbst nichts haben; denn heute ist ein heiliger Tag zur Ehre des Herrn. Macht euch keine Sorgen; denn die Freude am Herrn ist eure Stärke.

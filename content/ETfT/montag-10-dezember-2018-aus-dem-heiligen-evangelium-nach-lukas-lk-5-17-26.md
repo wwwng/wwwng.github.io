@@ -1,0 +1,10 @@
+---
+title: 'Montag, 10 Dezember 2018 : Aus dem Heiligen Evangelium nach Lukas - Lk 5,17-26.'
+date: 2018-12-09T17:45:00.001+01:00
+draft: false
+url: /2018/12/montag-10-dezember-2018-aus-dem.html
+tags: 
+- EVANGELIUM
+---
+
+Eines Tages, als Jesus lehrte, saßen unter den Zuhörern auch Pharisäer und Gesetzeslehrer; sie waren aus allen Dörfern Galiläas und Judäas und aus Jerusalem gekommen. Und die Kraft des Herrn drängte ihn dazu, zu heilen. Da brachten einige Männer einen Gelähmten auf einer Tragbahre. Sie wollten ihn ins Haus bringen und vor Jesus hinlegen. Weil es ihnen aber wegen der vielen Leute nicht möglich war, ihn hineinzubringen, stiegen sie aufs Dach, deckten die Ziegel ab und ließen ihn auf seiner Tragbahre in die Mitte des Raumes hinunter, genau vor Jesus hin. Als er ihren Glauben sah, sagte er zu dem Mann: Deine Sünden sind dir vergeben. Da dachten die Schriftgelehrten und die Pharisäer: Wer ist das, dass er eine solche Gotteslästerung wagt? Wer außer Gott kann Sünden vergeben? Jesus aber merkte, was sie dachten, und sagte zu ihnen: Was habt ihr für Gedanken im Herzen? Was ist leichter, zu sagen: Deine Sünden sind dir vergeben!, oder zu sagen: Steh auf und geh umher? Ihr sollt aber erkennen, dass der Menschensohn die Vollmacht hat, hier auf der Erde Sünden zu vergeben. Und er sagte zu dem Gelähmten: Ich sage dir: Steh auf, nimm deine Tragbahre, und geh nach Hause! Im gleichen Augenblick stand der Mann vor aller Augen auf. Er nahm die Tragbahre, auf der er gelegen hatte, und ging heim, Gott lobend und preisend. Da gerieten alle außer sich; sie priesen Gott und sagten voller Furcht: Heute haben wir etwas Unglaubliches gesehen.

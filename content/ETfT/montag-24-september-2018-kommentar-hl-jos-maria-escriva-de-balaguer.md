@@ -1,0 +1,10 @@
+---
+title: 'Montag, 24 September 2018 : Kommentar Hl. Josémaria Escriva de Balaguer'
+date: 2018-09-23T17:45:00.001+02:00
+draft: false
+url: /2018/09/montag-24-september-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Einer der Kirchenväter \[der hl. Johannes Chrysostomus\] schreibt: „Christus hat uns in dieser Welt zurückgelassen, damit wir wie Lampen sind \[...\] damit wir wie Sauerteig wirken \[...\] damit wir Saatgut sind; damit wir Frucht bringen. Wenn unser Leben davon etwas widerspiegeln würde, bräuchten wir den Mund nicht aufzumachen. Könnten wir Werke vorweisen, wären Worte überflüssig. Es gäbe keinen einzigen Heiden, wenn wir wirklich Christen wären.“ Wir dürfen nicht den Fehler machen zu glauben, das Apostolat beschränke sich auf ein paar fromme Praktiken. Du und ich, wir sind Christen; zugleich aber und unablässig sind wir Bürger und Berufstätige mit sehr klaren Verpflichtungen. Ihnen müssen wir auf vorbildliche Weise nachkommen, wenn wir ernsthaft heilig werden wollen. Jesus selber drängt uns dazu: „Ihr seid das Licht der Welt. Eine Stadt, die auf einem Berg liegt, kann nicht verborgen bleiben. Man zündet auch nicht eine Leuchte an und stellt sie unter den Scheffel, sondern auf den Leuchter; dann leuchtet sie allen im Haus. So soll euer Licht vor den Menschen leuchten, damit sie eure guten Taten sehen und euren Vater im Himmel preisen“ (Mt 5,14-16). Was auch immer ihr beruflich tut, es wird zu einem Licht, das eure Kollegen und Freunde erleuchtet. Deshalb sage ich immer wieder \[...\]: Ich halte nichts davon, wenn man mir sagt, dass der und jener ein guter Sohn ist, ein guter Christ – und dabei ist er ein schlechter Schuhmacher! Wenn er sich keine Mühe gibt, seinen Beruf gründlich zu erlernen und ihn sorgfältig auszuüben, kann er ihn nicht heiligen und ihn auch nicht dem Herrn darbringen. Die Heiligung der Alltagsarbeit ist sozusagen das Scharnier echter Spiritualität für uns alle, die wir eng mit den irdischen Gegebenheiten verflochten sind und doch entschieden den Umgang mit Gott suchen.

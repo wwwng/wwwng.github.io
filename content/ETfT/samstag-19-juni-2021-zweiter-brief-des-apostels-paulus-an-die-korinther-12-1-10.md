@@ -1,0 +1,8 @@
+---
+title: 'Samstag, 19 Juni 2021 : Zweiter Brief des Apostels Paulus an die Korinther 12,1-10.'
+date: 2021-06-19T07:27:00.001+02:00
+draft: false
+url: /2021/06/samstag-19-juni-2021-zweiter-brief-des.html
+---
+
+Brüder! Ich muss mich ja rühmen; zwar nützt es nichts, trotzdem will ich jetzt von Erscheinungen und Offenbarungen sprechen, die mir der Herr geschenkt hat. Ich kenne jemand, einen Diener Christi, der vor vierzehn Jahren bis in den dritten Himmel entrückt wurde; ich weiß allerdings nicht, ob es mit dem Leib oder ohne den Leib geschah, nur Gott weiß es. Und ich weiß, dass dieser Mensch in das Paradies entrückt wurde; ob es mit dem Leib oder ohne den Leib geschah, weiß ich nicht, nur Gott weiß es. Er hörte unsagbare Worte, die ein Mensch nicht aussprechen kann. Diesen Mann will ich rühmen; was mich selbst angeht, will ich mich nicht rühmen, höchstens meiner Schwachheit. Wenn ich mich dennoch rühmen wollte, wäre ich zwar kein Narr, sondern würde die Wahrheit sagen. Aber ich verzichte darauf; denn jeder soll mich nur nach dem beurteilen, was er an mir sieht oder aus meinem Mund hört. Damit ich mich wegen der einzigartigen Offenbarungen nicht überhebe, wurde mir ein Stachel ins Fleisch gestoßen: ein Bote Satans, der mich mit Fäusten schlagen soll, damit ich mich nicht überhebe. Dreimal habe ich den Herrn angefleht, dass dieser Bote Satans von mir ablasse. Er aber antwortete mir: Meine Gnade genügt dir; denn sie erweist ihre Kraft in der Schwachheit. Viel lieber also will ich mich meiner Schwachheit rühmen, damit die Kraft Christi auf mich herabkommt. Deswegen bejahe ich meine Ohnmacht, alle Misshandlungen und Nöte, Verfolgungen und Ängste, die ich für Christus ertrage; denn wenn ich schwach bin, dann bin ich stark.

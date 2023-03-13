@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 28 November 2019 : Aus dem Heiligen Evangelium nach Lukas - Lk 21,20-28.'
+date: 2019-11-27T17:42:00.003+01:00
+draft: false
+url: /2019/11/donnerstag-28-november-2019-aus-dem.html
+tags: 
+- EVANGELIUM
+---
+
+In jener Zeit sprach Jesus zu seinen Jüngern: Wenn ihr aber seht, dass Jerusalem von einem Heer eingeschlossen wird, dann könnt ihr daran erkennen, dass die Stadt bald verwüstet wird. Dann sollen die Bewohner von Judäa in die Berge fliehen; wer in der Stadt ist, soll sie verlassen, und wer auf dem Land ist, soll nicht in die Stadt gehen. Denn das sind die Tage der Vergeltung, an denen alles in Erfüllung gehen soll, was in der Schrift steht. Wehe den Frauen, die in jenen Tagen schwanger sind oder ein Kind stillen. Denn eine große Not wird über das Land hereinbrechen: Der Zorn Gottes wird über dieses Volk kommen. Mit scharfem Schwert wird man sie erschlagen, als Gefangene wird man sie in alle Länder verschleppen, und Jerusalem wird von den Heiden zertreten werden, bis die Zeiten der Heiden sich erfüllen. Es werden Zeichen sichtbar werden an Sonne, Mond und Sternen, und auf der Erde werden die Völker bestürzt und ratlos sein über das Toben und Donnern des Meeres. Die Menschen werden vor Angst vergehen in der Erwartung der Dinge, die über die Erde kommen; denn die Kräfte des Himmels werden erschüttert werden. Dann wird man den Menschensohn mit großer Macht und Herrlichkeit auf einer Wolke kommen sehen. Wenn all das beginnt, dann richtet euch auf, und erhebt eure Häupter; denn eure Erlösung ist nahe.

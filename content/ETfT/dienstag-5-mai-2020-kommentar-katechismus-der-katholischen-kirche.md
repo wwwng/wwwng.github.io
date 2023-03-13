@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 5 Mai 2020 : Kommentar Katechismus der Katholischen Kirche'
+date: 2020-05-04T18:09:00.001+02:00
+draft: false
+url: /2020/05/dienstag-5-mai-2020-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Die Christen werden im „Namen des Vaters und des Sohnes und des Heiligen Geistes“ (Mt 28,19) getauft. Vorher antworten sie auf die dreifache Frage, ob sie an den Vater, an den Sohn und an den Heiligen Geist glauben, mit: „Ich glaube“. „Der Inbegriff des Glaubens aller Christen ist die Dreifaltigkeit“ (Cæsarius v. Arles, symb.). Die Christen werden „im Namen“ (Einzahl) und nicht „auf die Namen“ (Mehrzahl) des Vaters, des Sohnes und des Heiligen Geistes getauft \[vgl. das Glaubensbekenntnis des Papstes Vigilius im Jahre 552: DS 415\], denn es gibt nur einen einzigen Gott, den allmächtigen Vater und seinen eingeborenen Sohn und den Heiligen Geist: die heiligste Dreifaltigkeit. Das Mysterium der heiligsten Dreifaltigkeit ist das zentrale Geheimnis des christlichen Glaubens und Lebens. Es ist das Mysterium des inneren Lebens Gottes, der Urgrund aller anderen Glaubensmysterien und das Licht, das diese erhellt. Es ist in der „Hierarchie der Glaubenswahrheiten“ (DCG 43) die grundlegendste und wesentlichste. „Die ganze Heilsgeschichte ist nichts anderes als die Geschichte des Weges und der Mittel, durch die der wahre, einzige Gott – Vater, Sohn und Heiliger Geist – sich offenbart, sich mit den Menschen, die sich von der Sünde abwenden, versöhnt und sie mit sich vereint“ (DCG 47). \[…\] Die Trinität ist ein Glaubensmysterium im strengen Sinn, eines der „in Gott verborgenen Geheimnisse … die, wenn sie nicht von Gott geoffenbart wären, nicht bekannt werden könnten“ (1. Vatikanisches K.: DS 3015). Zwar hat Gott in seinem Schöpfungswerk und in seiner Offenbarung im Laufe des Alten Bundes Spuren seines trinitarischen Wesens hinterlassen. Aber sein innerstes Wesen als heilige Dreifaltigkeit stellt ein Geheimnis dar, das der Vernunft nicht zugänglich ist und vor der Menschwerdung des Sohnes Gottes und der Sendung des Heiligen Geistes auch dem Glauben Israels unzugänglich war.

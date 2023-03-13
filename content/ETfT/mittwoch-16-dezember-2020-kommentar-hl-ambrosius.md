@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 16 Dezember 2020 : Kommentar Hl. Ambrosius'
+date: 2020-12-15T17:47:00.001+01:00
+draft: false
+url: /2020/12/mittwoch-16-dezember-2020-kommentar-hl.html
+tags: 
+- EVANGELIUM
+---
+
+Da der Herr wusste, dass niemand ohne das Evangelium zum vollen Glauben gelangen könne, weil der Glaube wie im Alten Testament seine Anfänge so im Neuen Testament seine Vollendung hat, so gab er nicht irgendwie in Worten, sondern durch seine Taten klar zu verstehen, dass er es sei. „Geht hin“, sprach er, „verkündigt dem Johannes, was ihr gesehen und gehört habt! Blinde sehen, Lahme gehen, Taube hören, Aussätzige werden gereinigt, Tote stehen auf, Armen wird das Evangelium verkündet“ (vgl. Lk 7,22). Fürwahr ein vollgültiges Zeugnis, durch das der Prophet den Herrn erkennen musste! Auf ihn, auf keinen anderen bezog sich ja die Weissagung: „Der Herr gibt Speise den Hungrigen, der Herr richtet auf die Gebeugten, der Herr löst los die Gefangenen, der Herr gibt das Augenlicht den Blinden \[…\]“. Der dies tun wird, „der Herr“, so heißt es weiter, „wird herrschen in Ewigkeit“ (Ps 145(146),7–10). Kennzeichen nicht menschlicher, sondern göttlicher Kraft sind es \[…\] Und doch, sind das noch ganz geringfügige Beispiele zur Bezeugung des Herrn; die volle Beglaubigung bildet das Kreuz des Herrn, sein Tod, seine Auferstehung. Darum fügte er, als er jene obigen Worte gesprochen hatte, bei: „Selig, wer sich an mir nicht ärgert!“ (Lk 7,23). Das Kreuz nämlich hätte selbst Auserwählten Ärgernis verursachen können. Indes gibt es kein triftigeres Zeugnis als dieses für seine göttliche Person, nichts gibt es, was übermenschlicher erschiene als einzig für die ganze Welt sich hinopfern; dies allein schon erweist ihn voll und ganz als den Herrn. So ward er denn auch von Johannes gekennzeichnet: „Sehet, das Lamm Gottes, sehet, das hinwegnimmt die Sünden der Welt!“ (Joh 1,29).

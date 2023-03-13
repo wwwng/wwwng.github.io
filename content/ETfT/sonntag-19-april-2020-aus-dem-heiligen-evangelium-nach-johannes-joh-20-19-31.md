@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 19 April 2020 : Aus dem Heiligen Evangelium nach Johannes - Joh 20,19-31.'
+date: 2020-04-18T18:08:00.001+02:00
+draft: false
+url: /2020/04/sonntag-19-april-2020-aus-dem-heiligen.html
+tags: 
+- EVANGELIUM
+---
+
+Am Abend des ersten Tages der Woche, als die Jünger aus Furcht vor den Juden die Türen verschlossen hatten, kam Jesus, trat in ihre Mitte und sagte zu ihnen: Friede sei mit euch! Nach diesen Worten zeigte er ihnen seine Hände und seine Seite. Da freuten sich die Jünger, dass sie den Herrn sahen. Jesus sagte noch einmal zu ihnen: Friede sei mit euch! Wie mich der Vater gesandt hat, so sende ich euch. Nachdem er das gesagt hatte, hauchte er sie an und sprach zu ihnen: Empfangt den Heiligen Geist! Wem ihr die Sünden vergebt, dem sind sie vergeben; wem ihr die Vergebung verweigert, dem ist sie verweigert. Thomas, genannt Didymus - Zwilling-, einer der Zwölf, war nicht bei ihnen, als Jesus kam. Die anderen Jünger sagten zu ihm: Wir haben den Herrn gesehen. Er entgegnete ihnen: Wenn ich nicht die Male der Nägel an seinen Händen sehe und wenn ich meinen Finger nicht in die Male der Nägel und meine Hand nicht in seine Seite lege, glaube ich nicht. Acht Tage darauf waren seine Jünger wieder versammelt, und Thomas war dabei. Die Türen waren verschlossen. Da kam Jesus, trat in ihre Mitte und sagte: Friede sei mit euch! Dann sagte er zu Thomas: Streck deinen Finger aus - hier sind meine Hände! Streck deine Hand aus und leg sie in meine Seite, und sei nicht ungläubig, sondern gläubig! Thomas antwortete ihm: Mein Herr und mein Gott! Jesus sagte zu ihm: Weil du mich gesehen hast, glaubst du. Selig sind, die nicht sehen und doch glauben. Noch viele andere Zeichen, die in diesem Buch nicht aufgeschrieben sind, hat Jesus vor den Augen seiner Jünger getan. Diese aber sind aufgeschrieben, damit ihr glaubt, dass Jesus der Messias ist, der Sohn Gottes, und damit ihr durch den Glauben das Leben habt in seinem Namen.

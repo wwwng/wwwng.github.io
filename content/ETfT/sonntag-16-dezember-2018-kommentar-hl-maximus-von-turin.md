@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 16 Dezember 2018 : Kommentar Hl. Maximus von Turin'
+date: 2018-12-15T17:44:00.001+01:00
+draft: false
+url: /2018/12/sonntag-16-dezember-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Johannes hat nicht nur zu seiner Zeit gesprochen, als er den Pharisäern den Herrn verkündet hat, wenn er sagte: „Bereitet den Weg des Herrn! Macht gerade seine Straßen!“ (Mt 3,3). Heute erschallt sein Ruf in uns, und der Donner seiner Stimme erschüttert die Wüste unserer Sünden \[…\] Seine Stimme hallt noch heute wider und ruft: „Bereitet den Weg des Herrn! Macht gerade seine Straßen!“ \[…\] Er fordert uns auf, den Weg für den Herrn vorzubereiten – nicht dadurch, dass wir eine Straße bauen - sondern durch die Reinheit unseres Glaubens. Der Herr ergreift nicht die Wege dieser Erde, vielmehr dringt er bis in die Tiefe des Herzens vor. Wenn dieser Weg irgendetwas Rohes in den Sitten, etwas Hartes in unserer Grobheit, etwas Schmutziges in unserem Verhalten aufweist, so sollen wir es reinigen, begradigen, einebnen. So wird der Herr bei seinem Kommen, anstatt zu stolpern, einen Weg vorfinden, der von Keuschheit geprägt ist, durch den Glauben geebnet ist und mit unseren Almosen geschmückt wurde. Der Herr hat die Gewohnheit, auf einem solchen Weg voranzuschreiten, denn der Prophet sagt: „\[…\] bringet seinem Namen ein Loblied; bereitet dem Bahn, der heraufzieht über den Sonnenuntergang! Herr ist sein Name!“ (Ps 68(67),5 Vulg.). \[…\] Johannes selbst hat seinen Weg für das Kommen Christi in vollkommener Weise verfolgt und geordnet, denn er war in allem bescheiden, demütig, arm und jungfräulich. „Johannes trug ein Gewand aus Kamelhaaren und einen ledernen Gürtel um seine Hüften; Heuschrecken und wilder Honig waren seine Nahrung“ (Mt 3,4). Was ist ein größeres Zeichen der Demut, als die Verachtung weicher Kleider, anstelle derer man sich mit rauem Fell kleidet? Was ist ein tieferes Zeichen des Glaubens, als immer mit gegürteten Hüften bereit zu sein für die Pflichten des Dienstes? Welches Zeichen des Verzichts wäre strahlender, als sich von Heuschrecken zu ernähren und von wildem Honig?

@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 6. April : Origenes'
+date: 2022-04-06T09:49:00.001+02:00
+draft: false
+url: /2022/04/mittwoch-6-april-origenes.html
+---
+
+„Ich bin der HERR, dein Gott, der dich aus dem Land Ägypten geführt hat, aus dem Sklavenhaus“ (Ex 20,2). Diese Worte richten sich nicht nur an diejenigen, die einst aus Ägypten auszogen; noch mehr gelten sie dir, der du sie jetzt hörst, falls du überhaupt aus Ägypten ausziehst. \[…\] Überlege: Sind nicht die Dinge dieser Welt und die Werke des Fleisches dieses Sklavenhaus? Und sind andererseits die Flucht vor den Dingen dieser Welt und das gottgefällige Leben nicht das Haus der Freiheit? Sagt doch der Herr im Evangelium: „Wenn ihr in meinem Wort bleibt, werdet ihr die Wahrheit erkennen und die Wahrheit wird euch befreien“ (vgl. Joh 8,31–32). Ja, Ägypten ist das Sklavenhaus, Jerusalem und Judäa das Haus der Freiheit. Höre, was der Apostel Paulus dazu sagt \[…\]: „Das himmlische Jerusalem aber ist frei, und dieses Jerusalem ist unsere Mutter“ (Gal 4,26). Und wie Ägypten, diese irdische Provinz, von den Kindern Israels „Sklavenhaus“ genannt wird im Hinblick auf Jerusalem und Judäa, die für sie zum „Haus der Freiheit“ werden, so ist angesichts des himmlischen Jerusalem, das gewissermaßen die Mutter der Freiheit ist, die ganze Welt und alles, was zu ihr gehört, ein Sklavenhaus. Zur Strafe für die Sünde hatte es einst einen Übergang vom Paradies der Freiheit in die Sklaverei der Welt gegeben. Daher betrifft das erste Wort, das die Gebote Gottes einleitet, die Freiheit: „Ich bin der HERR, dein Gott, der dich aus dem Land Ägypten geführt hat, aus dem Sklavenhaus.“

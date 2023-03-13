@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 13 Dezember 2020 : Kommentar Hl. Augustinus'
+date: 2020-12-12T18:13:00.001+01:00
+draft: false
+url: /2020/12/sonntag-13-dezember-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Aber als was kam er? Als Mensch erschien er. Weil er also so Mensch war, dass in ihm die Gottheit verborgen war, so wurde vor ihm her ein großer Mensch gesandt, durch dessen Zeugnis er als mehr erfunden würde denn als Mensch. \[…\] Wie beschaffen war der, welcher Zeugnis geben sollte vom Licht? Etwas Großes war dieser Johannes, hervorragend durch Verdienste, groß an Gnade, groß an Würde! Bewundere ihn, bewundere ihn ganz und gar, aber als einen Berg. Ein Berg aber ist in der Finsternis, wenn er nicht vom Licht bestrahlt wird. Also bewundere Johannes so, dass du auch hörst, was folgt: „Er war nicht das Licht“, damit du nicht, indem du den Berg für das Licht hältst, Schiffbruch am Berg leidest, keinen Trost findest. Doch was sollst du bewundern? Den Berg als Berg. Erhebe dich aber zu dem, der den Berg erleuchtet, der deshalb emporragt, damit er zuerst die Strahlen empfange und deinen Augen melde. \[…\] Denn auch unsere Augen werden Lichter genannt, und doch, wenn nicht entweder während der Nacht eine Lampe angezündet wird oder am Tag die Sonne scheint, sind jene Lichter vergeblich offen. So war auch Johannes ein Licht, aber nicht das wahre Licht, weil er, wenn er nicht erleuchtet worden wäre, Finsternis wäre, aber durch Erleuchtung ist er ein Licht geworden. \[…\] Wo aber ist das Licht selbst? „Das wahre Licht, das jeden Menschen erleuchtet, kam in die Welt“ (Joh 1,9). Wenn jeden Menschen, der kommt, dann auch den Johannes. Er selbst also erleuchtete den, von welchem er gezeigt werden wollte. \[…\] Er kam nämlich zu den matten Geistern, zu den kranken Herzen, zu dem geschwächten Auge der Seele. \[…\] So also waren alle jene, zu denen Christus gekommen war, noch nicht ganz fähig, ihn zu sehen; er bestrahlte den Johannes, und durch ihn, der bekannte, dass er bestrahlt und erleuchtet sei, selbst aber nicht bestrahle und erleuchte, wurde jener erkannt, welcher erleuchtet, wurde jener erkannt, welcher erhellt, wurde jener erkannt, welcher erfüllt.

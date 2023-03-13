@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 24 Juli 2020 : Kommentar Hl. Johannes Paul II.'
+date: 2020-07-23T18:13:00.001+02:00
+draft: false
+url: /2020/07/freitag-24-juli-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wenn Europa sich selbst treu bleiben will, muss es alle lebendigen Kräfte dieses Kontinentes vereinen, indem es den eigentümlichen Charakter jeder Region berücksichtigt, aber auch in seinen Wurzeln einen gemeinsamen Geist findet. Die Mitgliedsstaaten Ihres Rates sind sich bewusst, dass sie nicht das ganze Europa darstellen; durch den Ausdruck meines innigen Wunsches, die begonnene Zusammenarbeit mit den anderen Völkern, insbesondere derjenigen Mittel- und Osteuropas, vertieft zu sehen, habe ich das Empfinden dem Wunsche vieler Millionen Männer und Frauen entgegenzukommen, die auf ein den Möglichkeiten dieses Kontinentes angemessenes Leben in Einheit und Solidarität hoffen. Über Jahrhunderte hinweg hat Europa eine beträchtliche Rolle in den anderen Teilen der Welt gespielt. Man muss jedoch einräumen, dass es bei seiner Begegnung mit anderen Kulturen sich nicht immer von seiner besten Seite gezeigt hat, niemand kann jedoch bestreiten, dass es auf eine glückliche Art und Weise viele seiner langsam herangereiften Werte mit den anderen geteilt hat. Seine Söhne haben bei der Verbreitung der christlichen Botschaft eine wesentliche Rolle gespielt. Wenn Europa heute eine Rolle zu spielen gedenkt, muss es in Einheit sein Unternehmen klar auf den menschlichsten und großzügigsten Teil seines Erbes begründen. \[…\] Indern ich heute vor die erste in der Welt bestehende internationale parlamentarische Versammlung komme, bin ich mir bewusst, dass ich mich an berufene Volksvertreter wende, die in der Treue zu ihren Lebensquellen sich zusammenschließen wollten, um ihre Einheit zu festigen und sich den anderen Völkern aller Kontinente in der Achtung der menschlichen Wahrheit zu erschließen. ich kann bezeugen, dass die Christen bereit sind, bei den Aufgaben Ihrer Institutionen aktiv mitzuarbeiten. Ich wünsche diesem Ihrem Rat eine fruchtbare Arbeit, um die Seele Europas stets lebendiger und weitherziger zu gestalten.

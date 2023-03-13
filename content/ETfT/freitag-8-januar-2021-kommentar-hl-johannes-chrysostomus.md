@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 8 Januar 2021 : Kommentar Hl. Johannes Chrysostomus'
+date: 2021-01-07T18:13:00.001+01:00
+draft: false
+url: /2021/01/freitag-8-januar-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Noch etwas anderes ersehen wir aus dem Bericht \[der Brotvermehrung\], nämlich, welchen Eifer die Jünger für das Notwendige zeigten, und wie wenig sie an Nahrung dachten. Denn obgleich sie zwölf waren, hatten sie doch bloß fünf Brote und zwei Fische. So nebensächlich waren ihnen die leiblichen Bedürfnisse, und so sehr war ihre ganze Aufmerksamkeit nur auf das Geistige gerichtet. Ja selbst an dem Wenigen hingen sie nicht, sondern gaben auch das her, als man sie darum bat. Daraus sollen wir die Lehre ziehen, auch unseren geringen Besitz mit den Armen zu teilen. Als ihnen der Herr befahl, die fünf Brote herbeizubringen, da sagten sie nicht: Und womit werden wir uns nähren? Womit werden wir unseren Hunger stillen? Nein, sie gehorchten ohne Zögern. \[…\] Der Herr nahm also die Brote, brach sie und verteilte sie durch seine Jünger, wodurch er auch diese ehrte. Aber nicht bloß ehren wollte er sie; er tat es auch in der Absicht, dass, wenn das Wunder geschähe, sie nicht ungläubig blieben, und, wenn es geschehen und vorüber wäre, sie es nicht vergäßen, indem ja das, was sie in Händen hielten, ihnen zum Zeugnis diente. \[…\] Er lässt durch sie das Volk einladen, sich zu setzen, und nimmt mit ihrer Hilfe die Verteilung vor \[…\] damit sie eine dauernde Erinnerung an dasselbe hätten. \[…\] Also durch den Ort, sowie dadurch, dass er nicht mehr bietet als Brot und Fisch, dass er allen dasselbe gibt und allen gemeinsam verteilt, und keinem mehr zukommen lässt als dem anderen, durch all das lehrt er sie Demut, Enthaltsamkeit, Liebe, gleichmäßige Behandlung aller, sowie das Bewusstsein, dass alles gemeinsam sei.

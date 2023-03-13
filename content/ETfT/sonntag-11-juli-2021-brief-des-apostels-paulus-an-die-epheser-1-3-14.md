@@ -1,0 +1,8 @@
+---
+title: 'Sonntag, 11 Juli 2021 : Brief des Apostels Paulus an die Epheser 1,3-14.'
+date: 2021-07-11T07:27:00.003+02:00
+draft: false
+url: /2021/07/sonntag-11-juli-2021-brief-des-apostels.html
+---
+
+Gepriesen sei Gott, der Gott und Vater unseres Herrn Jesus Christus: Er hat uns mit allem Segen seines Geistes gesegnet durch unsere Gemeinschaft mit Christus im Himmel. Denn in ihm hat er uns erwählt vor der Erschaffung der Welt, damit wir heilig und untadelig leben vor Gott; Denn in ihm hat er uns erwählt vor der Erschaffung der Welt, er hat uns aus Liebe im Voraus dazu bestimmt, seine Söhne zu werden durch Jesus Christus und nach seinem gnädigen Willen zu ihm zu gelangen, zum Lob seiner herrlichen Gnade. Er hat sie uns geschenkt in seinem geliebten Sohn; durch sein Blut haben wir die Erlösung, die Vergebung der Sünden nach dem Reichtum seiner Gnade. Durch sie hat er uns mit aller Weisheit und Einsicht reich beschenkt und hat uns das Geheimnis seines Willens kundgetan, wie er es gnädig im voraus bestimmt hat: Er hat beschlossen, die Fülle der Zeiten heraufzuführen, in Christus alles zu vereinen, alles, was im Himmel und auf Erden ist. Durch ihn sind wir auch als Erben vorherbestimmt und eingesetzt nach dem Plan dessen, der alles so verwirklicht, wie er es in seinem Willen beschließt; wir sind zum Lob seiner Herrlichkeit bestimmt, die wir schon früher auf Christus gehofft haben. Durch ihn habt auch ihr das Wort der Wahrheit gehört, das Evangelium von eurer Rettung; durch ihn habt ihr das Siegel des verheißenen Heiligen Geistes empfangen, als ihr den Glauben annahmt. Der Geist ist der erste Anteil des Erbes, das wir erhalten sollen, der Erlösung, durch die wir Gottes Eigentum werden, zum Lob seiner Herrlichkeit.

@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 15 Dezember 2019 : Aus dem Heiligen Evangelium nach Matthäus - Mt 11,2-11.'
+date: 2019-12-14T17:46:00.003+01:00
+draft: false
+url: /2019/12/sonntag-15-dezember-2019-aus-dem.html
+tags: 
+- EVANGELIUM
+---
+
+In jener Zeit hörte Johannes im Gefängnis von den Taten Christi. Da schickte er seine Jünger zu ihm und ließ ihn fragen: Bist du der, der kommen soll, oder müssen wir auf einen andern warten? Jesus antwortete ihnen: Geht und berichtet Johannes, was ihr hört und seht: Blinde sehen wieder, und Lahme gehen; Aussätzige werden rein, und Taube hören; Tote stehen auf, und den Armen wird das Evangelium verkündet. Selig ist, wer an mir keinen Anstoß nimmt. Als sie gegangen waren, begann Jesus zu der Menge über Johannes zu reden; er sagte: Was habt ihr denn sehen wollen, als ihr in die Wüste hinausgegangen seid? Ein Schilfrohr, das im Wind schwankt? Oder was habt ihr sehen wollen, als ihr hinausgegangen seid? Einen Mann in feiner Kleidung? Leute, die fein gekleidet sind, findet man in den Palästen der Könige. Oder wozu seid ihr hinausgegangen? Um einen Propheten zu sehen? Ja, ich sage euch: Ihr habt sogar mehr gesehen als einen Propheten. Er ist der, von dem es in der Schrift heißt: Ich sende meinen Boten vor dir her; er soll den Weg für dich bahnen. Amen, das sage ich euch: Unter allen Menschen hat es keinen größeren gegeben als Johannes den Täufer; doch der Kleinste im Himmelreich ist größer als er.

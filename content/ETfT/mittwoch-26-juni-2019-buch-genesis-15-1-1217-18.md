@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 26 Juni 2019 : Buch Genesis 15,1-12.17-18.'
+date: 2019-06-25T17:45:00.003+02:00
+draft: false
+url: /2019/06/mittwoch-26-juni-2019-buch-genesis-151.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen erging das Wort des Herrn in einer Vision an Abram: Fürchte dich nicht, Abram, ich bin dein Schild; dein Lohn wird sehr groß sein. Abram antwortete: Herr, mein Herr, was willst du mir schon geben? Ich gehe doch kinderlos dahin, und Erbe meines Hauses ist Eliëser aus Damaskus. Und Abram sagte: Du hast mir ja keine Nachkommen gegeben; also wird mich mein Haussklave beerben. Da erging das Wort des Herrn an ihn: Nicht er wird dich beerben, sondern dein leiblicher Sohn wird dein Erbe sein. Er führte ihn hinaus und sprach: Sieh doch zum Himmel hinauf, und zähl die Sterne, wenn du sie zählen kannst. Und er sprach zu ihm: So zahlreich werden deine Nachkommen sein. Abram glaubte dem Herrn, und der Herr rechnete es ihm als Gerechtigkeit an. Er sprach zu ihm: Ich bin der Herr, der dich aus Ur in Chaldäa herausgeführt hat, um dir dieses Land zu eigen zu geben. Da sagte Abram: Herr, mein Herr, woran soll ich erkennen, dass ich es zu eigen bekomme? Der Herr antwortete ihm: Hol mir ein dreijähriges Rind, eine dreijährige Ziege, einen dreijährigen Widder, eine Turteltaube und eine Haustaube! Abram brachte ihm alle diese Tiere, zerteilte sie und legte je eine Hälfte der andern gegenüber; die Vögel aber zerteilte er nicht. Da stießen Raubvögel auf die Fleischstücke herab, doch Abram verscheuchte sie. Bei Sonnenuntergang fiel auf Abram ein tiefer Schlaf; große, unheimliche Angst überfiel ihn. Die Sonne war untergegangen, und es war dunkel geworden. Auf einmal waren ein rauchender Ofen und eine lodernde Fackel da; sie fuhren zwischen jenen Fleischstücken hindurch. An diesem Tag schloss der Herr mit Abram folgenden Bund: Deinen Nachkommen gebe ich dieses Land vom Grenzbach Ägyptens bis zum großen Strom Eufrat.

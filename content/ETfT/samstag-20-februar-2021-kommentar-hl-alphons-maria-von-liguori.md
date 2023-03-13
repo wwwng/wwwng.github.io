@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 20 Februar 2021 : Kommentar Hl. Alphons-Maria von Liguori'
+date: 2021-02-19T18:13:00.001+01:00
+draft: false
+url: /2021/02/samstag-20-februar-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wollen Sie diesem Gott, der Sie liebt, ein Zeichen des innigen Vertrauens geben, das ihn sehr berühren wird? Wenn Sie einen Fehler machen, zögern Sie nicht, sofort zu ihm zu laufen, sich ihm zu Füßen zu werfen und ihn um Vergebung zu bitten. Begreifen Sie es gut: Gott ist so sehr geneigt zu vergeben, dass er, wenn die Sünder darauf beharren, fern von ihm und des Gnadenlebens beraubt zu leben, über ihre Verlorenheit seufzt und sie diese Rufe seiner Zärtlichkeit hören lässt: „Warum wollt ihr sterben, ihr vom Haus Israel? Kehrt um, damit ihr am Leben bleibt“ (vgl. Ez 18,31–32). Er verspricht, die fliehende Seele aufzunehmen, sobald sie kommt, um sich in seine Arme zu werfen: „Kehrt um zu mir \[…\], dann kehre ich um zu euch“ (Sach 1,3). O, wenn die armen Sünder doch verstehen würden, mit welcher Güte unser Herr sie erwartet, um ihnen zu vergeben! „Der Herr wartet darauf, euch seine Gnade zu zeigen“ (vgl. Jes 30,18). Wenn sie nur verstehen würden, dass er es eilig hat, nicht um sie zu züchtigen, sondern sie umkehren zu sehen, damit er sie in seine Arme schließen und sie an sein Herz drücken kann! Hören wir seine feierliche Erklärung: „So wahr ich lebe – Spruch Gottes, des Herrn –, ich habe kein Gefallen am Tod des Schuldigen, sondern daran, dass er auf seinem Weg umkehrt und am Leben bleibt“ (Ez 33,11). \[…\] Schließlich hat Gott in aller Form erklärt, dass er sogar – wenn eine Seele bereut, ihn beleidigt zu haben – die Erinnerung an ihre Sünden verliert: „All seiner Vergehen will ich nicht mehr gedenken“ (vgl. Ez 18,22). Also, sobald Sie einen Fehler begangen haben, erheben Sie ihre Augen zu Gott, schenken Sie ihm einen Liebesakt, und rechnen Sie, indem Sie ihre Sünde bekennen, fest mit seiner Vergebung.

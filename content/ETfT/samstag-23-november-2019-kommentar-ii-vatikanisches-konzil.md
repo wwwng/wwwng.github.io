@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 23 November 2019 : Kommentar II. Vatikanisches Konzil'
+date: 2019-11-22T17:44:00.001+01:00
+draft: false
+url: /2019/11/samstag-23-november-2019-kommentar-ii.html
+tags: 
+- MEDITATIO
+---
+
+Angesichts des Todes wird das Rätsel des menschlichen Daseins am größten. Der Mensch erfährt nicht nur den Schmerz und den fortschreitenden Abbau des Leibes, sondern auch, ja noch mehr die Furcht vor immerwährendem Verlöschen. Er urteilt aber im Instinkt seines Herzens richtig, wenn er die völlige Zerstörung und den endgültigen Untergang seiner Person mit Entsetzen ablehnt. Der Keim der Ewigkeit im Menschen lässt sich nicht auf die bloße Materie zurückführen und wehrt sich gegen den Tod. Alle Maßnahmen der Technik, so nützlich sie sind, können aber die Angst des Menschen nicht beschwichtigen. Die Verlängerung der biologischen Lebensdauer kann jenem Verlangen nach einem weiteren Leben nicht genügen, das unüberwindlich in seinem Herzen lebt. Während vor dem Tod alle Träume nichtig werden, bekennt die Kirche, belehrt von der Offenbarung Gottes, dass der Mensch von Gott zu einem seligen Ziel jenseits des irdischen Elends geschaffen ist. Außerdem lehrt der christliche Glaube, dass der leibliche Tod, dem der Mensch, hätte er nicht gesündigt, entzogen gewesen wäre, besiegt wird, wenn dem Menschen sein Heil, das durch seine Schuld verlorenging, vom allmächtigen und barmherzigen Erlöser wiedergeschenkt wird. Gott rief und ruft nämlich den Menschen, dass er ihm in der ewigen Gemeinschaft unzerstörbaren göttlichen Lebens mit seinem ganzen Wesen anhange. Diesen Sieg hat Christus, da er den Menschen durch seinen Tod vom Tod befreite, in seiner Auferstehung zum Leben errungen. Jedem also, der ernsthaft nachdenkt, bietet daher der Glaube, mit stichhaltiger Begründung vorgelegt, eine Antwort auf seine Angst vor der Zukunft an; und zugleich zeigt er die Möglichkeit, mit den geliebten Brüdern, die schon gestorben sind, in Christus Gemeinschaft zu haben in der Hoffnung, dass sie das wahre Leben bei Gott erlangt haben.

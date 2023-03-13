@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 22 Januar 2021 : Kommentar II. Vatikanisches Konzil'
+date: 2021-01-21T18:13:00.001+01:00
+draft: false
+url: /2021/01/freitag-22-januar-2021-kommentar-ii.html
+tags: 
+- MEDITATIO
+---
+
+Der Bischof ist, mit der Fülle des Weihesakramentes ausgezeichnet, „Verwalter der Gnade des höchsten Priestertums“, vorzüglich in der Eucharistie, die er selbst darbringt oder darbringen lässt und aus der die Kirche immerfort lebt und wächst. Diese Kirche Christi ist wahrhaft in allen rechtmäßigen Ortsgemeinschaften der Gläubigen anwesend, die in der Verbundenheit mit ihren Hirten im Neuen Testament auch selbst Kirchen heißen (vgl. Apg 8,1; 14,22–23; 20,17). Sie sind nämlich je an ihrem Ort, im Heiligen Geist und mit großer Zuversicht (vgl. 1 Thess 1,5), das von Gott gerufene neue Volk. In ihnen werden durch die Verkündigung der Frohbotschaft Christi die Gläubigen versammelt, in ihnen wird das Mysterium des Herrenmahls begangen, „auf dass durch Speise und Blut des Herrn die ganze Bruderschaft verbunden werde“. In jedweder Altargemeinschaft erscheint unter dem heiligen Dienstamt des Bischofs das Symbol jener Liebe und jener „Einheit des mystischen Leibes, ohne die es kein Heil geben kann“. In diesen Gemeinden, auch wenn sie oft klein und arm sind oder in der Diaspora leben, ist Christus gegenwärtig, durch dessen Kraft die eine, heilige, katholische und apostolische Kirche geeint wird. Denn „nichts anderes wirkt die Teilhabe an Leib und Blut Christi, als dass wir in das übergehen, was wir empfangen“. \[…\] So spenden die Bischöfe durch Gebet und Arbeit für das Volk vielfältige und reiche Gaben von der Fülle der Heiligkeit Christi aus. Durch den Dienst des Wortes teilen sie die Kraft Gottes den Glaubenden zum Heil mit (vgl. Röm 1,16), und durch die Sakramente, deren geregelte und fruchtbare Verwaltung sie mit ihrer Autorität ordnen, heiligen sie die Gläubigen.

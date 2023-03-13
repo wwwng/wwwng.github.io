@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 14 April 2020 : Kommentar Johannes von Karpathos'
+date: 2020-04-13T17:49:00.001+02:00
+draft: false
+url: /2020/04/dienstag-14-april-2020-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+So wie der König des Universums, dessen Reich weder Anfang noch Ende hat, ewig ist, ebenso wird die Anstrengung derer belohnt, die sich entscheiden, für ihn und für die Übung der Tugenden zu leiden. Denn die Ehren des gegenwärtigen Lebens, so groß ihr Glanz auch sein mag, verflüchtigen sich gänzlich mit diesem Leben. Aber die Ehren, die Gott denen zuteilt, die ihrer würdig sind, diese Ehren, die ohne Bestechung verliehen werden, bleiben für immer. \[…\] Es steht geschrieben: „Ich verkünde euch eine große Freude, die dem ganzen Volk zuteil werden soll“ (Lk 2,10), nicht nur einem Teil des Volkes. Und „Die ganze Erde bete dich an und singe dir“ (vgl. Ps 65(66),4 LXX). Es ist nicht die Rede von einem Teil der Erde. Und das soll es auch nicht. Singen ist nicht Sache derer, die um Hilfe rufen, sondern derer, die voller Freude sind. Wenn das aber so ist, verzweifeln wir in keiner Weise, sondern gehen freudig durch das gegenwärtige Leben und denken an die Freude und die Fröhlichkeit, die es uns bringt. Doch vermischen wir mit der Freude die Furcht Gottes, entsprechend dem Wort: „Dient dem Herrn mit Furcht und jubelt ihm zu mit Zittern! (vgl. Ps 2,11 LXX); so wie die Frauen, die sich um Maria scharten, voll Furcht und großer Freude vom Grab wegliefen (vgl. Mt 28,8). Auch wir werden eines Tages, wenn wir die Furcht mit der Freude verbinden, vom geistigen Grab weglaufen. Ich wundere mich, dass man die Furcht außer Acht lassen kann. Denn niemand ist ohne Sünde, weder Mose noch der Apostel Petrus. Bei ihnen freilich war die Liebe zu Gott die stärkste Kraft, sie hat die Furcht vertrieben (vgl. 1 Joh 4,18) zur Stunde des Exodus. \[…\] Wer will weise, klug und ein Freund Gottes genannt werden, um dem Herrn seine Seele so darzubieten, wie er sie von ihm empfangen hat: rein, unversehrt, ganz untadelig? Wer will das, um dafür im Himmel gekrönt und von den Engeln seliggepriesen zu werden?

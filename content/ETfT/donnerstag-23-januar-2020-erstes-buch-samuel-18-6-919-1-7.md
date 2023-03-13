@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 23 Januar 2020 : Erstes Buch Samuel 18,6-9.19,1-7.'
+date: 2020-01-22T17:55:00.001+01:00
+draft: false
+url: /2020/01/donnerstag-23-januar-2020-erstes-buch.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen als die Israeliten nach Davids Sieg über den Philister heimkehrten, zogen die Frauen aus allen Städten Israels König Saul singend und tanzend mit Handpauken, Freudenrufen und Zimbeln entgegen. Die Frauen spielten und riefen voll Freude: Saul hat Tausend erschlagen, David aber Zehntausend. Saul wurde darüber sehr zornig. Das Lied missfiel ihm, und er sagte: David geben sie Zehntausend, mir aber geben sie nur Tausend. Jetzt fehlt ihm nur noch die Königswürde. Von diesem Tag an war Saul gegen David voll Argwohn. Saul redete vor seinem Sohn Jonatan und vor allen seinen Dienern davon, dass er David töten wolle. Sauls Sohn Jonatan aber hatte David sehr gern; deshalb berichtete er David davon und sagte: Mein Vater Saul will dich töten. Nimm dich also morgen früh in acht, verbirg dich in einem Versteck! Ich aber will zusammen mit meinem Vater auf das Feld hinausgehen; dort, wo du dich versteckt hältst, werde ich stehenbleiben und mit meinem Vater über dich reden, und wenn ich etwas erfahre, werde ich dir Bescheid geben. Jonatan redete also zugunsten Davids mit seinem Vater und sagte zu ihm: Der König möge sich doch nicht an seinem Knecht David versündigen; denn er hat sich ja auch nicht an dir versündigt, und seine Taten sind für dich sehr nützlich gewesen. Er hat sein Leben aufs Spiel gesetzt und den Philister erschlagen. Der Herr hat durch ihn ganz Israel viel Hilfe gebracht. Du hast es selbst gesehen und dich darüber gefreut. Warum willst du dich nun versündigen und unschuldiges Blut vergießen, indem du David ohne jeden Grund tötest? Saul hörte auf Jonatan und schwor: So wahr der Herr lebt: David soll nicht umgebracht werden. Jonatan rief David und berichtete ihm alles. Dann führte Jonatan David zu Saul, und David war wieder in Sauls Dienst wie vorher.

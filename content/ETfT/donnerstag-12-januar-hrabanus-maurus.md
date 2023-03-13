@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 12. Januar : Hrabanus Maurus'
+date: 2023-01-12T08:23:00.001+01:00
+draft: false
+url: /2023/01/donnerstag-12-januar-hrabanus-maurus.html
+---
+
+Es soll dir nicht an Vertrauen auf Gott mangeln, und du sollst auch nicht an seiner Barmherzigkeit verzweifeln; ich will nicht, dass du daran zweifelst oder gar verzweifelst, besser werden zu können. Selbst wenn der Teufel dich aus hoher Tugendhaftigkeit in die Abgründe des Bösen stürzen konnte: Um wie viel mehr kann Gott dich zum Gipfel des Guten zurückrufen und dich nicht nur in den Zustand vor deinem Fall zurückversetzen, sondern dich sogar noch viel glücklicher machen, als du vorher zu sein schienst. Verliere nicht den Mut, ich flehe dich an, und verschließe deine Augen nicht vor der Hoffnung auf das Gute, damit es dir nicht so ergeht wie denen, die Gott nicht lieben; denn nicht die große Zahl der Sünden bringt die Seele zur Verzweiflung, sondern die Geringschätzung Gottes. „Es ist den Gottlosen eigen“, sagt der Weise, „wenn sie tief in Sünden versunken sind, am Heil zu verzweifeln und es geringzuschätzen“ (vgl. Spr 18,3 Vulg.). Jeder Gedanke, der uns die Hoffnung auf Umkehr nimmt, entspringt also einem Mangel an Glauben: Wie ein schwerer Stein, der an unserem Hals hängt, zwingt er uns, immer nach unten, zur Erde zu schauen, und lässt uns nicht die Augen zum Herrn erheben. Wer aber ein mutiges Herz und einen erleuchteten Geist hat, der kann sich von diesem schrecklichen Gewicht befreien. „Wie die Augen der Knechte auf die Hand ihres Herrn, wie die Augen der Magd auf die Hand ihrer Herrin, so schauen unsre Augen auf den Herrn, unsern Gott, bis er uns gnädig ist“ (Ps 123,2–3).

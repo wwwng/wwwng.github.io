@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 9 August 2019 : Deuteronomium 4,32-40.'
+date: 2019-08-08T17:47:00.001+02:00
+draft: false
+url: /2019/08/freitag-9-august-2019-deuteronomium-432.html
+tags: 
+- LECTIO
+---
+
+Mose sprach zum Volk; er sagte: Forsche doch einmal in früheren Zeiten nach, die vor dir gewesen sind, seit dem Tag, als Gott den Menschen auf der Erde schuf; forsche nach vom einen Ende des Himmels bis zum andern Ende: Hat sich je etwas so Großes ereignet wie dieses, und hat man je solche Worte gehört? Hat je ein Volk einen Gott mitten aus dem Feuer im Donner sprechen hören, wie du ihn gehört hast, und ist am Leben geblieben? Oder hat je ein Gott es ebenso versucht, zu einer Nation zu kommen und sie mitten aus einer anderen herauszuholen unter Prüfungen, unter Zeichen, Wundern und Krieg, mit starker Hand und hoch erhobenem Arm und unter großen Schrecken, wie es der Herr, euer Gott, in Ägypten mit euch getan hat, vor deinen Augen? Das hast du sehen dürfen, damit du erkennst: Jahwe ist der Gott, kein anderer ist außer ihm. Vom Himmel herab ließ er dich seinen Donner hören, um dich zu erziehen. Auf der Erde ließ er dich sein großes Feuer sehen, und mitten aus dem Feuer hast du seine Worte gehört. Weil er deine Väter liebgewonnen hatte, hat er alle Nachkommen eines jeden von ihnen erwählt und dich dann in eigener Person durch seine große Kraft aus Ägypten geführt, um bei deinem Angriff Völker zu vertreiben, die größer und mächtiger sind als du, um dich in ihr Land zu führen und es dir als Erbbesitz zu geben, wie es jetzt geschieht. Heute sollst du erkennen und dir zu Herzen nehmen: Jahwe ist der Gott im Himmel droben und auf der Erde unten, keiner sonst. Daher sollst du auf seine Gesetze und seine Gebote, auf die ich dich heute verpflichte, achten, damit es dir und später deinen Nachkommen gut geht und du lange lebst in dem Land, das der Herr, dein Gott, dir gibt für alle Zeit.

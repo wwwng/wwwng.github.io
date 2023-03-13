@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 9 Februar 2022 : Kommentar Johannes Cassianus'
+date: 2022-02-09T09:11:00.001+01:00
+draft: false
+url: /2022/02/mittwoch-9-februar-2022-kommentar.html
+---
+
+Wenn ihr zu wahrer Erkenntnis der Heiligen Schrift kommen wollt, bemüht euch zuerst, eine unerschütterliche Demut des Herzens zu erlangen. Sie ist es, die euch nicht zu der Wissenschaft führt, die aufbläht, sondern zu jener, die erleuchtet, indem sie sich in Liebe verzehrt. Es ist unmöglich für eine Seele, die nicht rein ist, die Gabe geistlicher Erkenntnis zu erhalten. \[…\] Wer keine reine Seele hat, kann die geistliche Erkenntnis nicht erlangen, auch wenn er noch so fleißig liest. Einem stinkenden und verdorbenen Gefäß vertraut man kein edles Duftöl, keinen hervorragenden Honig und keinen kostbaren Likör an. Ein Gefäß, das von abstoßenden Gerüchen durchdrungen ist, wird leichter auch das köstlichste Duftöl verseuchen, als dass es selbst etwas Süßes oder Angenehmes davon annimmt. Denn das Reine wird schneller verdorben als das Verdorbene gereinigt wird. So ist es auch mit dem Gefäß unsres Herzens: Bevor es nicht von der ekelhaften Ansteckung der Laster gänzlich gereinigt ist, wird es nicht gewürdigt werden, den Wohlgeruch des Segens zu empfangen, von dem der Prophet spricht: „Das ist wie köstliches Salböl, das vom Kopf hinabfließt auf den Bart, auf Aarons Bart, das auf sein Gewand hinabfließt“ (Ps 133(132),2); noch wird es die geistliche Erkenntnis oder die Worte der Heiligen Schrift unbefleckt bewahren, „die süßer sind als Honig, als Honig aus Waben“ (vgl. Ps 19(18),11). „Was haben denn Gerechtigkeit und Gesetzwidrigkeit miteinander zu tun? Was haben Licht und Finsternis gemeinsam? Was für ein Einklang herrscht zwischen Christus und Beliar?“ (2 Kor 6,14–15).

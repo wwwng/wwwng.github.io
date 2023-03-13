@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 4 Februar 2020 : Zweites Buch Samuel 18,6.9-10.14b.24-25ab.30-32.19,1-3.'
+date: 2020-02-03T17:56:00.001+01:00
+draft: false
+url: /2020/02/dienstag-4-februar-2020-zweites-buch.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen zogen die Leute Davids ins Feld, den Israeliten entgegen, und im Wald Efraim kam es zur Schlacht. Plötzlich kam Abschalom in das Blickfeld der Krieger Davids; er ritt auf einem Maultier. Als das Maultier unter den Ästen einer großen Eiche hindurchlief, blieb Abschalom mit dem Kopf fest an der Eiche hängen, so dass er zwischen Himmel und Erde schwebte und das Maultier unter ihm weglief. Jemand sah es und meldete Joab: Ich habe gerade Abschalom an einer Eiche hängen sehen. Joab erwiderte: Ich kann mich nicht noch länger mit dir aufhalten. Und er nahm drei Spieße in die Hand und stieß sie Abschalom, der noch lebend an der Eiche hing, ins Herz. David saß zwischen den beiden Toren. Der Späher aber war auf das Dach des Tores, auf die Mauer, gestiegen, und als er Ausschau hielt, sah er einen einzelnen Mann herbeilaufen. Der König befahl: Tritt zur Seite, und stell dich hierher! Ahimaaz trat zur Seite und blieb dort stehen. Da kam auch der Kuschiter und sagte: Mein Herr, der König, lasse sich die gute Nachricht bringen, dass der Herr dir heute Recht verschafft hat gegenüber allen, die sich gegen dich erhoben hatten. Der König fragte den Kuschiter: Geht es dem Jungen, Abschalom, gut? Der Kuschiter antwortete: Wie dem jungen Mann möge es allen Feinden meines Herrn, des Königs, ergehen, allen, die sich in böser Absicht gegen dich erhoben haben. Da zuckte der König zusammen, stieg in den oberen Raum des Tores hinauf und weinte. Während er hinaufging, rief er (immer wieder): Mein Sohn Abschalom, mein Sohn, mein Sohn Abschalom! Wäre ich doch an deiner Stelle gestorben, Abschalom, mein Sohn, mein Sohn! Man meldete Joab: Der König weint und trauert um Abschalom. So wurde der Tag der Rettung für das ganze Volk zu einem Trauertag; denn die Leute hörten an diesem Tag: Der König ist voll Schmerz wegen seines Sohnes.

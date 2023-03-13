@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 23 Januar 2020 : Kommentar Hl. Bernhard'
+date: 2020-01-22T17:56:00.001+01:00
+draft: false
+url: /2020/01/donnerstag-23-januar-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Folgt dem Beispiel unseres Erlösers, der seine Passion erleiden wollte, um das Mitleid zu lernen, der sich dem Elend unterwerfen wollte, um die Elenden zu verstehen. So wie er „durch das, was er gelitten hat, den Gehorsam gelernt hat“ (vgl. Hebr 5,8), so hat er auch Erbarmen lernen wollen \[…\] Vielleicht werdet ihr sonderbar finden, was ich gerade von Christus gesagt habe: Er, der die Weisheit Gottes ist (vgl. 1 Kor 1,24), was könnte er gelernt haben? \[…\] Ihr erkennt an, dass er Gott und Mensch in einer Person ist. Als ewiger Gott besaß er immer die Erkenntnis aller Dinge; als Mensch, der in der Zeit geboren ist, hat er viele Dinge in der Zeit gelernt. Da er begonnen hat, in unserem Fleisch zu sein, hat er auch begonnen, die Leiden des Fleisches zu erfahren. Für unsere Stammeltern wäre es besser und weiser gewesen, diese Erfahrung nicht gemacht zu haben. Doch ihr Schöpfer ist gekommen, „zu suchen, was verloren ist“ (vgl. Lk 19,10). Er hatte Mitleid mit seiner Schöpfung und ist gekommen, um sie wiederzufinden, indem er voll Erbarmen hinabstieg, wo sie erbärmlich zugrunde ging \[…\] Nicht einfach um ihr Unglück zu teilen, tat er das, sondern um Anteil zu haben an ihrem Elend und um sie zu befreien: Um barmherzig zu werden nicht als ein Gott in seiner ewigen Seligkeit, sondern als ein Mensch, der teilhat an der Situation der Menschen \[…\] Welch wunderbare Logik der Liebe! Wie hätten wir sonst diese bewundernswerte Barmherzigkeit erkennen sollen, wenn sie sich nicht über das herrschende Elend gebeugt hätte? Wie hätten wir sonst das Mitleiden Gottes verstehen können, wenn es dem Leiden menschlich fremd geblieben wäre? \[…\] Mit der Barmherzigkeit Gottes hat Christus also die eines Menschen vereinigt, ohne sie zu verändern, sondern indem er sie vervielfachte, wie geschrieben steht: „Menschen und Vieh hilfst du, o Herr! Wie vielfältig ist dein Erbarmen, o Gott!“ (Ps 35(36),7–8 Vulg.).

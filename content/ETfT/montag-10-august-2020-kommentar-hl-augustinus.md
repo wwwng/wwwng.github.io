@@ -1,0 +1,10 @@
+---
+title: 'Montag, 10 August 2020 : Kommentar Hl. Augustinus'
+date: 2020-08-09T18:13:00.001+02:00
+draft: false
+url: /2020/08/montag-10-august-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Die glorreichen Taten der Märtyrer, die überall in der Kirche ihre Schönheit verbreiten, zeigen uns jene Wahrheit auf, die wir besungen haben: „Kostbar ist in den Augen des Herrn das Sterben seiner Frommen“ (Ps 116,15). Denn es ist tatsächlich kostbar, in unseren Augen und in den Augen dessen, für dessen Namen sie gestorben sind. Aber was all diese Tode so wertvoll macht, ist der Tod eines einzigen. Wie viele Tote hat er, der eine durch sein Sterben? Denn wenn er nicht gestorben wäre, hätte das Weizenkorn sich nicht vervielfacht. Ihr habt gehört, was er sagte, als er sich seinem Leiden, das heißt unserer Erlösung näherte: „Wenn das Weizenkorn nicht in die Erde fällt und stirbt, bleibt es allein; wenn es aber stirbt, bringt es reiche Frucht“ (Joh 12,24). \[…\] Als seine Seite durch die Lanze, die ihn traf, geöffnet wurde, strömte der Lösepreis für das ganze Universum hervor (vgl. Joh 19,34). Die Gläubigen und die Märtyrer wurden losgekauft. Doch der Glaube der Märtyrer hat sich bewährt, wie ihr Blut es bezeugt. Sie gaben Christus zurück, was er ihnen gegeben hatte, und erfüllten, was Johannes sagt: „Christus hat für uns sein Leben hingegeben. So müssen auch wir für unsere Brüder das Leben hingeben“ (vgl. 1 Joh 3,16). An anderer Stelle heißt es: „Wenn du dich an eine herrliche Tafel setzt, achte gut auf das, was man dir vorsetzt, denn du wirst Gleichwertiges zubereiten müssen“ (vgl. Spr 23,1). Was für eine herrliche Tafel ist es, an der sich der Hausherr selbst zur Nahrung gibt! Er ist der Gastgeber, der einlädt, und er ist selbst die Speise und der Trank. Die Märtyrer achteten also darauf, was sie aßen und tranken, um gleichermaßen zurückgeben zu können. Doch wie hätten sie gleichermaßen zurückgeben können, wenn nicht derjenige, der sie zuerst mit seinen Gaben erfüllte, ihnen geschenkt hätte, was sie ihm geben könnten? Das also sagt uns der Psalm, den wir gesungen haben: „Kostbar ist in den Augen des Herrn das Sterben seiner Frommen.“

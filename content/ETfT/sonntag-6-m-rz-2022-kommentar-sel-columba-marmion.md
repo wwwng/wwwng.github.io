@@ -1,0 +1,8 @@
+---
+title: 'Sonntag, 6 März 2022 : Kommentar Sel. Columba Marmion'
+date: 2022-03-06T09:11:00.001+01:00
+draft: false
+url: /2022/03/sonntag-6-marz-2022-kommentar-sel.html
+---
+
+Ist denn die Versuchung nicht eine Gefahr für die Seele? Wäre es deshalb nicht bei weitem besser, überhaupt niemals versucht zu werden? Wir wären von uns aus geneigt, den zu beneiden, der niemals Versuchungen erleiden würde. Glücklich der Mensch, würden wir gern sagen, der nie solche Angriffe zu erleiden hatte! So urteilt vielleicht unsere menschliche Weisheit! Aber Gott, der die unfehlbare Wahrheit, die Quelle unserer Vollkommenheit und ewigen Glückseligkeit ist, sagt uns das Gegenteil! „Selig der Mann, der Anfechtungen leidet“ (Jak 1,12). Warum nennt der Heilige Geist diesen Mann „glücklich“, während wir dazu neigen, das Gegenteil zu denken? \[…\] Etwa der Versuchung selber wegen? Gewiss nicht, sondern darum, weil Gott sich ihrer bedient, um einen Beweis unserer Treue zu erhalten; unsere Treue, gestützt von der Gnade, stärkt und offenbart sich im Kampf, und die Krone des Lebens ist schließlich dem Siegel verliehen. „Wer bewährt ist, wird die Krone des Lebens gewinnen“ (Jak 1,12). Die geduldig ertragene Versuchung ist für die Seele eine Quelle von Verdiensten und für Gott glorreich; denn durch ihre Standhaftigkeit in der Prüfung ist die Seele ein lebendiges Zeugnis der Kraft der göttlichen Gnade. „Es genügt dir meine Gnade; denn die Kraft wird in der Schwachheit vollkommen“ (2 Kor 12,9). Gott erwartet von uns diese Ehre und diesen Ruhm. \[…\] Jesus Christus ist mit uns, ist in uns, und wer ist stärker als er?

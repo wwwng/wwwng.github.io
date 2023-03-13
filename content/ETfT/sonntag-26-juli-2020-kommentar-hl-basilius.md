@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 26 Juli 2020 : Kommentar Hl. Basilius'
+date: 2020-07-25T18:13:00.001+02:00
+draft: false
+url: /2020/07/sonntag-26-juli-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Da unser Herr Jesus Christus nach wiederholter und durch mehrere Taten bekräftigter Aufforderung zu allen sagt: „Wenn jemand zu mir kommen will, so verleugne er sich selbst und nehme sein Kreuz auf sich und folge mir nach“ (vgl. Mt 16,24) \[…\] Und anderswo fügt er zu den Worten: „Wenn du vollkommen werden willst“ erst dann hinzu: „Komm und folge mir nach“, nachdem er vorhergesagt hat: „Gehe hin, verkaufe alles, was du hast, und gib es den Armen“ (vgl. Mt 19,21). Auch das Gleichnis von dem Kaufmann weist, wie jeder Vernünftige leicht begreift, ebendahin. „Denn das Himmelreich“, sagt er, „ist gleich einem Kaufmann, der gute Perlen sucht. Wenn er eine kostbare Perle gefunden hat, geht er hin, verkauft alles, was er hat, und kauft sie“ (vgl. Mt 13,45–46). Denn offenbar bezeichnet die kostbare Perle gleichnisweise das Himmelreich, welches wir, wie die Worte des Herrn zeigen, unmöglich erlangen können, wenn wir nicht zugleich alles, was wir haben, Reichtum, Ehre, hohe Geburt und was es sonst noch gibt, wonach die Menschen streben, aufgeben, um es gegen jenes einzutauschen. Dass es ferner auch unmöglich sei, wenn das Gemüt von verschiedenen Sorgen zerrissen ist, das, wonach man strebt, auf die rechte Weise zu tun, zeigt der Herr in den Worten: „Niemand kann zwei Herren dienen“ (Mt 6,24). \[…\] Daher müssen wir einzig und allein den himmlischen Schatz wählen, um bei ihm das Herz zu haben. „Denn wo dein Schatz ist“, heißt es, „da ist auch dein Herz“ (Mt 6,21). \[…\] Diese Freiheit \[losgelöst sein von allem Irdischen\], um es mit einem Wort zu sagen, ist eine Versetzung des menschlichen Herzens in den Himmel, sodass wir sagen können: „Unser Wandel aber ist im Himmel“ (Phil 3,20 Vulg.). Ja sie ist, was das Größte ist, der Anfang der Gleichförmigkeit mit Christus, der unseretwegen arm wurde, da er reich war (vgl. 2 Kor 8,9).

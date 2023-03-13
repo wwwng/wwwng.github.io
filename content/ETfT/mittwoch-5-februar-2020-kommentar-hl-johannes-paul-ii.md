@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 5 Februar 2020 : Kommentar Hl. Johannes Paul II.'
+date: 2020-02-04T17:46:00.001+01:00
+draft: false
+url: /2020/02/mittwoch-5-februar-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Alltäglicher Ausdruck dieser Liebe im Leben der Familie von Nazareth ist die Arbeit. \[…\] Er, der als der „Sohn des Zimmermanns“ galt, hatte von seinem vermeintlichen „Vater“ das Handwerk gelernt. Wenn die Familie von Nazareth in der Ordnung des Heils und der Heiligkeit das Beispiel und Vorbild für die menschlichen Familien ist, so gilt das analog auch für die Arbeit Jesu an der Seite des Zimmermanns Josef. \[…\] Die menschliche Arbeit und im Besonderen die manuelle Arbeit finden im Evangelium besonderen Nachdruck. Zusammen mit dem Menschsein des Gottessohnes ist sie in das Geheimnis der Menschwerdung aufgenommen, so wie sie auch in besonderer Weise erlöst wurde. Dank seiner Werkbank, an welcher er sein Handwerk zusammen mit Jesus ausübte, brachte Josef die menschliche Arbeit in die Nähe des Geheimnisses der Erlösung. Einen beachtlichen Anteil an seinem menschlichen Heranwachsen und seiner Zunahme „an Weisheit, Alter und Gnade“ hatte bei Jesus die Tugend des Fleißes, da ja „die Arbeit ein Gut für den Menschen ist“, das „die Natur umwandelt“ und bewirkt, dass der Mensch „gewissermaßen mehr Mensch wird“. Die Wichtigkeit der Arbeit im Leben des Menschen erfordert, dass man ihre Inhalte kennt und sich aneignet, „um allen Menschen zu helfen, durch die Arbeit Gott, dem Schöpfer und Erlöser, näherzukommen, an seinem Heilsplan für Mensch und Welt mitzuwirken und in ihrem Leben die Freundschaft mit Christus zu vertiefen und durch den Glauben lebendig teilzunehmen an seiner dreifachen Sendung als Priester, Prophet und König“. Schließlich geht es um die Heiligung des Alltagslebens, die ein jeder seiner Lage und Stellung entsprechend erlangen muss \[…\].

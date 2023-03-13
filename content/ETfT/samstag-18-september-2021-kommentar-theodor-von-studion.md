@@ -1,0 +1,8 @@
+---
+title: 'Samstag, 18 September 2021 : Kommentar Theodor von Studion'
+date: 2021-09-18T10:11:00.001+02:00
+draft: false
+url: /2021/09/samstag-18-september-2021-kommentar.html
+---
+
+Es will mir scheinen, dass der selige Prophet Joel sich an Maria wendet, wenn er ausruft: „Fürchte dich nicht, fruchtbares Land! Freu dich und juble; denn der Herr hat Großes getan“ (2,21). Denn Maria ist ein Land: jenes Land nämlich, auf dem der Gottesmann Mose den Befehl bekam, seine Sandale auszuziehen (vgl. Ex 3,5) – Sandale als ein Bild des Gesetzes, an dessen Stelle die Gnade treten wird. Sie ist auch das Land, auf dem – durch den Heiligen Geist – derjenige Wohnung nahm, von dem wir singen, dass er „die Erde auf Pfeiler gegründet hat“ (vgl. Ps 104(103),5). Sie ist ein Land, das Frucht hervorbringt, ohne eingesät worden zu sein, und dessen Frucht „allen Geschöpfen Nahrung gibt“ (Ps 136(135),25). Ein Land, auf dem der Dorn der Sünde gar nicht gewachsen ist, ganz im Gegenteil: Es bringt jenen hervor, der diesen Dorn mitsamt der Wurzel ausgerissen hat. Ein Land schließlich, das nicht verflucht ist wie das erste, von dem man Dornen und Disteln erntete (vgl. Gen 3,18), sondern auf dem der Segen des Herrn ruht und das in seinem Schoß „eine gesegnete Frucht“ birgt, wie das heilige Wort sagt (vgl. Lk 1,42) \[…\] Freue dich, Maria, du Haus des Herrn, du Land, über das Gott geschritten ist \[…\] Freue dich, du Paradies, das glücklicher ist als der Garten Eden, du, der Garten, in dem alle Tugenden gesprossen sind und der Baum des Lebens gewachsen ist.

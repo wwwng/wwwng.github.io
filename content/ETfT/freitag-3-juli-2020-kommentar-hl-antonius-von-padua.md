@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 3 Juli 2020 : Kommentar Hl. Antonius von Padua'
+date: 2020-07-02T18:13:00.001+02:00
+draft: false
+url: /2020/07/freitag-3-juli-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Thomas sagt zu den anderen: „Wenn ich nicht die Male der Nägel an seinen Händen sehe und wenn ich meinen Finger nicht in die Male der Nägel und meine Hand nicht in seine Seite lege, glaube ich nicht“ (Joh 20,25). Thomas bedeutet „Abgrund“, denn durch seinen Zweifel gelangte er zu einer tieferen Erkenntnis und erstarkte in seinem Glauben. \[…\] Es war kein Zufall, sondern göttliche Fügung, dass Thomas abwesend war und nicht glauben wollte, was er gehört hatte. O wunderbare Vorsehung! O heiliger Zweifel des Jüngers! „Wenn ich nicht die Male der Nägel an seinen Händen sehe“, sagt er (Joh 20,25). Er wollte die zerfallene Hütte Davids wiederaufgebaut sehen, von der Amos gesagt hatte: „An jenem Tag richte ich die zerfallene Hütte Davids wieder auf und bessere ihre Risse aus“ (Am 9,11). Mit „David“ ist die Gottheit gemeint; die „Hütte“ meint den Leib Christ, in dem, wie in einer Hütte, die Gottheit wohnte: Diese „Hütte“ war zerfallen, vernichtet im Tod und in der Passion. Die Risse der Mauern bedeuten die Wunden an Händen, Füßen und an der Seite. Diese Wunden sind es, die der Herr in seiner Auferstehung wieder ausbesserte. Von ihnen sagt Thomas: „Wenn ich meinen Finger nicht in die Male der Nägel und meine Hand nicht in seine Seite lege, glaube ich nicht.“ Der verständnisvolle Herr wollte seinen aufrichtigen Jünger, der sein auserwähltes Gefäß werden sollte, nicht im Zweifel lassen. Daher vertrieb er durch eine gütige Geste den Qualm des Zweifels aus seinem Geist, so wie er von Paulus die Verblendung der Ungerechtigkeit nahm. „Streck deinen Finger aus – hier sind meine Hände! Streck deine Hand aus und leg sie in meine Seite, und sei nicht ungläubig, sondern gläubig! Thomas antwortete ihm: Mein Herr und mein Gott!“ (Joh 20,27–28).

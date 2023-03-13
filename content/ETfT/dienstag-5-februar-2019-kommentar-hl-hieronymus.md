@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 5 Februar 2019 : Kommentar Hl. Hieronymus'
+date: 2019-02-04T17:44:00.001+01:00
+draft: false
+url: /2019/02/dienstag-5-februar-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+„Er fasste das Kind an der Hand und sagte zu ihm: Talita kum!, das heißt übersetzt: Mädchen \[...\] steh auf!“ „Nachdem du ein zweites Mal geboren bist, wirst du ‚Mädchen‘ genannt werden. Mädchen, steh auf um meinetwillen, nicht aufgrund deines Verdienstes, sondern durch das Wirken meiner Gnade. Steh also auf um meinetwillen: deine Heilung kommt nicht aus deiner eigenen Kraft.“ „Sofort stand das Mädchen auf und ging umher.“ Möge Jesus doch auch uns berühren und wir werden sofort umhergehen. Obwohl wir gelähmt sind, obwohl unsere Werke schlecht sind und wir nicht gehen können, obwohl wir auf dem Bett unserer Sünden liegen \[...\] Wenn Jesus uns berührt, sind wir augenblicklich geheilt. Die Schwiegermutter des Petrus lag darnieder, vom Fieber geplagt: Jesus fasste sie an der Hand; da stand sie auf und sorgte sogleich für ihn (Mk 1,31) \[…\] „Die Leute waren ganz fassungslos vor Entsetzen. Doch er schärfte ihnen ein, niemand dürfe etwas davon erfahren“. Versteht ihr, warum er die Leute hinausschickte, während er ein Wunder vollbringen wollte? Er befahl nicht nur, sondern er befahl mit Nachdruck, dass niemand davon erfahren dürfe. Er befahl den drei Aposteln, er befahl auch den Eltern, es niemand wissen zu lassen. Der Herr richtete den Befehl an alle, aber das Mädchen konnte es nicht für sich behalten, sie die aufgestanden ist. „\[...\] dann sagte er, man solle dem Mädchen etwas zu essen geben“: damit seine \[des Mädchens\] Auferstehung nicht als Erscheinung eines Geistes angesehen werde. Er selber aß nach seiner Auferstehung ein Stück gebratenen Fisch und Honigwabe (vgl. Lk 24,42 Vulg.) \[...\] Ich bitte dich inständig, Herr, fass auch uns, die wir darniederliegen, an der Hand; zieh uns empor aus dem Bett unserer Sünden und lass uns umhergehen. Und wenn wir umhergegangen sind, gib uns etwas zu essen. Im Liegen können wir nicht essen. Wenn wir nicht stehen, können wir den Leib Christi nicht empfangen.

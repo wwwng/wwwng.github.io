@@ -1,0 +1,8 @@
+---
+title: 'Sonntag, 16 Januar 2022 : Aus dem Heiligen Evangelium nach Johannes - Joh 2,1-11.'
+date: 2022-01-16T08:27:00.001+01:00
+draft: false
+url: /2022/01/sonntag-16-januar-2022-aus-dem-heiligen.html
+---
+
+In jener Zeit fand in Kana in Galiläa eine Hochzeit statt, und die Mutter Jesu war dabei. Auch Jesus und seine Jünger waren zur Hochzeit eingeladen. Als der Wein ausging, sagte die Mutter Jesu zu ihm: Sie haben keinen Wein mehr. Jesus erwiderte ihr: Was willst du von mir, Frau? Meine Stunde ist noch nicht gekommen. Seine Mutter sagte zu den Dienern: Was er euch sagt, das tut! Es standen dort sechs steinerne Wasserkrüge, wie es der Reinigungsvorschrift der Juden entsprach; jeder fasste ungefähr hundert Liter. Jesus sagte zu den Dienern: Füllt die Krüge mit Wasser! Und sie füllten sie bis zum Rand. Er sagte zu ihnen: Schöpft jetzt, und bringt es dem, der für das Festmahl verantwortlich ist. Sie brachten es ihm. Er kostete das Wasser, das zu Wein geworden war. Er wusste nicht, woher der Wein kam; die Diener aber, die das Wasser geschöpft hatten, wussten es. Da ließ er den Bräutigam rufen und sagte zu ihm: Jeder setzt zuerst den guten Wein vor und erst, wenn die Gäste zuviel getrunken haben, den weniger guten. Du jedoch hast den guten Wein bis jetzt zurückgehalten. So tat Jesus sein erstes Zeichen, in Kana in Galiläa, und offenbarte seine Herrlichkeit, und seine Jünger glaubten an ihn.

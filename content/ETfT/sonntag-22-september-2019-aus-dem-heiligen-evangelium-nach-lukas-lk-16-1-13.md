@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 22 September 2019 : Aus dem Heiligen Evangelium nach Lukas - Lk 16,1-13.'
+date: 2019-09-21T17:44:00.001+02:00
+draft: false
+url: /2019/09/sonntag-22-september-2019-aus-dem.html
+tags: 
+- EVANGELIUM
+---
+
+In jener Zeit sagte Jesus zu seinen Jüngern: Ein reicher Mann hatte einen Verwalter. Diesen beschuldigte man bei ihm, er verschleudere sein Vermögen. Darauf ließ er ihn rufen und sagte zu ihm: Was höre ich über dich? Leg Rechenschaft ab über deine Verwaltung! Du kannst nicht länger mein Verwalter sein. Da überlegte der Verwalter: Mein Herr entzieht mir die Verwaltung. Was soll ich jetzt tun? Zu schwerer Arbeit tauge ich nicht, und zu betteln schäme ich mich. Doch - ich weiß, was ich tun muss, damit mich die Leute in ihre Häuser aufnehmen, wenn ich als Verwalter abgesetzt bin. Und er ließ die Schuldner seines Herrn, einen nach dem andern, zu sich kommen und fragte den ersten: Wieviel bist du meinem Herrn schuldig? Er antwortete: Hundert Fass Öl. Da sagte er zu ihm: Nimm deinen Schuldschein, setz dich gleich hin, und schreib «fünfzig». Dann fragte er einen andern: Wieviel bist du schuldig? Der antwortete: Hundert Sack Weizen. Da sagte er zu ihm: Nimm deinen Schuldschein, und schreib «achtzig». Und der Herr lobte die Klugheit des unehrlichen Verwalters und sagte: Die Kinder dieser Welt sind im Umgang mit ihresgleichen klüger als die Kinder des Lichtes. Ich sage euch: Macht euch Freunde mit Hilfe des ungerechten Mammons, damit ihr in die ewigen Wohnungen aufgenommen werdet, wenn es mit euch zu Ende geht. Wer in den kleinsten Dingen zuverlässig ist, der ist es auch in den großen, und wer bei den kleinsten Dingen Unrecht tut, der tut es auch bei den großen. Wenn ihr im Umgang mit dem ungerechten Reichtum nicht zuverlässig gewesen seid, wer wird euch dann das wahre Gut anvertrauen? Und wenn ihr im Umgang mit dem fremden Gut nicht zuverlässig gewesen seid, wer wird euch dann euer wahres Eigentum geben? Kein Sklave kann zwei Herren dienen; er wird entweder den einen hassen und den andern lieben, oder er wird zu dem einen halten und den andern verachten. Ihr könnt nicht beiden dienen, Gott und dem Mammon.

@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 21 Januar 2021 : Brief an die Hebräer 7,25-28.8,1-6.'
+date: 2021-01-20T18:02:00.001+01:00
+draft: false
+url: /2021/01/donnerstag-21-januar-2021-brief-die.html
+tags: 
+- LECTIO
+---
+
+Brüder! Jesus kann die, die durch ihn vor Gott hintreten, für immer retten; denn er lebt allezeit, um für sie einzutreten. Ein solcher Hoherpriester war für uns in der Tat notwendig: einer, der heilig ist, unschuldig, makellos, abgesondert von den Sündern und erhöht über die Himmel; einer, der es nicht Tag für Tag nötig hat, wie die Hohenpriester zuerst für die eigenen Sünden Opfer darzubringen und dann für die des Volkes; denn das hat er ein für allemal getan, als er sich selbst dargebracht hat. Das Gesetz nämlich macht Menschen zu Hohenpriestern, die der Schwachheit unterworfen sind; das Wort des Eides aber, der später als das Gesetz kam, setzt den Sohn ein, der auf ewig vollendet ist. Die Hauptsache dessen aber, was wir sagen wollen, ist: Wir haben einen Hohenpriester, der sich zur Rechten des Thrones der Majestät im Himmel gesetzt hat, als Diener des Heiligtums und des wahren Zeltes, das der Herr selbst aufgeschlagen hat, nicht etwa ein Mensch. Denn jeder Hohepriester wird eingesetzt, um Gaben und Opfer darzubringen; deshalb muss auch unser Hoherpriester etwas haben, was er darbringen kann. Wäre er nun auf Erden, so wäre er nicht einmal Priester, da es hier schon Priester gibt, die nach dem Gesetz die Gaben darbringen. Sie dienen einem Abbild und Schatten der himmlischen Dinge, nach der Anweisung, die Mose erhielt, als er daranging, das Zelt zu errichten: Sieh zu, heißt es, dass du alles nach dem Urbild ausführst, das dir auf dem Berg gezeigt wurde. Jetzt aber ist ihm ein um so erhabenerer Priesterdienst übertragen worden, weil er auch Mittler eines besseren Bundes ist, der auf bessere Verheißungen gegründet ist.

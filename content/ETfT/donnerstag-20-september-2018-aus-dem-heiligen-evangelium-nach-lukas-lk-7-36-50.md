@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 20 September 2018 : Aus dem Heiligen Evangelium nach Lukas - Lk 7,36-50.'
+date: 2018-09-19T17:45:00.003+02:00
+draft: false
+url: /2018/09/donnerstag-20-september-2018-aus-dem.html
+tags: 
+- EVANGELIUM
+---
+
+In jener Zeit ging Jesus in das Haus eines Pharisäers, der ihn zum Essen eingeladen hatte, und legte sich zu Tisch. Als nun eine Sünderin, die in der Stadt lebte, erfuhr, dass er im Haus des Pharisäers bei Tisch war, kam sie mit einem Alabastergefäß voll wohlriechendem Öl und trat von hinten an ihn heran. Dabei weinte sie, und ihre Tränen fielen auf seine Füße. Sie trocknete seine Füße mit ihrem Haar, küsste sie und salbte sie mit dem Öl. Als der Pharisäer, der ihn eingeladen hatte, das sah, dachte er: Wenn er wirklich ein Prophet wäre, müsste er wissen, was das für eine Frau ist, von der er sich berühren lässt; er wüsste, dass sie eine Sünderin ist. Da wandte sich Jesus an ihn und sagte: Simon, ich möchte dir etwas sagen. Er erwiderte: Sprich, Meister! Jesus sagte: Ein Geldverleiher hatte zwei Schuldner; der eine war ihm fünfhundert Denare schuldig, der andere fünfzig. Als sie ihre Schulden nicht bezahlen konnten, erließ er sie beiden. Wer von ihnen wird ihn nun mehr lieben? Simon antwortete: Ich nehme an, der, dem er mehr erlassen hat. Jesus sagte zu ihm: Du hast recht. Dann wandte er sich der Frau zu und sagte zu Simon: Siehst du diese Frau? Als ich in dein Haus kam, hast du mir kein Wasser zum Waschen der Füße gegeben; sie aber hat ihre Tränen über meinen Füßen vergossen und sie mit ihrem Haar abgetrocknet. Du hast mir zur Begrüßung keinen Kuss gegeben; sie aber hat mir, seit ich hier bin, unaufhörlich die Füße geküsst. Du hast mir nicht das Haar mit Öl gesalbt; sie aber hat mir mit ihrem wohlriechenden Öl die Füße gesalbt. Deshalb sage ich dir: Ihr sind ihre vielen Sünden vergeben, weil sie mir so viel Liebe gezeigt hat. Wem aber nur wenig vergeben wird, der zeigt auch nur wenig Liebe. Dann sagte er zu ihr: Deine Sünden sind dir vergeben. Da dachten die anderen Gäste: Wer ist das, dass er sogar Sünden vergibt? Er aber sagte zu der Frau: Dein Glaube hat dir geholfen. Geh in Frieden!

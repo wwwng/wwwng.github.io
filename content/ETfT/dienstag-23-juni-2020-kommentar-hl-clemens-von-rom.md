@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 23 Juni 2020 : Kommentar Hl. Clemens von Rom'
+date: 2020-06-22T18:13:00.001+02:00
+draft: false
+url: /2020/06/dienstag-23-juni-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Das ist der Weg, Geliebte, auf dem wir unser Heil finden, Jesus Christus, den Hohenpriester unserer Opfergaben, den Anwalt und Helfer in unserer Schwäche. Durch ihn streben wir standhaft nach den Höhen des Himmels, durch ihn schauen wir sein heiliges und erhabenes Antlitz, durch ihn wurden die Augen unseres Herzens geöffnet, durch ihn ringt sich unser unweiser und dunkler Verstand durch zum Licht, durch ihn wollte der Herr uns kosten lassen von dem unsterblichen Wissen, der, „da er der Abglanz ist seiner Majestät, um so viel größer ist als die Engel, wie der Name, den er geerbt hat, ihren Namen überragt“ (vgl. Hebr 1,3–4). \[…\] Nehmen wir unseren Körper; der Kopf ist nichts ohne die Füße, ebenso die Füße nichts ohne den Kopf; und die kleinsten Glieder unseres Leibes sind notwendig und nützlich für den ganzen Körper; aber alle halten zusammen, und es bedarf eines einmütigen Gehorsams zum Wohl des ganzen Körpers. So soll denn unser ganzer Körper gerettet werden in Christus Jesus, und jeder soll seinem Nächsten sich fügen, wie es in seiner Gnadengabe begründet ist. Der Starke sorge für den Schwachen, und der Schwache kümmere sich um den Starken; der Reiche unterstütze den Armen, der Arme aber danke Gott dafür, dass er jenem gegeben, wodurch seinem Mangel abgeholfen werde; der Weise zeige seine Weisheit nicht in Worten, sondern in guten Werken; der Demütige stelle sich selbst kein Zeugnis aus, sondern lasse einen anderen über sich Zeugnis geben; wer keusch ist im Fleisch, rühme sich nicht in der Erkenntnis, dass ein anderer es ist, der ihm die (Gnade der) Enthaltsamkeit verleiht. Betrachten wir nun, Brüder, aus welchem Stoff wir geschaffen wurden, welcher Art und was wir waren beim Eintritt in diese Welt, aus welch dunkler Gruft unser Bildner und Schöpfer uns in seine Welt geführt, da er seine Wohltaten bereithielt, schon bevor wir geboren waren. Da wir nun dies alles von ihm bekommen haben, schulden wir ihm in allem Dank.

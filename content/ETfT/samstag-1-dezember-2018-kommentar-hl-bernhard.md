@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 1 Dezember 2018 : Kommentar Hl. Bernhard'
+date: 2018-11-30T17:45:00.001+01:00
+draft: false
+url: /2018/11/samstag-1-dezember-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wer im Frieden beten möchte, der wird nicht nur auf den Ort achten, sondern auch auf den Zeitpunkt. Die Zeit der Ruhe ist die beste, und wenn der Schlaf der Nacht über alles ein tiefes Schweigen legt, kann man freier und reiner beten. „Steh auf, klage bei Nacht, zu jeder Nachtwache Anfang! Schütte aus wie Wasser dein Herz vor dem Angesicht des Herrn!“ (Klgl 2,19). Wie sicher steigt doch in der Nacht das Gebet auf, wenn Gott dein einziger Zeuge ist, zusammen mit dem Engel, der es empfängt, um es auf dem himmlischen Altar darzubringen! Es ist Gott angenehm, lichterfüllt und schamhaft. Es ist ruhig, friedvoll, wenn kein Lärm, kein Geschrei es unterbricht. Es ist rein und aufrichtig, wenn der Staub der irdischen Sorgen es nicht beschmutzen kann. Kein Zuschauer ist zugegen, der es der Versuchung aussetzen könnte durch seinen Applaus oder seine Schmeicheleien. Deshalb handelt die Braut \[des Hohenliedes\] mit soviel Umsicht und Scham, wenn sie die nächtliche Einsamkeit ihres Zimmers wählt, um zu beten, das heißt: um das \[fleischgewordene\] Wort zu suchen, denn das alles ist eins. Du betest schlecht, wenn du anderes suchst, als das Wort, das Wort Gottes, oder wenn deine Gebetsbitte keinen Bezug zu jenem Wort hat. Denn in Ihm ist alles enthalten: die Arznei deiner Verletzungen, die Hilfe, die dir notwendig ist, der Nachlass deiner Schuld, die Quelle deines Fortschritts, kurz gesagt: alles, was ein Mensch sich wünschen kann und soll. Es gibt keinen Grund, das Wort um etwas anderes zu bitten, als um Es selbst, denn alles ist in Ihm enthalten. Wenn wir, wie es ja nötig ist, gewisse konkrete Dinge erbitten wollen und wenn wir, wie es uns aufgetragen ist, sie ersehnen in Bezug auf das Göttliche Wort, so sind es weniger die Dinge selbst, die wir erbitten, sondern wir erbitten vielmehr Ihn selbst, der die Ursache unseres Gebets ist.

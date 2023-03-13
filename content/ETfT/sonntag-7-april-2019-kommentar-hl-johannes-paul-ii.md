@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 7 April 2019 : Kommentar Hl. Johannes Paul II.'
+date: 2019-04-06T17:47:00.001+02:00
+draft: false
+url: /2019/04/sonntag-7-april-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+\[Die Erlösung durch das Geheimnis des Kreuzes Christi\] ist die letzte und endgültige Offenbarung der Heiligkeit Gottes, der die absolute Fülle der Vollkommenheit ist: Fülle der Gerechtigkeit und der Liebe, weil die Gerechtigkeit auf der Liebe gründet, von ihr ausgeht und ihr zustrebt. Im Leiden und Tod Christi – in der Tatsache, dass der Vater seinen Sohn nicht verschonte, sondern ihn „für uns zur Sünde gemacht hat“ (2 Kor 5,21) – kommt die absolute Gerechtigkeit zum Ausdruck, insofern wegen der Sünden der Menschheit Christus Leiden und Kreuz erduldet. Das ist geradezu ein „Übermaß“ der Gerechtigkeit, denn die Sünde des Menschen wird „aufgewogen“ durch das Opfer des Gott - Menschen. Diese Gerechtigkeit wahrhaft göttlichen „Maßes“ entspringt ganz der Liebe, der Liebe des Vaters und des Sohnes, und bringt von ihrem Wesen her Früchte in der Liebe. Diese göttliche Gerechtigkeit, wie sie das Kreuz Christi offenbart, ist eben insofern „nach dem Maße“ Gottes, als sie Ursprung und Erfüllung in der Liebe hat und Früchte des Heils hervorbringt. Die göttliche Dimension der Erlösung beschränkt sich nicht auf das Gericht über die Sünde, sondern sie erneuert in der Liebe jene schöpferische Kraft im Menschen, die ihm wieder die von Gott kommende Fülle des Lebens und der Heiligkeit zugänglich macht. Auf diese Weise beinhaltet die Erlösung die Offenbarung des Erbarmens in seiner Vollendung. Das Paschamysterium ist der Gipfelpunkt der Offenbarung und Verwirklichung des Erbarmens, das den Menschen zu rechtfertigen und die Gerechtigkeit wiederherzustellen vermag im Sinne der Heilsordnung, die Gott vom Anbeginn her im Menschen und durch ihn in der Welt wollte.

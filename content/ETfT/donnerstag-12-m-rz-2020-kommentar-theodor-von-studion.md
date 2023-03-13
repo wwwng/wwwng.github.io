@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 12 März 2020 : Kommentar Theodor von Studion'
+date: 2020-03-11T18:08:00.001+01:00
+draft: false
+url: /2020/03/donnerstag-12-marz-2020-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Eure Aufgabe gleicht jener der Engel. Wenn wir auch manche Leiden ertragen müssen, wenn wir uns ein wenig abtöten müssen – gedulden wir uns noch ein wenig. Und schon ist das Ziel und das Ende unseres Lebens da; wir werden von den heiligen Engeln geleitet werden, ewige Freude genießen und mit allen Heiligen Miterben derselben Verheißung sein (vgl. Hebr 11,9). \[…\] Deshalb nehmen wir künftig geduldig an, was auch mit uns geschehen mag; denn wir erhalten dafür ewiges Glück, so wie umgekehrt denen, die Böses tun, Unglück zuteilwird. Der Himmel möge uns davor bewahren, diese Unglücksworte zu hören: „Du hast in deinem Leben Gutes empfangen, jetzt aber wird dieser getröstet“, und „zwischen uns und euch ist ein tiefer, unüberwindlicher Abgrund“ (vgl. Lk 16,25–26). Sind sie nicht schrecklich zu hören, diese göttlichen Worte, die den Sünder von dem Gerechten scheiden? In der Tat entfernen der Abstand, der Abgrund, der Verlust und Fall derer, die in der Sünde stehen, diese vom Herrn, unserem Gott so weit, wie der Himmel von der Erde entfernt ist (vgl. Jes 55,9). Aber jene, die wie ihr jeden Tag mit brennendem Verlangen danach streben, seine Freunde und seine wahren Diener zu sein, werden mit ihm in die himmlischen Wohnungen einziehen, in das himmlische Jerusalem (vgl. Gal 4,26), die große Stadt, die erfüllt ist von unvorstellbaren Wundern, verbunden mit grenzenloser Herrlichkeit und ewiger Macht. Dort werden wir einander sehen und vollkommen erkennen. Und ich glaube, dass wir, wenn wir den Willen Gottes erfüllen, allesamt in ewiger Freude vereint sein werden. Verhaltet auch ihr euch nach Art der Engel, und haltet euch fest am Arm Gottes, der euch Kraft verleiht, an den Ermutigungen des Heiligen Geistes, der euch stark macht, an den heiligen Engeln, an allen Märtyrern und von Gott gesegneten Heiligen, die euch zu Hilfe kommen.

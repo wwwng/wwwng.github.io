@@ -1,0 +1,10 @@
+---
+title: 'Montag, 14 Oktober 2019 : Kommentar Hl. Johannes Chrysostomus'
+date: 2019-10-13T17:50:00.001+02:00
+draft: false
+url: /2019/10/montag-14-oktober-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Hüten wir uns davor, alle Hoffnung zu verlieren, doch vermeiden wir ebenfalls, zu leicht der Lässigkeit nachzugeben \[…\] Die Verzweiflung verhindert, dass der Gefallene wieder aufsteht, und die Lässigkeit bringt den Stehenden zu Fall \[…\] Wenn die Vermessenheit uns aus der Himmelshöhe herabstößt, schleudert uns die Verzweiflung in den bodenlosen Abgrund des Bösen; dabei würde doch ein wenig Hoffnung genügen, um uns da herauszureißen \[…\] So wurde Ninive gerettet. Dabei hätte das gegen die Einwohner Ninives ausgesprochene Urteil diese in Verzweiflung stürzen können, denn es besagte nicht: „Wenn ihr umkehrt, werdet ihr gerettet“, sondern einfach: „Noch drei Tage, und Ninive ist zerstört“ (vgl. Jona 3,4 LXX). Aber weder die Drohungen des Herrn, noch die Aufforderungen des Propheten, noch die Härte des Urteils \[…\] brachten ihr Vertrauen ins Wanken. Gott will, dass wir aus diesem unbedingten Urteil eine Lehre ziehen, damit wir durch dieses Beispiel sowohl der Verzweiflung als auch der Passivität widerstehen \[…\] Das göttliche Wohlwollen zeigt sich überdies nicht nur in der Vergebung, die den bußfertigen Ninivitern gewährt wird \[…\]: auch der gewährte Aufschub beweist Gottes unbeschreibliche Güte. Glaubt ihr, dass drei Tage ausgereicht hätten, um so viel Missetat auszulöschen? Gottes Güte leuchtet hinter diesen Worten auf. Ist nicht sie die hauptsächliche Urheberin der Rettung der ganzen Stadt? Möge dieses Beispiel uns vor aller Verzweiflung bewahren. Denn der Teufel betrachtet diese Schwäche als seine wirksamste Waffe, und selbst wenn wir sündigen, können wir ihm kein größeres Vergnügen bereiten, als die Hoffnung zu verlieren.

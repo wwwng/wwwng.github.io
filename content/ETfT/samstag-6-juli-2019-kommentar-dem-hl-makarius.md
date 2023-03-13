@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 6 Juli 2019 : Kommentar Dem hl. Makarius'
+date: 2019-07-05T17:48:00.001+02:00
+draft: false
+url: /2019/07/samstag-6-juli-2019-kommentar-dem-hl.html
+tags: 
+- MEDITATIO
+---
+
+Mag die wahrhaft gott- und christusliebende Seele auch tausend Werke der Gerechtigkeit vollbracht haben, wegen ihres unersättlichen Verlangens nach dem Herrn benimmt sie sich doch so, als hätte sie noch nichts getan. Hat sie auch durch „Fasten und Wachen“ (vgl. 2 Kor 6,5) den Leib verzehrt, so ist es ihr doch, als hätte sie noch gar nicht angefangen, die Tugenden zu üben. Selbst wenn sie verschiedener Geistesgaben oder himmlischer Offenbarungen und Geheimnisse gewürdigt wurde, wegen der unermesslichen, unersättlichen Liebe zum Herrn ist es ihr doch, als besäße sie noch nichts. Vielmehr hat sie, Tag für Tag hungernd und dürstend in Glauben, Liebe und beharrlichem Gebet, ein unersättliches Verlangen nach den Geheimnissen der Gnade und dem vollen Tugendstand. Sie ist verwundet von der Liebe des himmlischen Geistes, durch die Gnade erweckt sie in sich immerdar ein feuriges Verlangen nach ihrem himmlischen Bräutigam, sie sehnt sich, der geheimnisvollen, unaussprechlichen Gemeinschaft mit ihm in „Heiligung durch den Geist“ (vgl. 1 Petr 1,2) vollkommen gewürdigt zu werden. Ihr Antlitz enthüllt, ihr Angesicht unverwandt auf den himmlischen Bräutigam in geistigem, unaussprechlichem Lichte gerichtet, vermischt sich die Seele in voller Gewissheit mit diesem. „Gleichgestaltet seinem Tode“ (vgl. Phil 3,10) erwartet sie in glühendem Verlangen allzeit den Tod um Christi willen, im zuversichtlichen Glauben, vollkommene Erlösung von der Sünde und den finsteren Leidenschaften vom Geiste zu erlangen. Gereinigt durch den Geist, an Leib und Seele geheiligt, wird sie ein reines Gefäß zur Aufnahme des himmlischen Salböls und gewürdigt, eine Wohnstätte des himmlischen, wahren Königs Christus zu werden.

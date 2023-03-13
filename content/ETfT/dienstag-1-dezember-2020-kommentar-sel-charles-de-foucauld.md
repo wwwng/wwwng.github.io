@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 1 Dezember 2020 : Kommentar Sel. Charles de Foucauld'
+date: 2020-11-30T18:13:00.001+01:00
+draft: false
+url: /2020/11/dienstag-1-dezember-2020-kommentar-sel.html
+tags: 
+- MEDITATIO
+---
+
+Mein Gott, wie gut bist Du, dass du uns aufrufst, Dich zu loben! Was gibt es Schöneres, als den Geliebten zu loben! \[…\] Lasst uns Gott loben! Gott selbst gibt uns das Gebot und das Beispiel. Wie viele Psalmen sind Psalmen des Lobes: „Alles, was Odem hat, lobe den Herrn“ (Ps 150,6 Vulg.), „Lobet den Herrn, alle Völker“ (Ps 117(116),1) … Wie oft ruft unser Herr aus: „Ich preise dich, Vater, weil …!“ (vgl. Lk 10,21), wie oft gibt er ihm diese lobpreisenden Namen: „Heiliger Vater … Gerechter Vater …“ (Joh 17,11.25). Und wenn er uns beten lehrt, was lässt er uns dann sagen? „Unser Vater im Himmel, dein Name werde geheiligt“ (Mt 6,9), das heißt: Er möge verherrlicht werden sowohl durch Worte als auch durch die Gedanken und Taten aller Menschen. \[…\] Der Lobpreis ist zudem ein Bedürfnis der Liebe, und selbst wenn Gott uns weder das Gebot noch das Beispiel gegeben hätte, ihn zu loben, wäre es verpflichtend für uns, dies zu tun, allein deswegen, weil er uns sagt: „Euer erstes Gebot ist es, mich zu lieben“. Die Verehrung ist grundlegender Bestandteil jeder wahren Liebe: Sie ist ihr Fundament, ihre Ursache; das Motiv der wahren Liebe ist das Gute, das Vollkommene, das im Wesen des Geliebten ist; dieses Gute, diese Vollkommenheit ruft die Bewunderung hervor; auf die Bewunderung – und kaum von ihr zu unterscheiden – folgt die Liebe. Nun ist der Lobpreis nichts anderes als der Ausdruck der Bewunderung; daher findet man ihn notwendigerweise \[…\] überall dort, wo wahre Liebe ist. Loben wir also Gott: innerlich durch das stille Lob liebevoller Kontemplation und äußerlich durch Worte der Verehrung, welche die Bewunderung seiner Vollkommenheit uns auf die Lippen legen wird.

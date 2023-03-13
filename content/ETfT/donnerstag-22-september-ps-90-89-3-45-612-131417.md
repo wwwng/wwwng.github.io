@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 22. September : ps 90(89),3-4.5-6.12-13.14.17.'
+date: 2022-09-22T07:42:00.001+02:00
+draft: false
+url: /2022/09/donnerstag-22-september-ps-90893-45-612.html
+---
+
+Du lässt die Menschen zurückkehren zum Staub und sprichst: „Kommt wieder, ihr Menschen!“ Denn tausend Jahre sind für dich, wie der Tag, der gestern vergangen ist, wie eine Wache in der Nacht. Von Jahr zu Jahr säst du die Menschen aus; sie gleichen dem sprossenden Gras. Am Morgen grünt es und blüht, am Abend wird es geschnitten und welkt. Unsere Tage zu zählen, lehre uns! Dann gewinnen wir ein weises Herz. Herr, wende dich uns doch endlich zu! Hab Mitleid mit deinen Knechten! Sättige uns am Morgen mit deiner Huld! Dann wollen wir jubeln und uns freuen all unsre Tage. Es komme über uns die Güte des Herrn, unsres Gottes. Lass das Werk unsrer Hände gedeihen, ja, lass gedeihen das Werk unsrer Hände!

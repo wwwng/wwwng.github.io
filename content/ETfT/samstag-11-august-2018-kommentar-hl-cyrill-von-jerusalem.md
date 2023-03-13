@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 11 August 2018 : Kommentar Hl. Cyrill von Jerusalem'
+date: 2018-08-10T17:44:00.001+02:00
+draft: false
+url: /2018/08/samstag-11-august-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+„Glaube“ ist ein einziges Wort, bedeutet aber zweierlei. Es gibt einen dogmatischen Glauben. Derselbe ist Zustimmung der Seele zu irgendetwas. Er rettet die Seele; denn der Herr sagt: „Wer meine Worte hört und an den glaubt, der mich gesandt hat, hat das ewige Leben und kommt nicht in das Gericht“ (Joh 5,24) \[…\] Es gibt aber auch noch einen Glauben anderer Art, ich meine das Gnadengeschenk Christi. „Dem einen wird nämlich durch den Geist Weisheitsrede gegeben, einem anderen Erkenntnisrede nach demselben Geist, wieder einem anderen Glaube in dem gleichen Geist, wieder einem anderen Heilungsgaben“ (1 Kor 12,8-9). Dieser Glaube, der durch den Hl. Geist als Gnadengeschenk verliehen wird, ist also nicht nur ein dogmatischer, er wirkt auch Übermenschliches. Wer den Glauben letzterer Art hat, wird zu diesem Berge sagen: „Gehe von hier dorthin, und er wird fortgehen“ (Mt 17,19; Mk 11,23). Wenn jemand gläubig so spricht im Vertrauen, es werde geschehen, ohne im Herzen zu zweifeln, dann erhält er die Gnade. Bezüglich dieser Art des Glaubens heißt es: „Wenn euer Glaube ist wie ein Senfkörnlein“ (Mt 17,19). Wie nämlich das Senfkörnlein klein ist an Gestalt, aber seiner Kraft nach wirkt wie das Feuer, und wie, wenngleich der Same in kleinem Raum ruht, die Äste doch weit um sich greifen, so dass, wenn der Same sich entwickelt hat, sogar die Vögel Schatten finden können, so wirkt der Glaube in der Seele die größten Wunder, und zwar in einem Augenblick. Sie macht sich, durch den Glauben erleuchtet, eine Vorstellung von Gott und schaut Gott, soweit es möglich ist; sie durchwandert die Grenzgebiete der Welt, und schon vor Abschluss dieser Zeit sieht sie das Gericht und die Austeilung der verheißenen Belohnungen. Du brauchst den Glauben, bei dem es auf dich ankommt, den Glauben an Gott, damit du den Glauben erhältst, den Gott gibt und der Übermenschliches wirkt.

@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 4 Dezember 2019 : Kommentar II. Vatikanisches Konzil'
+date: 2019-12-03T17:44:00.001+01:00
+draft: false
+url: /2019/12/mittwoch-4-dezember-2019-kommentar-ii.html
+tags: 
+- EVANGELIUM
+---
+
+Wie daher Christus vom Vater gesandt ist, so hat er selbst die vom Heiligen Geist erfüllten Apostel gesandt, nicht nur das Evangelium aller Kreatur zu verkünden, die Botschaft, dass der Sohn Gottes uns durch seinen Tod und seine Auferstehung der Macht des Satans entrissen und in das Reich des Vaters versetzt hat, sondern auch das von ihnen verkündete Heilswerk zu vollziehen durch Opfer und Sakrament, um die das ganze liturgische Leben kreist. So werden die Menschen durch die Taufe in das Pascha-Mysterium Christi eingefügt. Mit Christus gestorben, werden sie mit ihm begraben und mit ihm auferweckt. Sie empfangen den Geist der Kindschaft, „in dem wir Abba, Vater, rufen“ (Röm 8,15) und werden so zu wahren Anbetern, wie der Vater sie sucht. Ebenso verkünden sie, sooft sie das Herrenmahl genießen, den Tod des Herrn, bis er wiederkommt. \[…\] In der irdischen Liturgie nehmen wir vorauskostend an jener himmlischen Liturgie teil, die in der heiligen Stadt Jerusalem gefeiert wird, zu der wir pilgernd unterwegs sind, wo Christus sitzt zur Rechten Gottes, der Diener des Heiligtums und des wahren Zeltes. In der irdischen Liturgie singen wir dem Herrn mit der ganzen Schar des himmlischen Heeres den Lobgesang der Herrlichkeit. In ihr verehren wir das Gedächtnis der Heiligen und erhoffen Anteil und Gemeinschaft mit ihnen. In ihr erwarten wir den Erlöser, unseren Herrn Jesus Christus, bis er erscheint als unser Leben und wir mit ihm erscheinen in Herrlichkeit. (Biblische Referenzen, vgl.: Mk 16,15; Apg 26,18; Röm 6,4; Eph 2,6; 2 Tim 2,11; Joh 4,23; 1 Kor 11,26; Offb 21,2; Kol 3,1; Hebr 8,2; Phil 3,20; Kol 3,4)

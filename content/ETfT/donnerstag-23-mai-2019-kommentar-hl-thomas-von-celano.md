@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 23 Mai 2019 : Kommentar Hl. Thomas von Celano'
+date: 2019-05-22T17:48:00.001+02:00
+draft: false
+url: /2019/05/donnerstag-23-mai-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Das sicherste Mittel gegen tausenderlei Nachstellungen und Listen des bösen Feindes ist, wie Franziskus zu versichern pflegte, die geistliche Freude. Er sagte nämlich: „Dann hüpft der Teufel am meisten vor Freude, wenn er einem Knecht Gottes die Freude des Geistes entreißen kann. Er trägt Staub bei sich, den er nach Belieben in die kleinen Falten des Gewissens hineinwirft, um die Sauberkeit des Gewissens und die Lauterkeit des Lebens zu beschmutzen. Wenn aber“, sagte er, „die geistliche Freude die Herzen erfüllt, dann spritzt die Schlange vergeblich das tödliche Gift aus. Die bösen Geister können einem Knecht Christi nichts anhaben, wenn sie ihn mit heiliger Fröhlichkeit erfüllt sehen. Wenn jedoch der Geist in kläglicher Stimmung trostlos und traurig ist, wird er leicht entweder von der Traurigkeit aufgesogen oder eitlen Freuden überlassen.“ Daher trachtete der Heilige danach, stets im Jubel des Herzens zu verharren, die Salbung des Geistes und das Öl der Freude zu bewahren (vgl. Ps 45,8). Die Krankheit des Überdrusses suchte er als die schlimmste mit der größten Sorgfalt zu vermeiden. Sobald er merkte, dass sie auch nur ein wenig in seinem Geist Eingang gefunden hat, eilte er schnell zum Gebet. Er pflegte nämlich zu sagen: „Der Knecht Gottes, der, wie es vorkommen kann, aus irgendeinem Grund verwirrt ist, muss sich sofort zum Gebet erheben und so lange vor dem höchsten Vater verharren, bis er ihm die Freude seines Heiles wiedergibt (vgl. Ps 51,14).“ \[…\] Manchmal hob er auch, wie ich mit eigenen Augen gesehen habe, ein Holz vom Boden auf und legte es über seinen linken Arm, nahm dann einen kleinen, mit Faden bespannten Bogen in seine Rechte und führte ihn über das Holz wie über eine Geige. Dazu führte er entsprechende Bewegungen aus und sang in französischer Sprache vom Herrn.

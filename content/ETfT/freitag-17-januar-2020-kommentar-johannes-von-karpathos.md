@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 17 Januar 2020 : Kommentar Johannes von Karpathos'
+date: 2020-01-16T18:04:00.001+01:00
+draft: false
+url: /2020/01/freitag-17-januar-2020-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Warum bist du betrübt? Schau: Einer hat schmierige Hände. Ein bisschen Öl macht sie sauber. Um wie viel stärker reinigend ist das Erbarmen Gottes! Denn so leicht es für dich ist, dein Gewand zu waschen, so leicht und noch leichter ist es für den Herrn, dich von aller Verschmutzung reinzuwaschen, auch wenn du natürlich jeden Tag in Versuchung gerätst. Kaum sagst du: „Ich habe mich gegen den Herrn versündigt“, bekommst du schon die Antwort: „Deine Sünden sind dir vergeben“ (Mt 9,2). „Ich bin, ich bin es, der deine Frevel wegwischt, und werde (ihrer) gewiss nicht gedenken“ (vgl. Jes 43,25 LXX). „So weit der Aufgang entfernt ist vom Untergang, so weit habe ich deine Frevel von dir entfernt. Wie ein Vater sich seiner Kinder erbarmt, so habe ich Mitleid mit dir“ (vgl. Ps 102,12–13 LXX). Nur entferne dich nicht, geh nicht weg von dem, der dich erwählt hat zu singen und zu beten, sondern bleibe dein ganzes Leben lang mit ihm verbunden, sei es durch reines Vertrauen oder durch heilige Kühnheit und mutiges Bekenntnis. Dann hört er dich und reinigt dich. Hat nicht Gott uns in seiner Menschenliebe gerechtfertigt? Wer sollte uns dann verurteilen? (vgl. Röm 8,33). Wenn wir den Namen des Herrn Jesus Christus anrufen, ist unser Gewissen schnell gereinigt, und es trennt uns nichts von den Propheten und den anderen Heiligen. Denn Gott hat uns nicht zum Zorn bestimmt, sondern zum Heil, durch unseren Herrn Jesus Christus, der für uns gestorben ist. So werden wir mit Christus leben, ob wir nun in Tugendhaftigkeit wachen oder aber in einem elenden Zustand schlafen, in den uns bestimmte Lebensumstände natürlicherweise bringen (vgl. 1 Thess 5,9–10). Wir richten unseren Blick auf ihn, seufzen aus Herzensgrund, weinen ohne Unterlass und atmen nur noch ihn. Lasst uns also den Panzer des Glaubens anlegen und den Helm der Hoffnung auf Heil tragen (vgl. 1 Thess 5,8), damit die Pfeile der Entmutigung und der Verzweiflung uns nicht durchbohren können.

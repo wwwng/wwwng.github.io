@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 22 Januar 2021 : Brief an die Hebräer 8,6-13.'
+date: 2021-01-21T18:02:00.001+01:00
+draft: false
+url: /2021/01/freitag-22-januar-2021-brief-die.html
+tags: 
+- LECTIO
+---
+
+Brüder! Jetzt ist unserem Hohenpriester ein um so erhabenerer Priesterdienst übertragen worden, weil er auch Mittler eines besseren Bundes ist, der auf bessere Verheißungen gegründet ist. Wäre nämlich jener erste Bund ohne Tadel, so würde man nicht einen zweiten an seine Stelle zu setzen suchen. Denn er tadelt sie, wenn er sagt: Seht, es werden Tage kommen - spricht der Herr -, in denen ich mit dem Haus Israel und dem Haus Juda einen neuen Bund schließen werde, nicht wie der Bund war, den ich mit ihren Vätern geschlossen habe, als ich sie bei der Hand nahm, um sie aus Ägypten herauszuführen. Sie sind nicht bei meinem Bund geblieben, und darum habe ich mich auch nicht mehr um sie gekümmert - spricht der Herr. Das wird der Bund sein, den ich nach diesen Tagen mit dem Haus Israel schließe - spricht der Herr: Ich lege meine Gesetze in ihr Inneres hinein und schreibe sie ihnen in ihr Herz. Ich werde ihr Gott sein, und sie werden mein Volk sein. Keiner wird mehr seinen Mitbürger und keiner seinen Bruder belehren und sagen: Erkenne den Herrn! Denn sie alle, klein und groß, werden mich erkennen. Denn ich verzeihe ihnen ihre Schuld, und an ihre Sünden denke ich nicht mehr. Indem er von einem neuen Bund spricht, hat er den ersten für veraltet erklärt. Was aber veraltet und überlebt ist, das ist dem Untergang nahe.

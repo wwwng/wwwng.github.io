@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 3 Februar 2021 : Kommentar Brief an Diognet'
+date: 2021-02-02T18:13:00.001+01:00
+draft: false
+url: /2021/02/mittwoch-3-februar-2021-kommentar-brief.html
+tags: 
+- MEDITATIO
+---
+
+Deswegen sandte der Vater den Logos, damit er der Welt erschiene, der von seinem Volk missachtet, von den Aposteln gepredigt und von den Heiden gläubig aufgenommen wurde. Dieser ist es, der von Anfang an war, als ein Neuer erschien und als der Alte erfunden wurde, der immerfort neu in den Herzen der Heiligen geboren wird. Er ist der Ewige, von dem es heißt, er sei „heute der Sohn“ (vgl. Ps 2,7). Durch ihn wird die Kirche bereichert und die Gnade, die sich in den Heiligen entfaltet, vermehrt, die da Verständnis gewährt, Geheimnisse erschließt, Zeiten ankündigt, sich an den Gläubigen erfreut, sich den Suchenden mitteilt, jenen nämlich, von denen die Gelöbnisse des Glaubens nicht gebrochen und die von den Vätern gesteckten Grenzen nicht überschritten werden. Dann wird die Gesetzesfurcht gepriesen, die Prophetengabe erkannt, der Glaube der Evangelien gefestigt und die Überlieferung der Apostel bewahrt; es frohlockt die Gnade der Kirche. Wenn du diese Gnade nicht betrübst, wirst du erkennen, was der Logos verkündet, durch wen und wann er will. \[…\] Wenn ihr darauf achtet und es mit Eifer anhört, werdet ihr innewerden, was Gott denen bietet, die ihn in rechter Weise lieben, die ihr geworden seid ein Paradies der Wonne und in euch aufsprossen lasst einen herrlich blühenden, fruchtbeladenen Baum, mit allerlei Früchten geschmückt. An diesem Ort nämlich ist ein Baum der Erkenntnis und ein Baum des Lebens gepflanzt \[…\] Wer aber mit Furcht erkennt und Leben sucht, der pflanzt auf Hoffnung in Erwartung der Frucht. Möge dir das Herz Erkenntnis und das wahre, tieferfasste Wort sein. Wenn du davon Holz trägst und Frucht nimmst, wirst du immerdar ernten.

@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 7 Oktober 2021 : Buch Maleachi 3,13-20a.'
+date: 2021-10-07T07:27:00.001+02:00
+draft: false
+url: /2021/10/donnerstag-7-oktober-2021-buch-maleachi.html
+---
+
+Was ihr über mich sagt, ist kühn, spricht der Herr. Doch ihr fragt: Was sagen wir denn über dich? Ihr sagt: Es hat keinen Sinn, Gott zu dienen. Was haben wir davon, wenn wir auf seine Anordnungen achten und vor dem Herrn der Heere in Trauergewändern umhergehen? Darum preisen wir die Überheblichen glücklich, denn die Frevler haben Erfolg; sie stellen Gott auf die Probe und kommen doch straflos davon. - Darüber redeten die miteinander, die den Herrn fürchten. Der Herr horchte auf und hörte hin, und man schrieb vor ihm ein Buch, das alle in Erinnerung hält, die den Herrn fürchten und seinen Namen achten. Sie werden an dem Tag, den ich herbeiführe - spricht der Herr der Heere -, mein besonderes Eigentum sein. Ich werde gut zu ihnen sein, wie ein Mann gut ist zu seinem Sohn, der ihm dient. Dann werdet ihr wieder den Unterschied sehen zwischen dem Gerechten und dem, der Unrecht tut, zwischen dem, der Gott dient, und dem, der ihm nicht dient. Denn seht, der Tag kommt, er brennt wie ein Ofen: Da werden alle Überheblichen und Frevler zu Spreu, und der Tag, der kommt, wird sie verbrennen, spricht der Herr der Heere. Weder Wurzel noch Zweig wird ihnen bleiben. Für euch aber, die ihr meinen Namen fürchtet, wird die Sonne der Gerechtigkeit aufgehen, und ihre Flügel bringen Heilung. Ihr werdet hinausgehen und Freudensprünge machen, wie Kälber, die aus dem Stall kommen.

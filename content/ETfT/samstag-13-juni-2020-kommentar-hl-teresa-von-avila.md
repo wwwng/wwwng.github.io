@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 13 Juni 2020 : Kommentar Hl. Teresa von Avila'
+date: 2020-06-12T18:13:00.001+02:00
+draft: false
+url: /2020/06/samstag-13-juni-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Ich kann nun das einmal Geschehene nicht mehr ungeschehen machen, und so bleibt mir nichts anderes übrig, als zu dieser Majestät meine Zuflucht zu nehmen und auf die Verdienste Jesu Christi und seiner jungfräulichen Mutter zu vertrauen, deren Kleid ich trotz meiner Unwürdigkeit trage. Auch ihr traget dieses Kleid; lobpreiset Gott dafür! Denn ihr seid in Wahrheit Töchter dieser Herrin. Ihr müsst euch deshalb nicht schämen, dass ich so böse bin, da ihr eine so heilige Mutter habt. Folget ihr nach und erwäget, wie erhaben diese Herrin sein muss, welch ein Glück es ist, sie zur Beschützerin zu haben \[…\] Auf eines jedoch möchte ich euch aufmerksam machen: Ihr dürft euch deshalb nicht für sicher halten, weil \[…\] ihr eine so heilige Mutter habt \[…\] Wir, die wir das Ordenskleid tragen, sind vielleicht der Ansicht, als sei damit schon alles getan, dass wir es freiwillig angenommen und um Gottes willen alle Dinge der Welt und unseren Besitz verlassen haben; denn waren dies auch nur Fischernetze, wie sie der hl. Petrus verlassen, so glaubt doch der, der seinen ganzen Besitz hingibt, viel zu geben. Dies ist allerdings eine sehr gute Vorbereitung, wenn man dabei beharrlich ist und nicht wieder, auch nicht dem Verlangen nach, zu dem Ungeziefer der ersten Gemächer zurückkehrt. Wer in der Losschälung von allem verharrt, wird ohne Zweifel das Ziel seines Strebens erreichen, vorausgesetzt, dass er sich, was wohl zu beachten ist, für einen unnützen Knecht hält, wie der hl. Paulus oder Christus sagt (Lk 17,10); er glaube nicht, unseren Herrn verpflichtet zu haben, ihm solche Gnaden zu erweisen; vielmehr sei er der Überzeugung, umso mehr schuldig zu sein, je mehr er empfangen habe.

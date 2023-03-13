@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 25 September 2019 : Buch Esra 9,5-9.'
+date: 2019-09-24T17:46:00.001+02:00
+draft: false
+url: /2019/09/mittwoch-25-september-2019-buch-esra-95.html
+tags: 
+- LECTIO
+---
+
+Zur Zeit des Abendopfers erhob ich, Esra, mich aus meiner Bußübung, mit zerrissenem Gewand und Mantel. Dann warf ich mich auf die Knie, breitete die Hände aus und betete zum Herrn, meinem Gott: Mein Gott, ich schäme mich und wage nicht, die Augen zu dir, mein Gott, zu erheben. Denn unsere Vergehen sind uns über den Kopf gewachsen; unsere Schuld reicht bis zum Himmel. Seit den Tagen unserer Väter bis heute sind wir in großer Schuld. Wegen unserer Vergehen wurden wir, unsere Könige und Priester, den Königen der Länder ausgeliefert, dem Schwert, der Gefangenschaft, der Plünderung und der Schande, wie es noch heute der Fall ist. Jetzt, für einen kurzen Augenblick, hat der Herr, unser Gott, uns Erbarmen gezeigt; er hat einen Rest gerettet und übrig gelassen und uns einen Ruheplatz an seinem heiligen Ort gewährt. So ließ unser Gott unsere Augen aufleuchten, er ließ uns ein wenig aufleben in unserer Knechtschaft. Ja, wir sind Knechte. Aber auch in unserer Knechtschaft hat unser Gott uns nicht verlassen. Er wandte uns die Gunst der Könige von Persien zu. Er ließ uns aufleben, so dass wir das Haus unseres Gottes wieder aufbauen und es aus den Trümmern wieder aufrichten konnten. Er gewährte uns ein geschütztes Gebiet in Juda und Jerusalem.

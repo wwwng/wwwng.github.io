@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 20 Februar 2020 : Kommentar Hl. Cyrill von Jerusalem'
+date: 2020-02-19T18:10:00.001+01:00
+draft: false
+url: /2020/02/donnerstag-20-februar-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wir sollten uns nicht des Kreuzes unseres Retters schämen, sondern uns vielmehr seiner rühmen. „Das Wort vom Kreuz ist \[…\] für Juden ein empörendes Ärgernis, für Heiden eine Torheit, für die Berufenen aber \[…\] Gottes Kraft und Gottes Weisheit“ (1 Kor 1,18–24). Denn nicht ein bloßer Mensch war es, der da starb, sondern der Sohn Gottes, Gott, der Mensch geworden war. Das Lamm zur Zeit des Mose hielt den Engel der Vernichtung fern (vgl. Ex 12,23); hat uns das „Lamm Gottes, das die Sünde der Welt hinwegnimmt“ (Joh 1,29), nicht weitaus mehr befreit von unseren Sünden? \[…\] Nicht durch Zwang ist er aus diesem Leben geschieden, nicht durch Gewalt wurde er geopfert, sondern aus eigenem Willen. Hört, was er sagt: „Ich habe Macht, mein Leben hinzugeben, und ich habe Macht, es wieder zu nehmen“ (vgl. Joh 10,18). \[…\] Er trat aus freiem Entschluss in seine Passion ein, froh über seine Ausbeute, lächelnd in seinem Triumph, glücklich, die Menschen zu retten. Er schämte sich des Kreuzes nicht, denn er erlöste dadurch die ganze Erde. Es war kein armer Mensch, der da litt, sondern der menschgewordene Gott, der kämpfte, um den Preis der Geduld zu erringen. \[…\] Freue dich des Kreuzes nicht nur in Zeiten des Friedens; bewahre denselben Glauben in Zeiten der Verfolgung. Sei nicht nur in Friedenszeiten der Freund Jesu, um in Kriegszeiten zu seinem Feind zu werden. Du empfängst jetzt die Vergebung deiner Sünden und die geistlichen Gaben, mit denen dein König dich überhäuft. Wenn dann der Krieg ausbricht, kämpfe tapfer für deinen König. Jesus wurde für dich gekreuzigt, er, der ohne Sünde war. Nicht du bist es, der ihm diese Gnade gegeben hat, denn du hast sie zuerst empfangen. Du aber danke dem, der deine Schuld bezahlt hat, indem er für dich auf Golgotha gekreuzigt wurde.

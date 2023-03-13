@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 9 Juli 2019 : Kommentar II. Vatikanisches Konzil'
+date: 2019-07-08T17:47:00.001+02:00
+draft: false
+url: /2019/07/dienstag-9-juli-2019-kommentar-ii.html
+tags: 
+- EVANGELIUM
+---
+
+Die Anwesenheit der Christen in den menschlichen Gemeinschaften muss von jener Liebe beseelt sein, mit der Gott uns geliebt hat, der will, dass wir einander mit derselben Liebe begegnen. Die christliche Liebe erstreckt sich auf alle, ohne Unterschied von Rasse, gesellschaftlicher Stufe oder Religion; sie erwartet nicht Gewinn oder Dankbarkeit; denn wie Gott sich uns mit ungeschuldeter Liebe zugewandt hat, so sind auch die Gläubigen in ihrer Liebe auf den Menschen selbst bedacht und lieben ihn mit der gleichen Zuwendung, mit der Gott den Menschen gesucht hat. Wie also Christus durch die Städte und Dörfer zog, jederlei Krankheit und Gebrechen heilend zum Zeichen der kommenden Gottesherrschaft so ist auch die Kirche durch ihre Kinder mit Menschen jeden Standes verbunden, besonders aber mit den Armen und Leidenden \[…\]. Sie nimmt an ihren Freuden und Schmerzen teil; sie weiß um die Erwartungen und die Rätsel des Lebens, sie leidet mit in den Ängsten des Todes. Denen, die Frieden suchen, bemüht sie sich in brüderlichem Gespräch zu antworten, indem sie ihnen Frieden und Licht aus dem Evangelium anbietet. Bei der Aufrichtung einer gesunden Wirtschafts- und Sozialordnung sollen die Christgläubigen ihre Arbeit einsetzen und mit allen anderen zusammenarbeiten. Mit besonderer Sorge mögen sie sich der Erziehung der Kinder und der heranwachsenden Jugend \[…\] annehmen \[…\] Ferner sollen sie sich an den Anstrengungen der Völker beteiligen, die sich bemühen, im Kampf gegen Hunger, Unwissenheit und Krankheit bessere Lebensverhältnisse zu schaffen und den Frieden in der Welt zu festigen. \[…\] Dabei will sich die Kirche auf keine Weise in die Leitung des irdischen Staatswesens einmischen. Sie beansprucht kein anderes Recht, als mit Gottes Hilfe in Liebe und treuer Bereitschaft den Menschen zu dienen.

@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 9 Januar 2020 : Kommentar Hl. Bernhard'
+date: 2020-01-08T17:57:00.001+01:00
+draft: false
+url: /2020/01/donnerstag-9-januar-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+„Die Güte und Menschenfreundlichkeit Gottes, unseres Retters, ist erschienen“ (vgl. Tit 3,4). Danken wir Gott, der uns seinen überreichen Trost spendet \[…\], uns, die wir in diesem Exil, in diesem irdischen Elend auf Pilgerschaft sind. Vor seiner Menschwerdung war seine Güte noch verhüllt. Gewiss gab es sie schon immer, denn „die Huld des HERRN währt immer und ewig“ (Ps 103(102),17). Aber wie hätten wir wissen können, dass sie von solcher Größe ist? Sie war Inhalt einer Verheißung, nicht einer Erfahrung. Und deshalb glaubten viele nicht daran \[…\] Nun aber können die Menschen an das glauben, was sie sehen; denn „deine Zeugnisse sind überaus treu bewährt“, und damit sie niemandem verborgen bleiben, „schlug er sein Zelt in der Sonne auf“ (vgl. Ps 92,5 Vulg.; vgl. 18,6 Vulg.). Jetzt ist der Friede nicht mehr verheißen, sondern gestiftet; nicht mehr auf später verschoben, sondern gewährt; nicht mehr vorhergesagt, sondern angeboten. Nun hat Gott die Schatztruhe seines Erbarmens auf die Erde gesandt, die Schatztruhe, die durch die Passion geöffnet werden sollte, um den wertvollen Preis unseres Heils auszugießen, der darin verborgen war \[…\] Denn wenn es auch nur ein kleines Kind ist, das uns geschenkt worden ist (Jes 9,5), „so wohnt doch die ganze Fülle Gottes in ihm“ (vgl. Kol 2,9). Als die Fülle der Zeiten gekommen war, wurde die Gottheit Fleisch, um für die Augen unseres Leibes sichtbar zu werden; und als wir sahen, was für ein Mensch er war und wie freundlich, da erkannten wir seine Güte \[…\] Was könnte seine Barmherzigkeit stärker unter Beweis stellen als die Tatsache, dass er unser Elend auf sich genommen hat? „Herr!, was ist der Mensch, dass du dich ihm zu erkennen gibst und dass du ihn so hoch achtest?“ (vgl. Ps 143,3 Vulg.; Ijob 7,17 Vulg.).

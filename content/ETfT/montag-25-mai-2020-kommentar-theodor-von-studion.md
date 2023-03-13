@@ -1,0 +1,10 @@
+---
+title: 'Montag, 25 Mai 2020 : Kommentar Theodor von Studion'
+date: 2020-05-24T17:47:00.001+02:00
+draft: false
+url: /2020/05/montag-25-mai-2020-kommentar-theodor.html
+tags: 
+- EVANGELIUM
+---
+
+Nichts soll den Lauf derer behindern, die Gefährten auf dem Weg dieses Lebens nach dem Evangelium auf Erden sind. Mag auch der Weg steinig und mühsam sein: Wir wollen leichtfüßig einherschreiten, eine mutige und mannhafte Seele zeigen, Hindernisse überwinden, von einem Pfad zum andern, von einem Hügel zum nächsten gehen, bis wir schließlich den Berg des Herrn erklimmen, wo wir uns am heiligen Ort seiner Ruhe niederlassen. Unterwegs helfen sich die Gefährten gegenseitig; sagt doch der Apostel: „Einer trage des anderen Last“ (Gal 6,2), meine Brüder, und „helft eurem Mangel gegenseitig ab“ (vgl. 2 Kor 8,14; vgl. Phil 2,30). Auf die Nachlässigkeit, die vielleicht heute herrscht, wird morgen edler Mut folgen; jetzt sind wir in Traurigkeit versunken, und dann erheben wir wieder das Haupt und finden zur Freude zurück; in diesem Moment erheben sich Leidenschaften, bald aber kommt uns Gott zu Hilfe, die Leidenschaften schwinden und es kehrt wieder Ruhe ein. Man wird dich nämlich morgen nicht so sehen, wie du gestern und vorgestern warst, und du bleibst nicht immer der gleiche, mein Lieber. Denn die Gnade Gottes wird sich dir nahen, der Herr wird für dich kämpfen, und vielleicht wirst du dann, wie der große Antonius, fragen: „Wo bist du denn bloß gewesen?!“ Und er wird dir antworten: „Ich wollte sehen, wie du kämpfst“. Lasst uns durchhalten, Kinder, meine Kinder; lasst uns geduldig sein, Brüder, meine Brüder. \[…\] Wer erhält den Siegeskranz, ohne gekämpft zu haben? Wer wird sich denn ausruhen, wenn er nicht müde ist (vgl. 2 Tim 2,5–6)? Wer wird die Früchte des Lebens ernten, ohne Tugenden in seine Seele gepflanzt zu haben? Pflegt sie, bereitet mit größter Sorgfalt das Erdreich vor, nehmt die Mühe auf euch, schwitzt, Kinder, Arbeiter Gottes, Nachahmer der Engel, Mitstreiter körperloser Wesen, Lichter für jene, die in der Welt sind (vgl. Phil 2,15)!

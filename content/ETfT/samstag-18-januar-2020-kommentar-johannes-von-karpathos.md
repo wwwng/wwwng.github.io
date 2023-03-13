@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 18 Januar 2020 : Kommentar Johannes von Karpathos'
+date: 2020-01-17T18:04:00.001+01:00
+draft: false
+url: /2020/01/samstag-18-januar-2020-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Der große Arzt der Leidenden ist nahe. Er hat auf sich genommen unsere Krankheiten. Er hat uns geheilt, und er hat uns geheilt durch seine Wunden (vgl. Jes 53,5; vgl. Mt 8,17). Er ist da; er wendet jetzt die heilsamen Arzneien an. Es heißt ja: Ich bin es, der geschlagen hat, der preisgegeben hat, und ich bin es, der heilen wird (vgl. Dt 32,39). Hab also keine Angst. Wenn sich mein glühender Zorn gelegt hat, werde ich wieder heilen. Wie eine Frau niemals vergessen wird, Mitleid mit ihren Kindern zu haben, so werde ich dich nicht vergessen, sagt der Herr (vgl. Jes 49,15). Wenn der Vogel seine Jungen mit Zärtlichkeit überschüttet, wenn er jeden Augenblick zu ihnen hinfliegt, wenn er sie lockt, wenn er ihnen Nahrung in den Schnabel steckt – um wie viel mehr ergießt sich mein Mitgefühl über meine Geschöpfe! Noch viel mehr ergießt sich meine Zärtlichkeit über dich. Ich besuche dich heimlich. Ich spreche zu deinem Verstand. Ich bringe die Nahrung für dein Nachdenken, das sich öffnet wie der Schnabel der kleinen Schwalbe. Ich bringe dir die Nahrung der Ehrfurcht vor dem Allmächtigen, die Nahrung der Sehnsucht nach dem Himmel, die Nahrung des Trostes in Kummer, die Nahrung der Gewissensbisse, die Nahrung des Gesanges, die Nahrung tiefster Erkenntnis, die Nahrung göttlicher Geheimnisse. Wenn ich aber lüge, indem ich so zu dir spreche, ich, der ich dein Meister und dein Vater bin, so weise es mir nach, und ich bin still. So spricht der Herr unaufhörlich zu unseren Gedanken. Der Vater des Erbarmens und Gott allen Trostes (2 Kor 1,3) gebe euch ewigen Trost und gute Hoffnung in Christus Jesus, unserem Herrn. Ihm sei Ehre und Macht in alle Ewigkeit. Amen.

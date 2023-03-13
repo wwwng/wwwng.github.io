@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 8 Februar 2022 : Kommentar Hl. Augustinus'
+date: 2022-02-08T09:11:00.001+01:00
+draft: false
+url: /2022/02/dienstag-8-februar-2022-kommentar-hl.html
+---
+
+„Das Gesetz des Geistes und des Lebens in Christus Jesus hat dich frei gemacht vom Gesetz der Sünde und des Todes“ (Röm 8,2). \[…\] Paulus sagt, dass das Gesetz des Mose gegeben wurde, um unsere Schwachheit aufzuzeigen, und nicht nur um sie aufzuzeigen, sondern um sie zu vergrößern und uns dadurch zu zwingen, den Arzt zu suchen \[…\]: „Wo jedoch die Sünde übermächtig wurde, ist die Gnade übergroß geworden“ (vgl. Röm 3,20, 5,20). \[...\] Warum hat das erste Gesetz, das doch vom Finger Gottes geschrieben wurde (vgl. Ex 31,18), nicht diese so notwendige Gnadenhilfe gebracht? Weil es auf Tafeln von Stein geschrieben war und nicht auf Tafeln von Fleisch, welche unsere Herzen sind (2 Kor 3,3). \[…\] Der Heilige Geist ist es, der nicht auf Stein, sondern ins Herz schreibt. „Das Gesetz des Geistes und des Lebens“ (Röm 8,2), das in das Herz und nicht auf Stein geschrieben ist, dieses Gesetz des Geistes und des Lebens, das in Jesus Christus ist, in dem das Pascha in aller Wahrheit gefeiert worden ist (vgl. 1 Kor 5,7–8), hat euch vom Gesetz der Sünde und des Todes befreit. Wollt ihr einen Beweis für den klaren und deutlichen Unterschied, der das Alte Testament vom Neuen scheidet? \[…\] So hört, was der Herr durch den Mund eines Propheten gesprochen hat \[…\]: „Ich lege mein Gesetz in sie hinein und schreibe es auf ihr Herz“ (Jer 31,33). Wenn also das Gesetz Gottes in dein Herz eingeschrieben ist, erzeugt es keine Angst \[wie am Sinai\], sondern breitet in deiner Seele eine geheime Süße aus.

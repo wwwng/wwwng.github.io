@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 5 März 2021 : Kommentar Hl. Katharina von Siena'
+date: 2021-03-04T18:13:00.001+01:00
+draft: false
+url: /2021/03/freitag-5-marz-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Mein liebster Vater und Bruder in Christus, dem süßen Jesus, ich, Katharina, Sklavin der Diener Gottes, schreibe Euch in seinem kostbaren Blut mit dem Wunsch, Euch als einen guten Arbeiter im Weinberg Eurer Seele zu sehen, damit Ihr zur Zeit der Ernte, das heißt zur Zeit des Todes, wenn jeder Fehler bestraft und jede Tugend belohnt wird, viel Frucht tragt. Ihr wisst, dass die ewige Wahrheit uns nach seinem Bild und Gleichnis geschaffen hat; Gott hat uns zu seinem Tempel gemacht, in dem er durch seine Gnade wohnen möchte, vorausgesetzt, dass der Arbeiter dieses Weinbergs bereit ist, ihn gut zu bearbeiten; denn wenn er nicht bearbeitet wird, wenn er mit Dornen und Disteln bedeckt ist, wird Gott dort nicht wohnen können. Lasst uns sehen, lieber Vater, welchen Arbeiter den Meister dort hingestellt hat. Er hat dort den freien Willen hingestellt, dem alle Macht anvertraut ist. Niemand kann die Tür des Willens öffnen oder schließen, wenn der freie Wille es nicht will. Das Licht des Verstandes ist ihm gegeben, um Freunde und Feinde zu erkennen, die eintreten und durch die Tür hereinkommen wollen; und an dieser Tür hat der Hund des Gewissens seinen Platz, der bellt, sobald er jemanden kommen hört, wenn er wach ist und nicht schläft. Dieses Licht lässt den Arbeiter die Frucht sehen und erkennen; er entfernt die Erde, damit die Frucht rein ist, und legt sie in sein Gedächtnis wie in einen Kornspeicher, wo die Erinnerungen an die Wohltaten Gottes gespeichert werden. In der Mitte des Weinbergs steht das Gefäß seines Herzens, gefüllt mit dem kostbaren Blut, um die Pflanzen zu gießen, damit sie nicht verdorren. So ist dieser Weinberg geschaffen und angelegt, der auch, wie wir gesagt haben, der Tempel ist, in dem Gott durch seine Gnade wohnen sollte.

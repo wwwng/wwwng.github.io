@@ -1,0 +1,8 @@
+---
+title: 'Freitag, 19 November 2021 : Kommentar Hl. Augustinus'
+date: 2021-11-19T09:11:00.001+01:00
+draft: false
+url: /2021/11/freitag-19-november-2021-kommentar-hl.html
+---
+
+Im Tempel Gottes betet man dann, wenn man im Frieden der Kirche betet, in der Einheit des Leibes Christi, denn der Leib Christi besteht aus der Vielzahl der Gläubigen, die über die ganze Erde verteilt sind. \[…\] Um erhört zu werden, muss man in diesem Tempel beten, „im Geist und in der Wahrheit“ (Joh 4,23), und nicht in dem Tempel aus Steinen zu Jerusalem. Letzterer war nur „ein Schatten von dem, was kommen wird“ (Kol 2,17), deshalb musste er zugrunde gehen. \[…\] Dieser Tempel, der zerstört wurde, kann nicht das Haus des Gebets sein, von dem gesagt worden ist: „Mein Haus wird ein Haus des Gebets für alle Völker genannt“ (vgl. Mk 11,17; Jes 56,7). Waren wirklich jene, die aus ihm eine „Räuberhöhle“ machen wollten, die Ursache für seinen Untergang? Genauso wenig können jene, die in der Kirche ein unordentliches Leben führen, jene, die das Haus Gottes – so es in ihrer Macht steht – zu einer Räuberhöhle machen wollen, diesen Tempel niederreißen. Es wird eine Zeit kommen, da sie hinausgejagt werden unter der Geißel ihrer Sünden. Diese Gemeinschaft der Gläubigen, der Tempel Gottes und Leib Christi, hat nur eine Stimme und singt wie aus einem Mund. \[…\] Wenn wir es wollen, ist es unsere Stimme; wenn wir sie singen hören und es wollen, singen auch wir in unserem Herzen.

@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 20 Juli 2018 : Kommentar Aphraat'
+date: 2018-07-19T17:47:00.001+02:00
+draft: false
+url: /2018/07/freitag-20-juli-2018-kommentar-aphraat.html
+tags: 
+- MEDITATIO
+---
+
+Durch Vermittlung seines Dieners Mose hat der Herr den Söhnen Israels geboten, den Sabbat einzuhalten: „Sechs Tage darfst du schaffen und all deine Arbeit tun. Der siebte Tag ist ein Ruhetag, dem HERRN, deinem Gott, geweiht“ (Ex 20,9-10). \[...\] Er hat sie wissen lassen: Du sollst ausruhen, dein Sklave, deine Sklavin, dein Vieh und dein Esel. Er hat sogar hinzugefügt: Der Tagelöhner und der Fremde sollen sich ebenfalls ausruhen, wie auch alles Vieh, das sich in deinem Dienst abmüht (vgl. Ex 23,12) \[...\] Der Sabbat ist nicht auferlegt worden als eine Prüfung, als eine Wahl zwischen Leben und Tod, zwischen rechtem Tun und Sünde, wie die anderen Vorschriften, von denen es abhängt, ob der Mensch leben kann oder sterben muss. Nein, der Sabbat ist seinerzeit dem Volk geschenkt worden zur Ruhe – nicht nur des Menschen, sondern auch des Viehs \[...\] Höre nun, welcher Art der Sabbat ist, der Gott gefällt. Jesaja sagt: „Gönnt doch den Müden die Rast“ (vgl. 28,12). Und an anderer Stelle: „Die meinen Sabbat halten ohne ihn zu schänden, das sind diejenigen, die gestärkt sind durch meinen Bund und gerne tun, was mir gefällt“ (vgl. Jes 56,4) \[...\] Der Sabbat ist von keinerlei Nutzen für Böse, für Mörder, für Diebe. Aber wer gerne tut, was Gott gefällt und seine Hände vor dem Bösen bewahrt, in denen wohnt Gott; er macht sie zu seiner Wohnstätte gemäß seinem Wort: „Ich will unter ihnen wohnen und will in ihrer Mitte gehen“ (2 Kor 6,16; vgl. Lev 26,12) \[...\] Halten wir also zuverlässig den Sabbat Gottes, das heißt das, was seinem Herzen gefällt. So werden wir eintreten in den Sabbat der großen Ruhe, den Sabbat des Himmels und der Erde, wo alle Kreatur zur Ruhe kommt.

@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 7 August 2018 : Kommentar Isaak der Syrer '
+date: 2018-08-06T17:43:00.001+02:00
+draft: false
+url: /2018/08/dienstag-7-august-2018-kommentar-isaak.html
+tags: 
+- MEDITATIO
+---
+
+Wessen Herz in der gläubigen Hoffnung verankert ist, der leidet niemals Mangel. Er hat nichts, durch den Glauben jedoch besitzt er alles, wie geschrieben steht: „Und alles, was ihr im Gebet erbittet, werdet ihr erhalten, wenn ihr glaubt“ und „Der Herr ist nahe. Sorgt euch um nichts“ (Mt 21,22; Phil 4,5-6). Der Verstand sucht immer nach Möglichkeiten, Erworbenes für sich zu behalten. Der Glaube jedoch sagt: „Wenn nicht der HERR das Haus baut, mühen sich umsonst, die daran bauen“ (Ps 126(127),1). Wer im Glauben betet, lebt niemals nur vom Wissen, das aus dem Verstand kommt. Wer sich dessen bewusst ist, findet lobende Worte für die Furcht. Ein Weiser sagte einmal: „Wessen Herz Furcht kennt, der ist selig“. Und was sagt der Glaube dazu? „Als er Angst bekam, begann er unterzugehen“, und „denn ihr habt nicht einen Geist der Knechtschaft empfangen, sodass ihr immer noch Furcht haben müsstet, sondern ihr habt den Geist der Kindschaft empfangen“ (vgl. Röm 8,15) und der euch frei macht, zu glauben und auf Gott zu hoffen. Der Furcht folgt immer der Zweifel \[...\]; immer treten Furcht und Zweifel auf, wenn der Verstand Sachverhalte prüft und nach deren Ursachen forscht; denn der Verstand findet keine Ruhe. Die Seele sieht sich häufig mit Unvorhergesehenem konfrontiert, mit Schwierigkeiten und zahlreichen, gefährlichen Fallen, und dabei können ihr weder Intelligenz noch Klugheit in ihren verschiedenen Formen helfen. Dagegen wird der Glaube nie durch derlei Erschwernisse überwältigt. Siehst du nun, wie schwach das Wissen ist und wie stark der Glaube? Der Glaube sagt: „Alles kann, wer glaubt, denn für Gott ist alles möglich“ (vgl. Mk 9,23; 10,27). Welch unaussprechlich großer Reichtum! Ein Meer, das in seinen Wogen solchen Reichtum, solch wunderbare Schätze trägt, das es durch die Kraft des Glaubens überläuft!

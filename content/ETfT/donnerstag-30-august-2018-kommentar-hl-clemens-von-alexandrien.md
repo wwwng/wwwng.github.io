@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 30 August 2018 : Kommentar Hl. Clemens von Alexandrien'
+date: 2018-08-29T17:49:00.005+02:00
+draft: false
+url: /2018/08/donnerstag-30-august-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Man muss also so einschlafen, dass man leicht wieder aufwacht. Denn die Schrift sagt: „Es sollen eure Hüften umgürtet und eure Lampen brennend sein! Und ihr sollt Leuten gleichen, die darauf warten, wann ihr Herr von der Hochzeitsfeier aufbrechen wird, damit sie ihm sofort aufmachen, wenn er kommt und an die Türe klopft. Selig sind jene Knechte, die der Herr bei seinem Kommen wachend findet“ (vgl. Lk 12,35-37). Denn ein schlafender Mensch nützt ebenso wenig etwas wie ein toter. Deshalb müssen wir uns in der Nacht oft von unsern Lagern erheben und Gott preisen. Denn selig sind, die für ihn wach sind und sich so selbst den Engeln vergleichbar machen, die wir die Wachenden nennen. Kein schlafender Mensch aber ist irgendetwas wert, ebenso wenig wie einer, der nicht lebt. Wer aber das Licht hat, der wacht, und die Finsternis hat keine Gewalt über ihn (vgl. Joh 1,5), aber auch der Schlaf nicht, ebenso wenig wie die Finsternis. Der Erleuchtete ist also für Gott wach, und ein solcher hat das Leben. „Denn was in ihm geworden ist, war Leben“ (vgl. Joh 1,3f.). „Selig ist der Mensch“, so sagt die Weisheit, „der auf mich hören wird, und ein Mensch, der auf meine Wege acht gibt, indem er Tag für Tag an meinen Türen wacht und die Türpfosten an meinem Eingang hütet“ (vgl. Spr 8,34). „Lasst uns darum nicht schlafen wie die anderen, sondern lasst uns wachen“, sagt die Schrift „und nüchtern sein! Denn die da schlafen, schlafen bei Nacht und die sich berauschen, berauschen sich bei Nacht“, das heißt im Dunkel der Unwissenheit; „wir aber als Kinder des Tags wollen nüchtern sein. Denn ihr alle seid Kinder des Lichts und des Tages; wir sind nicht Kinder der Nacht oder der Finsternis“ (vgl. 1 Thess 5,6-8.5).

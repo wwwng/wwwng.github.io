@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 24 September 2019 : Buch Esra 6,7-8.12b.14-20.'
+date: 2019-09-23T17:46:00.001+02:00
+draft: false
+url: /2019/09/dienstag-24-september-2019-buch-esra-67.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen schrieb König Darius an die Beamten des Gebietes jenseits des Stromes: Lasst die Arbeit am Gotteshaus weitergehen! Der Statthalter der Juden und ihre Ältesten mögen das Gotteshaus an seiner früheren Stelle wieder aufbauen. Auch ordne ich an, wie ihr die Ältesten der Juden dort beim Bau jenes Gotteshauses unterstützen sollt: Aus den königlichen Einkünften, die das Gebiet jenseits des Stroms aufbringt, sollen jenen Männern pünktlich die Kosten bezahlt werden, damit sie nicht aufgehalten werden. Der Gott aber, der seinen Namen dort wohnen lässt, vernichte jeden König und jedes Volk, die sich unterfangen, den Erlass zu missachten und jenes Gotteshaus in Jerusalem zu zerstören. Ich, Darius, habe den Befehl gegeben; man befolge ihn genau. Die Ältesten der Juden bauten weiter. Dank der Wirksamkeit Haggais, des Propheten, und Sacharjas, des Sohnes Iddos, kamen sie gut voran. Sie konnten den Bau vollenden, wie der Gott Israels es geboten und wie Kyrus und Darius sowie der Perserkönig Artaxerxes es befohlen hatten. Das Gotteshaus war fertig am dritten Tag des Monats Adar, im sechsten Jahr der Regierung des Königs Darius. Die Israeliten, die Priester, die Leviten und die übrigen, die heimgekehrt waren, feierten voll Freude die Einweihung dieses Gotteshauses. Bei der Einweihung des Gotteshauses brachten sie als Opfer dar: hundert Stiere, zweihundert Widder und vierhundert Lämmer, dazu als Sündopfer für ganz Israel zwölf Ziegenböcke, entsprechend der Zahl der Stämme Israels. Für den Gottesdienst in Jerusalem bestellten sie die Priester nach ihren Klassen und die Leviten nach ihren Abteilungen, wie es das Buch des Mose vorschreibt. Am vierzehnten Tag des ersten Monats feierten die Heimkehrer das Pascha-Fest. Jeder der Priester und Leviten hatte sich gereinigt, so dass sie alle rein waren. Die Leviten schlachteten das Paschalamm für alle Heimkehrer und für ihre Brüder, die Priester, und für sich selbst.

@@ -1,0 +1,10 @@
+---
+title: 'Montag, 30 Dezember 2019 : Erster Johannesbrief 2,12-17.'
+date: 2019-12-29T17:53:00.001+01:00
+draft: false
+url: /2019/12/montag-30-dezember-2019-erster.html
+tags: 
+- LECTIO
+---
+
+Ich schreibe euch, ihr Kinder, dass euch durch den Namen Jesu die Sünden vergeben sind. Ich schreibe euch, ihr Väter, dass ihr den erkannt habt, der von Anfang an ist. Ich schreibe euch, ihr jungen Männer, dass ihr den Bösen besiegt habt. Ich schreibe euch, ihr Kinder, dass ihr den Vater erkannt habt. Ich schreibe euch, ihr Väter, dass ihr den erkannt habt, der von Anfang an ist. Ich schreibe euch, ihr jungen Männer, dass ihr stark seid, dass das Wort Gottes in euch bleibt und dass ihr den Bösen besiegt habt. Liebt nicht die Welt und was in der Welt ist! Wer die Welt liebt, hat die Liebe zum Vater nicht. Denn alles, was in der Welt ist, die Begierde des Fleisches, die Begierde der Augen und das Prahlen mit dem Besitz, ist nicht vom Vater, sondern von der Welt. Die Welt und ihre Begierde vergeht; wer aber den Willen Gottes tut, bleibt in Ewigkeit.

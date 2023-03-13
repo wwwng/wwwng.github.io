@@ -1,0 +1,10 @@
+---
+title: 'Montag, 20 April 2020 : Kommentar Römisches Messbuch'
+date: 2020-04-19T18:01:00.001+02:00
+draft: false
+url: /2020/04/montag-20-april-2020-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Allmächtiger, ewiger Gott, deine unsichtbare Macht bewirkt das Heil der Menschen durch sichtbare Zeichen. Auf vielfältige Weise hast du das Wasser dazu erwählt, dass es hinweise auf das Geheimnis der Taufe: Schon im Anfang der Schöpfung schwebte dein Geist über dem Wasser und schenkte ihm die Kraft, zu retten und zu heiligen. Selbst die Sintflut war ein Zeichen der Taufe, denn das Wasser brachte der Sünde den Untergang und heiligem Leben einen neuen Anfang. Als die Kinder Abrahams, aus Pharaos Knechtschaft befreit, trockenen Fußes das Rote Meer durchschritten, da waren sie ein Bild deiner Gläubigen, die durch das Wasser der Taufe aus der Knechtschaft des Bösen befreit sind. Allmächtiger, ewiger Gott, dein geliebter Sohn wurde von Johannes im Jordan getauft und von dir gesalbt mit Heiligem Geiste. Als er am Kreuz hing, flossen aus seiner Seite Blut und Wasser. Nach seiner Auferstehung befahl er den Jüngern: „Geht hin und lehret alle Völker und taufet sie im Namen des Vaters und des Sohnes und des Heiligen Geistes.“ Allmächtiger, ewiger Gott, schau gnädig auf deine Kirche und öffne ihr den Brunnen der Taufe. Dieses Wasser empfange die Gnade deines eingeborenen Sohnes vom Heiligen Geiste, damit der Mensch, der auf dein Bild hin geschaffen ist, durch das Sakrament der Taufe gereinigt wird von der alten Schuld und aus Wasser und Heiligem Geiste aufersteht zum neuen Leben deiner Kinder. Durch deinen geliebten Sohn steige herab in dieses Wasser die Kraft des Heiligen Geistes, damit alle, die durch die Taufe mit Christus begraben sind in seinen Tod, durch die Taufe mit Christus auferstehn zum ewigen Leben. Darum bitten wir durch Jesus Christus, deinen Sohn, unseren Herrn und Gott, der in der Einheit des Heiligen Geistes mit dir lebt und herrscht in Ewigkeit. Amen.

@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 29 Juni 2019 : Kommentar Isaak von Stella'
+date: 2019-06-28T17:46:00.005+02:00
+draft: false
+url: /2019/06/samstag-29-juni-2019-kommentar-isaak.html
+tags: 
+- MEDITATIO
+---
+
+„Jene aber sind die ehrwürdigen Männer, deren Hoffnung nicht vergeht. Bei ihren Nachkommen bleibt ihr Gut, ihr Erbe bei ihren Enkeln“ (Sir 44,10–11). Wir feiern, geliebte Brüder, den Tag der Geburt der Apostel Petrus und Paulus; und es ist ganz angemessen \[…\] dass ein solcher Tod als Geburt bezeichnet wird, da er Leben hervorbringt \[…\] Das ist der Werdegang der Heiligen: durch diesen Tod, der das Leben hervorbringt, verlassen sie dieses Leben, das zum Tod führt, um zu dem lebendig machenden Leben zu gelangen, das in der Hand desjenigen ist, der „das Leben in sich hat“, des Vaters, wie Christus es ausdrückt (Joh 5,26). \[…\] Es gibt drei Arten von Menschen, die barmherzig sind. Die ersten geben von ihrem Besitz \[…\], um durch ihren Überfluss den Mangel von anderen auszugleichen \[…\] Die zweiten verteilen ihren gesamten Besitz, und haben von da an \[…\] alles mit anderen gemeinsam \[…\] Was die dritten angeht, so geben sie nicht nur alles her, sondern „reiben sich selber ganz auf“ (vgl. 2 Kor 12,15) und nehmen die Gefahren von Gefängnis, Exil und Tod auf sich, um die anderen aus der Gefahr zu befreien, in der sich ihre Seelen befinden. Sie gehen mit sich selbst verschwenderisch um, weil ihnen nur die anderen am Herzen liegen. Sie werden den Lohn für ihre Liebe erhalten, „es gibt keine größere Liebe, als sein Leben hinzugeben für seine Freunde“ (vgl. Joh 15,13) \[…\] Das sind die ruhmreichen Fürsten der Erde und Diener des Himmels, deren siegreichen Tod wir heute – nach lang währenden Entbehrungen durch „Hunger und Durst, Kälte und Blöße“, nach schweren Mühsalen und Gefahren, verursacht „durch das eigene Volk, Heiden und falsche Brüder“ (2 Kor 11,26–27) – feiern. Auf solche Männer trifft dieser Satz zu: „Ihre Wohltaten geraten nicht in Vergessenheit“, weil sie die Barmherzigkeit nicht vergessen haben \[…\] Ja, den Barmherzigen „fällt auf schönem Land ihr Anteil zu, ihr Erbe gefällt ihnen gut“ (vgl. Ps 16(15),6).

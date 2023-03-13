@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 30 April 2020 : Kommentar Hl. Theresia vom Kinde Jesu'
+date: 2020-04-29T17:58:00.001+02:00
+draft: false
+url: /2020/04/donnerstag-30-april-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Meine Mutter, ich glaube, ich muss Ihnen zu der Stelle aus dem Hohenlied: – „Ziehe mich an dich, wir werden eilen“, noch einige Erklärungen geben \[…\] „Niemand“, hat Jesus gesagt, „kann mir nachfolgen, wenn MEIN VATER, der mich gesandt hat, ihn nicht zieht“ (Joh 6,44). Darauf lehrt Er uns \[…\], dass es genügt zu klopfen, damit aufgetan werde, zu suchen, um zu finden und demütig die Hand hinzustrecken, um das zu erhalten, worum man bittet (vgl. Mt 7,8) … Er sagt ferner, sein Vater gewähre alles, worum man Ihn in seinem Namen bittet (Joh 16,23) \[…\] Was bedeutet denn die Bitte, „Angezogen“ zu werden anderes, als sich aufs innigste mit dem Gegenstand vereinen zu wollen, der das Herz in Bann schlägt? Wenn Feuer und Eisen vernunftbegabt wären, und dieses zu jenem sagte: Ziehe mich an, bewiese das nicht, dass es mit dem Feuer so eins sein möchte, dass dieses es durchdringe und durchtränke mit seiner brennenden Substanz und nur mehr eins scheine mit ihm. Vielgeliebte Mutter, das ist mein Gebet, ich bitte Jesus, mich in die Flammen seiner Liebe hineinzuziehen, mich so innig mit Ihm zu vereinen, dass Er in mir lebe und wirke. Ich fühl’ es, je mehr das Feuer der Liebe mein Herz durchglüht, je mehr ich zu sagen vermag: Ziehe mich an dich, umso mehr werden auch die Seelen, die sich mir nahen werden (einem armseligen, unnützen Stückchen Eisen, sobald ich mich vom göttlichen Glutofen entfernte), mit Geschwindigkeit dem Duft der Wohlgerüche ihres Viel-Geliebten nacheilen, denn eine von Liebe entflammte Seele kann nicht untätig bleiben; gewiss sitzt sie wie die Hl. Magdalena zu Füßen Jesu, sie lauscht seinem süßen, feurigen Wort. Sie scheint nichts zu geben und gibt doch viel mehr als Martha (vgl. Lk 10,41) \[…\].

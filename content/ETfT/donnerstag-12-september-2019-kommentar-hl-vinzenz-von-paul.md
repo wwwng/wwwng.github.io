@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 12 September 2019 : Kommentar Hl. Vinzenz von Paul'
+date: 2019-09-11T17:44:00.001+02:00
+draft: false
+url: /2019/09/donnerstag-12-september-2019-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Meine Tochter, wenn ich Sie recht verstehe, meinen Sie, dass es besser sei, eine Zurechtweisung schweigend zu ertragen, als uns zu verteidigen, wenn uns jemand ungerechtfertigt einen Fehler vorwirft. Oh, ich bin gewiss Ihrer Meinung, dass es angemessener ist, so zu handeln, vorausgesetzt, dass das Schweigen keine Sünde ist oder die Interessen des Nächsten beeinträchtigt. So ahmen wir unseren Herrn nach. Wie viele Menschen haben ihn doch angeklagt, sein Leben verurteilt, seine Lehre missbilligt, ihn auf abscheuliche Weise verhöhnt! Doch er hat sich kein einziges Mal gerechtfertigt. Sie führten ihn vor Pilatus und Herodes, er aber sagte nichts zu seiner Verteidigung. Schließlich ließ er sich ans Kreuz nageln. Es gibt nichts Besseres, als seinem Bespiel zu folgen. Meine lieben Schwestern, ich möchte Ihnen bei dieser Gelegenheit eines sagen: Ich habe es noch nie erlebt, dass jemand Nachteile erlitten habe, weil er sich nicht gerechtfertigt hat. Niemals. Es ist nicht unsere Aufgabe, den Fall aufzuklären. Wenn man uns einen Fehler zuschreibt, den wir nicht begangen haben, so ist es nicht unsere Aufgabe, uns zu verteidigen. Meine Töchter, Gott möchte, dass wir das Urteil ihm überlassen. Er wird zu gegebener Zeit sehr wohl wissen, die Wahrheit kundzutun. Ja, wenn Sie nur wüssten, wie gut es ist, ihm alle Sorgen zu überlassen, dann hätten Sie keinen Grund, sich zu rechtfertigen. Gott sieht, was uns auferlegt wird; und er lässt es zu, um unsere Treue zu prüfen. Er weiß, wie Sie es annehmen; er kennt den Nutzen, den Sie daraus ziehen werden, oder den Schaden, den Sie damit anrichten. Wenn er also zulässt, dass man Sie angeklagt, dann wird er später auch die Wahrheit offenbaren. Dies ist ein wahrer und zuverlässiger Grundsatz, meine Töchter: Gott rechtfertigt die, welche nicht meinen, sich selbst rechtfertigen zu müssen.

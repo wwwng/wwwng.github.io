@@ -1,0 +1,10 @@
+---
+title: 'Montag, 29 März 2021 : Kommentar Hl. Chromatius von Aquileia'
+date: 2021-03-28T18:13:00.001+02:00
+draft: false
+url: /2021/03/montag-29-marz-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Nachdem sie die Füße des Herrn gesalbt hatte, wischte diese Frau sie nicht mit einem Tuch ab, sondern mit ihrem eigenen Haar, um so dem Herrn mehr Ehre zu erweisen. \[…\] Wie ein Dürstender, der Wasser aus einer Quelle trinkt, die in Kaskaden herabfließt, so trank diese heilige Frau an der Quelle der Heiligkeit eine Gnade voller Köstlichkeit, um ihren Glaubensdurst zu löschen. Aber im allegorischen oder mystischen Sinn war diese Frau ein Vorausbild der Kirche, die Christus ihre volle und restlose Glaubenshingabe darbrachte. \[…\] Zwölf Unzen machen ein Pfund aus. Dies also ist das Maß des Duftöls, das die Kirche besitzt, die wie ein kostbares Duftöl die Lehre der zwölf Apostel empfangen hat. In der Tat, was könnte wertvoller sein als die Lehre der Apostel, die den Glauben an Christus und die Herrlichkeit des Himmelreichs umfasst? Mehr noch: Es wird berichtet, dass das ganze Haus vom Duft dieses Öls erfüllt wurde, weil die ganze Welt von der Lehre der Apostel erfüllt worden ist. „Ihre Botschaft“, so steht es geschrieben, „geht in die ganze Welt hinaus, ihre Kunde bis zu den Enden der Erde“ (Ps 19(18),5). \[…\] Im Hohelied lesen wir jenes Wort, das Salomo der Kirche in den Mund legt: „Dein Name ist hingegossenes Salböl“ (vgl. 1,3). Nicht ohne Grund wird der Name des Herrn „hingegossenes Salböl“ genannt. Wie ihr wisst, behält ein Duftöl, solange es verschlossen in seinem Gefäß aufbewahrt wird, seine Duftkraft für sich; sobald es aber ausgegossen oder verschüttet wird, verbreitet es seinen Wohlgeruch. Ebenso wurde unser Herr und Erlöser, während er mit dem Vater im Himmel herrschte, von der Welt nicht beachtet, er war hienieden unbekannt. Als er sich aber zu unserem Heil herabließ, vom Himmel herabzusteigen, um einen menschlichen Leib anzunehmen, da goss er die Süße und den Wohlgeruch seines Namens in die Welt aus.

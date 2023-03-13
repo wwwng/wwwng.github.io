@@ -1,0 +1,8 @@
+---
+title: 'Sonntag, 31 Oktober 2021 : Kommentar Hl. Katharina von Siena'
+date: 2021-10-31T09:11:00.001+01:00
+draft: false
+url: /2021/10/sonntag-31-oktober-2021-kommentar-hl.html
+---
+
+Ehrwürdige und liebste Mutter, Frau Königin, Eure unwürdige Katharina, die Dienerin und Magd der Diener Jesu Christi, schreibt Euch in seinem kostbaren Blut mit dem Verlangen, Euch als wahre Tochter und auserwählte Braut Gottes zu sehen. \[…\] Ich bitte Euch inständig im Namen Jesu Christi, Euer ganzes Herz, Eure ganze Seele, Eure ganze Kraft der Liebe und dem Dienst an diesem süßen und lieben Vater zu weihen, diesem Bräutigam, der Gott ist, die höchste ewige Wahrheit; der uns so sehr geliebt hat, ohne wiedergeliebt zu werden. Ja, kein Geschöpf soll sich ihm widersetzen, was auch immer seine Stellung, seine Größe oder seine Macht sei: Sind nicht alle Herrlichkeiten der Welt eitel, vergehen sie nicht wie der Wind? Kein Geschöpf soll von dieser wahren Liebe abweichen, die ja die Herrlichkeit, das Leben und das Glück der Seele ist. So erweisen wir uns als treue Bräute. Und wenn die Seele einzig ihren Schöpfer liebt, dann begehrt sie nichts anderes als ihn. Was sie liebt, was sie tut, ist für ihn, und alles, was sie als nicht seinem Willen entsprechend erkennt, wie Laster, Sünden, Ungerechtigkeiten, das hasst sie. Und der heilige Hass, denn sie gegen die Sünde empfindet, ist so stark, dass sie lieber sterben würde, als sich gegen den Glauben zu verfehlen, den sie ihrem ewigen Bräutigam schuldet. Lasst uns so sein, ja, lasst uns treu sein, den Fußstapfen des gekreuzigten Jesus folgend, das Laster hassend, die Tugend umarmend und Großes für ihn vollbringen.

@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 17. Januar : Benedikt XVI.'
+date: 2023-01-17T08:23:00.001+01:00
+draft: false
+url: /2023/01/dienstag-17-januar-benedikt-xvi.html
+---
+
+Schließlich ist es in unserer Zeit besonders dringend, daran zu erinnern, dass der Tag des Herrn auch der Tag der Ruhe von der Arbeit ist. Wir wünschen uns von Herzen, dass er als solcher auch von der zivilen Gesellschaft anerkannt wird, so dass es möglich ist, von der beruflichen Tätigkeit frei zu sein, ohne dafür bestraft zu werden. Tatsächlich haben die Christen – nicht ohne Beziehung zur Bedeutung des Sabbats in der jüdischen Tradition – im Tag des Herrn auch den Tag der Ruhe von den alltäglichen Mühen gesehen. Das hat seinen ganz bestimmten Sinn, denn es stellt eine Relativierung der Arbeit dar, die auf den Menschen ausgerichtet wird: Die Arbeit ist für den Menschen da und nicht der Mensch für die Arbeit. Der Schutz, der dadurch dem Menschen selbst geboten wird, ist leicht zu erahnen: Auf diese Weise ist er von einer möglichen Form der Sklaverei befreit. Wie ich bereits betont habe, „besitzt die Arbeit eine primäre Bedeutung für die Verwirklichung des Menschen und für die Entwicklung der Gesellschaft, und muss darum immer in voller Achtung der menschlichen Würde und im Dienst am Gemeinwohl organisiert und entfaltet werden. Zugleich ist es unverzichtbar, dass der Mensch sich nicht von der Arbeit verknechten lässt, dass er sie nicht zum Götzen macht, indem er sich einbildet, in ihr den letzten und endgültigen Sinn des Lebens zu finden.“ Der gottgeweihte Tag ist es, der dem Menschen das Verständnis für den Sinn seines Lebens und auch seiner beruflichen Tätigkeit erschließt.

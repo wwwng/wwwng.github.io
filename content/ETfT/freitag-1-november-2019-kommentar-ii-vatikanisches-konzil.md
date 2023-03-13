@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 1 November 2019 : Kommentar II. Vatikanisches Konzil'
+date: 2019-10-31T17:48:00.001+01:00
+draft: false
+url: /2019/10/freitag-1-november-2019-kommentar-ii.html
+tags: 
+- MEDITATIO
+---
+
+Bis also der Herr kommt in seiner Majestät und alle Engel mit ihm (vgl. Mt 25,31) und nach der Vernichtung des Todes ihm alles unterworfen sein wird (vgl. 1 Kor 15,26–27), pilgern die einen von seinen Jüngern auf Erden, die andern sind aus diesem Leben geschieden und werden gereinigt, wieder andere sind verherrlicht und schauen „klar den dreieinen Gott selbst, wie er ist“. Wir alle jedoch haben, wenn auch in verschiedenem Grad und auf verschiedene Weise, Gemeinschaft in derselben Gottes- und Nächstenliebe und singen unserem Gott denselben Lobgesang der Herrlichkeit. Alle nämlich, die Christus zugehören und seinen Geist haben, wachsen zu der einen Kirche zusammen und sind in ihm miteinander verbunden (vgl. Eph 4,16). Die Einheit der Erdenpilger mit den Brüdern, die im Frieden Christi entschlafen sind, hört keineswegs auf, wird vielmehr nach dem beständigen Glauben der Kirche gestärkt durch die Mitteilung geistlicher Güter. Dadurch nämlich, dass die Seligen inniger mit Christus vereint sind, festigen sie die ganze Kirche stärker in der Heiligkeit, erhöhen die Würde des Gottesdienstes, den sie auf Erden Gott darbringt, und tragen auf vielfältige Weise zum weiteren Aufbau der Kirche bei (vgl. 1 Kor 12,12–27). Denn in die Heimat aufgenommen und dem Herrn gegenwärtig (vgl. 2 Kor 5,8), hören sie nicht auf, durch ihn, mit ihm und in ihm beim Vater für uns Fürbitte einzulegen, indem sie die Verdienste darbringen, die sie durch den einen Mittler zwischen Gott und den Menschen, Christus Jesus (vgl. 1 Tim 2,5), auf Erden erworben haben, zur Zeit, da sie in allem dem Herrn dienten und für seinen Leib, die Kirche, in ihrem Fleisch ergänzten, was an den Leiden Christi noch fehlt (vgl. Kol 1,24). Durch ihre brüderliche Sorge also findet unsere Schwachheit reichste Hilfe.

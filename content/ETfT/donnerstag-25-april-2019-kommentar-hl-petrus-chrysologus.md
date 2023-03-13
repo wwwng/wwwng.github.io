@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 25 April 2019 : Kommentar Hl. Petrus Chrysologus'
+date: 2019-04-24T17:44:00.001+02:00
+draft: false
+url: /2019/04/donnerstag-25-april-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Die Aufstände in Judäa hatten den Frieden aus der Welt vertrieben \[…\] das Universum in sein ursprüngliches Chaos zurückversetzt \[…\] Auch unter den Jüngern herrschte Krieg; Glaube und Zweifel wüteten heftig gegeneinander \[…\] In ihren Herzen tobte ein Sturm, der sie keine Oase des Friedens, keinen Hafen der Ruhe finden ließ. Christus, der die Herzen erforscht, den Winden befiehlt, die Stürme bändigt und mit einem einzigen Zeichen das Unwetter in heiteren Himmel verwandelt – Er tritt mitten in die Unruhe der Jünger und stärkt sie mit seinem Frieden, indem er sagte: „Der Friede sei mit euch! Ich bin es; fürchtet euch nicht. Ich bin es, der Gekreuzigte, der tot war und begraben wurde. Ich bin es, euer Gott, der für euch Mensch geworden ist. Ich bin es. Nicht nur ein Geist in körperlicher Hülle, sondern die menschgewordene Wahrheit selbst. Ich bin es, als Lebendiger unter den Toten, der vom Himmel mitten in das Reich des Todes hinabgestiegen ist. Ich bin es, vor dem der Tod floh, vor dem sich die Unterwelt fürchtet. In ihrem Schrecken bekannte selbst die Hölle mich als Gott. Fürchte dich nicht, Petrus, der du mich verleugnet hast, und auch nicht du, Johannes, der du geflohen bist. Fürchtet euch nicht, die ihr mich verlassen habt, die ihr mich zu verraten gesonnen wart, die ihr immer noch nicht an mich glaubt, obwohl ihr mich doch seht. Fürchtet euch nicht, ich bin es. Aus Gnade habe ich euch berufen, euch durch die Vergebung der Sünden auserwählt, bin euch durch mein Mitleiden zur Seite gestanden, habe euch in meiner Liebe getragen, und heute nehme ich euch, allein durch meine Güte, auf.“

@@ -1,0 +1,8 @@
+---
+title: 'Freitag, 10 September 2021 : Kommentar Hl. Augustinus'
+date: 2021-09-10T10:11:00.001+02:00
+draft: false
+url: /2021/09/freitag-10-september-2021-kommentar-hl.html
+---
+
+„Wie kannst du zu deinem Bruder sagen: Bruder, lass mich den Splitter aus deinem Auge herausziehen!, während du den Balken in deinem eigenen Auge nicht siehst? Du Heuchler! Zieh zuerst den Balken aus deinem Auge; dann kannst du versuchen, den Splitter aus dem Auge deines Bruders herauszuziehen.“ Das heißt: Entledige dich zuerst deines Hasses, dann kannst du den korrigieren, den du liebst. Und ganz zu Recht sagt er „Heuchler“: Die Bestrafung von Lastern sollte die Aufgabe von gerechten und wohlwollenden Menschen sein. Die Bösen jedoch bemächtigen sich einer Rolle; sie sind wie Schauspieler, die ihr wahres Gesicht hinter einer Maske verbergen. \[…\] Wenn wir tadeln oder korrigieren müssen, sollten wir peinlich genau darauf achten, uns die folgende Frage zu stellen: Haben wir diesen Fehler noch nie begangen? Sind wir davon geheilt? Und selbst wenn wir ihn nie begangen haben, so sollten wir daran denken, dass wir Menschen sind und dass wir ihn hätten begehen können. Wenn wir ihn aber in der Vergangenheit begangen haben, sollten wir uns unserer Gebrechlichkeit erinnern, damit Wohlwollen und nicht Hass uns den Vorwurf oder Tadel diktieren. Ob der Schuldige nun besser oder schlechter wird – denn der Ausgang ist ungewiss –, so sind wir zumindest sicher, dass unser Blick rein geblieben ist. Doch wenn wir bei der Gewissenserforschung in uns denselben Fehler entdecken, den wir zu korrigieren vorgeben, sollten wir, anstatt ihn zu tadeln, mit dem Schuldigen weinen. Wir sollten ihn nicht auffordern, uns zu gehorchen, sondern unsere Bemühungen zu teilen.

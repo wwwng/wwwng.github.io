@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 2 Oktober 2019 : Kommentar Hl. Gertrud von Helfta'
+date: 2019-10-01T17:50:00.001+02:00
+draft: false
+url: /2019/10/mittwoch-2-oktober-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Jetzt fordere eindringlich, dass der Herr Jesus selbst, der höchste Priester, dir die Hand auflegt, damit du auf ewig im Schutz des Höchsten wohnst und weilen kannst im Schatten des Allmächtigen (vgl. Ps 91,1) \[…\] O Jesus, Friedensfürst, Bote des großen Ratschlusses, sei du selbst mir immer der Führer zu meiner Rechten und der Wächter über meine Pilgerfahrt, damit ich nicht in Unruhe gerate und von dir abirre. Sende mir in deiner Gnade deinen heiligen Engel herab vom Himmel, der unter deiner gütigen Achtsamkeit um mich besorgt sein soll und mich in deinem Wohlgefallen lenke. Er möge mich, vollendet auf deinem Weg zu dir selbst zurückführen \[…\] Sei gegrüßt, heiliger Engel Gottes, Behüter meiner Seele und meines Leibes. Nimm mich auf in die Fürsorge deiner getreuesten väterlichen Liebe: durch das allersüßeste Herz Jesu Christi, des Gottessohnes; um der Liebe dessen willen, der dich und mich erschaffen hat; um der Liebe dessen willen, der mich dir in der Taufe anvertraut hat, sodass ich unter deinem Schutz auf einem Pfad ohne Fehl den wilden Strom dieses Lebens durchschreiten kann, bis ich mit dir zusammen voll Freude dahin gelange, wo ich jenes honigfließende Angesicht schauen kann, das du siehst, und diese beglückendste Schönheit herrscherlicher Göttlichkeit, die das Liebliche aller Süße übertrifft \[…\] Ja Jesus, mein herzliebster Hirte, lass mich unwürdiges Schäfchen immer deiner süßesten Stimme folgen und lass mich sie erkennen. Lass mich im süßesten Geruch des lebendigen Glaubens zu den Weiden des ewigen Lebens eilen, wo ich in alle Ewigkeit frei sein und sehen kann, dass du wahrhaft lieblich bist, o mein Herr.

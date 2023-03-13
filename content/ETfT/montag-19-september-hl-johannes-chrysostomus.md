@@ -1,0 +1,8 @@
+---
+title: 'Montag, 19. September : Hl. Johannes Chrysostomus'
+date: 2022-09-19T09:23:00.001+02:00
+draft: false
+url: /2022/09/montag-19-september-hl-johannes.html
+---
+
+Nichts ist kälter als ein Christ, der nicht darauf bedacht ist, andere zu retten. In dieser Hinsicht kannst du dich nicht auf deine Armut berufen: Die Witwe, die ihre zwei kleinen Münzen gespendet hat, würde aufstehen, um dich anzuklagen (vgl. Lk 21,2). Auch Petrus, der sagte: „Silber und Gold besitze ich nicht“ (Apg 3,6). Ebenso Paulus, der so arm war, dass er oft Hunger litt und ihm das Nötige zum Leben fehlte (vgl. 1 Kor 4,11). Du kannst auch nicht deine niedere Herkunft vorschützen, denn auch sie kamen aus bescheidenen Verhältnissen. Deine Unwissenheit ist auch keine bessere Entschuldigung, denn auch sie waren ungebildet. \[…\] Du kannst dich auch nicht auf Krankheit berufen, denn auch Timotheus wurde häufig von Krankheiten heimgesucht (vgl. 1 Tim 5,23). \[…\] Ein jeder kann seinem Nächsten nützlich sein, wenn er nur bereit ist, das zu tun, was ihm möglich ist. \[…\] Sag nicht, es sei dir unmöglich, andere \[zum Glauben\] zurückzuführen; denn wenn du Christ bist, ist es unmöglich, dass so etwas nicht eintritt. Jeder Baum bringt seine Frucht (vgl. Mt 7,17f.), und da es in der Natur keinen Widerspruch gibt, ist das, was wir sagen, ebenfalls wahr, denn es leitet sich von der Natur des Christen selbst ab. \[…\] Es ist leichter für das Licht, zur Finsternis zu werden, als für einen Christen, nicht zu strahlen.

@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 22 Juli 2020 : Kommentar Hl. Alphons-Maria von Liguori'
+date: 2020-07-21T18:13:00.001+02:00
+draft: false
+url: /2020/07/mittwoch-22-juli-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Sage oft zu Gott: „Mein Herr, warum liebst du mich so sehr? Was siehst du denn Gutes in mir? Hast du vergessen, welche Beleidigungen ich dir angetan habe? O, seitdem du mich so liebevoll behandelt hast, mich anstatt in die Hölle zu schicken, mit Gnaden erfüllt hast: Wem wenn nicht dir, sollte ich jetzt meine Liebe anbieten, o Gut, der du mein Gut und mein ganzes Gut bist?“ Mein Gott, liebster Gott, was mich bei meinen vergangenen Sünden am meisten betrübt, sind nicht die Züchtigungen, zu denen ich dich veranlasst habe, dich, der du doch unendlicher Liebe würdig bist, dich, der du kein Herz, das bereut und sich demütigt, verachten kannst (vgl. Ps 51(50),19). Ach, von nun an – sowohl in diesem Leben wie im kommenden – sehnt sich mein Herz nur noch danach, dich mein zu nennen, denn: „Was habe ich im Himmel außer dir? Neben dir erfreut mich nichts auf der Erde. Du bist der Gott meines Herzens, der Gott, der mein Anteil ist auf ewig“ (vgl. Ps 73(72),25–26). Ja, du bist und bleibst für immer der alleinige Meister meines Herzens, meines Willens und mein einziger Schatz, mein Paradies, das Ziel meiner Hoffnungen und meiner Zuneigung, mein Alles, mit einem Wort: „Du bist der Gott meines Herzens, mein Anteil für immer“ (vgl. Ps 73(72),26). Dein Vertrauen in Gott muss immer stärker werden. Rufe dir deshalb häufig sein Verhalten dir gegenüber ins Gedächtnis, all seine Zärtlichkeit, die sanften Mittel, die seine Barmherzigkeit eingesetzt hat, um dich von den Wegen zurückzuholen, wohin du dich verirrt hattest, um dich von den Fesseln der Erde zu befreien und dich an seine heilige Liebe zu ziehen.

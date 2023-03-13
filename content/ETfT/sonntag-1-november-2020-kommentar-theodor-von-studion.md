@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 1 November 2020 : Kommentar Theodor von Studion'
+date: 2020-10-31T18:13:00.001+01:00
+draft: false
+url: /2020/10/sonntag-1-november-2020-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Freut euch also im Herrn zu jeder Zeit (vgl. Phil 4,4), geliebte Kinder. Freut euch, ich bitte euch, ihr Bürger des Himmels, die ihr noch im Exil auf der Erde seid, ihr Bewohner des himmlischen Jerusalems (vgl. Gal 4,26), die ihr aus den Angelegenheiten dieser Welt verbannt seid, ihr Erben des Himmelreichs, die als Enterbte keinen Anteil an den irdischen Freuden haben! Freut euch, die ihr voll Eifer auf der Reise seid, dass ihr im Namen des Gebotes Gottes das Exil und Misshandlungen auf fremder Erde ertragen müsst. Freut euch, ihr, die ihr in den Augen der Welt die Letzten, in Wirklichkeit aber die Herren unvorstellbarer Güter seid (vgl. Phil 4,7)! Freu dich, du von Gott vereinte edle Schar, an Seele und Herz zur Einheit zusammengefügt, beseelt von kindlicher und brüderlicher Liebe, irdische Abbilder der Engelsheere! \[…\] Freut euch, ihr Arbeiter Gottes, \[…\] und apostolische Männer! \[…\] Freut euch, die ihr aneinander Freude habt und jeder sich den guten Ruf seines Bruders zu eigen macht, ihr, bei denen man weder Eifersucht noch Rivalität noch Neid findet, dafür aber Frieden, Liebe, Gemeinschaft. Wahrlich, ich sage nicht, dass wir nicht angegriffen werden – wer bekommt denn die Krone, wenn nicht derjenige, der streitet und kämpft, der Schläge und Wunden austeilt und einsteckt wie der Angreifer? –, sondern ich sage, dass wir uns nicht durch die Machenschaften Satans unterkriegen lassen. Ja, meine von Gott zusammengeführten Kinder, nährt euch von der Speise des Geistes und trinkt das vom Herrn gespendete Wasser! Wer in den Besitz dieses Wassers kommt, wird nie mehr Durst leiden, sondern es wird für ihn zur sprudelnden Quelle werden, deren Wassers ewiges Leben schenkt (vgl. Joh 4,14). \[…\] Nur noch kurze Zeit, und der Sieg ist unser. Selig werden wir sein, selig werden auch die Orte, die Eltern und die Heimatländer genannt werden, aus denen ihr hervorgegangen seid (vgl. Lk 11,27–28).

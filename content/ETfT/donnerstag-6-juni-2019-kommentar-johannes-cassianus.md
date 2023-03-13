@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 6 Juni 2019 : Kommentar Johannes Cassianus'
+date: 2019-06-05T17:47:00.001+02:00
+draft: false
+url: /2019/06/donnerstag-6-juni-2019-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Dann wird sich wohl vollkommen in uns jenes Gebet des Herrn erfüllen, in welchem er für seine Jünger zum Vater betete mit den Worten: „Möge die Liebe, mit der du mich geliebt hast, in ihnen sein und sie in uns.“ Und wieder: „Mögen sie alle Eins sein, auf dass, wie du, Vater, in mir bist und ich in dir, so auch sie in uns Eins seien“ – wenn jene vollkommene Liebe Gottes, mit der er uns zuerst liebte, auch in unsere Herzensneigung übergegangen ist und sich so dies Gebet des Herrn erfüllt hat, das, wie wir glauben, durchaus nicht vergeblich gemacht werden kann. Das wird nun so sein, wenn all unser Lieben und Sehnen, alles Streben und Suchen, alles Denken und Schauen, Reden und Hoffen Gott sein wird und jene Einheit, die nur der Vater mit dem Sohn und der Sohn mit dem Vater hat, in unsern Sinn und Geist gegossen ist, dass nämlich, wie Jener uns mit aufrichtiger, reiner und unvergänglicher Liebe liebt, so auch wir mit ihm in ewiger und unzertrennlicher Liebe geeint werden, so mit ihm verbunden, dass, was immer wir hoffen, einsehen und reden, Gott sein wird. So, sage ich, werden wir zu jenem obengenannten Ziel kommen, welches ebenderselbe Herr in seinem Gebet für uns erfüllt wünscht: „Dass alle Eins seien, wie wir Eins sind; ich in ihnen und du in mir, so dass auch sie ganz Eins seien“ und wieder: „Vater, ich will, dass diejenigen, welche du mir gegeben hast, auch dort bei mir seien, wo ich bin.“ Das muss also die Absicht des Einsamen, das seine ganze Meinung sein, dass er ein Bild des künftigen seligen Zustandes schon in diesem Leben besitze und gleichsam einen Teil jenes himmlischen, glorreichen Wandels auf dieser Erde zum Unterpfand vorauszukosten beginne.

@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 21 Juli 2021 : Kommentar Isaak der Syrer '
+date: 2021-07-21T10:11:00.001+02:00
+draft: false
+url: /2021/07/mittwoch-21-juli-2021-kommentar-isaak.html
+---
+
+So wie – nach dem Wort der Väter – die ganze Kraft der Gesetze und Gebote, die Gott den Menschen gegeben hat, in der Reinheit des Herzens ihre Erfüllung findet, so finden alle Weisen und Formen, in denen die Menschen zu Gott beten, ihre Erfüllung im reinen Gebet. Seufzen, sich zu Boden werfen, Flehen, Klagen: Alle Formen, die das Gebet annehmen kann, finden tatsächlich im reinen Gebet ihr Ende. \[…\] Das Denken hat nichts mehr, woran es sich halten kann: weder Bitte noch \[Gemüts-\] Bewegung, weder Klage noch Kraftanstrengung, weder Freiheit noch Flehen, weder Verlangen noch Freude an dem, was sich die Seele in diesem Leben oder in der kommenden Welt erhoffen könnte. Nach dem reinen Gebet gibt es kein weiteres Gebet. \[…\] Jenseits dieser Grenze gibt es nur noch Staunen, aber kein Gebet mehr; das Gebet hört auf, und die Kontemplation beginnt. \[…\] Das Gebet ist die Aussaat – die Kontemplation ist die Ernte der Garben. Der Schnitter staunt, da er das Unaussprechliche sieht: Wie konnten aus den kleinen, nackten Körnern, die er gesät hat, auf einmal so blühende Ähren vor ihm sprießen? Der Anblick seiner Ernte macht ihn sprachlos. \[…\] So wie es kaum einen Menschen unter vielen Tausenden gibt, der die Gebote und die Dinge des Gesetzes etwas weniger schlecht erfüllen und so die Reinheit der Seele erlangen kann, so gibt es auch nur einen Menschen unter Tausenden, der würdig ist, durch große Wachsamkeit das reine Gebet zu erlangen, die Grenze zu überschreiten und dieses Geheimnis zu entdecken. Denn es ist nicht vielen, sondern nur wenigen gegeben, das reine Gebet zu erfahren.

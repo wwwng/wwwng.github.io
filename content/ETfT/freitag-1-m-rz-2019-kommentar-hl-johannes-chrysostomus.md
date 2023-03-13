@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 1 März 2019 : Kommentar Hl. Johannes Chrysostomus'
+date: 2019-02-28T17:46:00.001+01:00
+draft: false
+url: /2019/02/freitag-1-marz-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wie soll man also zur Frau sprechen? Man soll mit aller Zärtlichkeit zu ihr sagen: \[...\] Deswegen habe ich um dich geworben, deswegen liebe ich dich und stelle dich höher als mein eigenes Leben. Denn das gegenwärtige Leben ist nichts, und ich bitte und beschwöre dich und will auch meinerseits alles tun, dass wir gewürdigt werden mögen, das gegenwärtige Leben so zu führen, dass wir auch drüben im zukünftigen Leben mit aller Sicherheit beisammenbleiben können. Denn diese irdische Lebenszeit ist kurz und vergänglich, wenn wir aber gewürdigt werden, dieses Leben gottgefällig zu beschließen, so werden wir ewig mit Christus und miteinander glückselig sein. Deine Liebe geht mir über alles, und nichts wäre mir so peinlich und unangenehm, als jemals mit dir entzweit zu werden. Müsste ich auch alles einbüßen, müsste ich auch ärmer werden als der Bettler, müsste ich auch die äußersten Gefahren bestehen, müsste ich alles Mögliche erleiden: es wird mir alles erträglich und leicht sein, solange mir deine Liebe und Treue gesichert bleibt; auch die Kinder werden von mir ersehnt werden \[...\] Zeige ihr auch, dass du ihre Gesellschaft hochschätzest und ihretwegen lieber zu Hause bist als draußen! Ehre sie mehr als deine Freunde und als die mit ihr gezeugten Kinder; selbst diese sollen von dir um ihretwillen geliebt werden. \[...\] Betet gemeinschaftlich miteinander! Geht beide in die Kirche, und vor dem dort Gesagten und Gelesenen bittet der Mann seine Frau und diese ihren Mann, über den auf die Familie bezogenen Teil zu berichten! \[...\] Lehre sie Gottesfurcht, und alles Gute wird wir aus einer Quelle zuströmen und dein Haus mit unnennbarem Segen erfüllen. Wenn wir das Unvergängliche suchen, werden auch diese vergänglichen Güter uns zukommen. Denn es steht geschrieben: „Sucht zuerst das Reich Gottes; dann wird euch alles andere dazugegeben“ (vgl. Mt 6,33).

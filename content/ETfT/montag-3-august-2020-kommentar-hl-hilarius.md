@@ -1,0 +1,10 @@
+---
+title: 'Montag, 3 August 2020 : Kommentar Hl. Hilarius'
+date: 2020-08-02T18:13:00.001+02:00
+draft: false
+url: /2020/08/montag-3-august-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Dass aber aus der Zahl aller Anwesenden in dem Schiff Petrus allein es wagt, zu antworten, und um den Auftrag bittet, auf dem Wasser zu dem Herrn zu kommen, dies bezeichnet die Beschaffenheit seines Willens zur Zeit des Leidens, zu jener Zeit, da er allein zurückkehrte, den Fußstapfen des Herrn folgte, und ihn mit Verachtung der Stürme der Welt, wie der des Meeres, mit gleichem Mut zur Verachtung des Todes begleitete; seine Furchtsamkeit aber weist auf seine Schwäche bei der künftigen Versuchung hin. Denn obwohl er zu wandeln wagte, so sank er dennoch; durch die Schwachheit des Fleisches und die Furcht vor dem Tod nämlich wurde er sogar in die Notwendigkeit zu leugnen versetzt. Aber er ruft, und bittet den Herrn um Rettung. Dieses Rufen bedeutet den Seufzer seiner Reue. \[…\] Auch muss man bei Petrus betrachten, dass er an Glauben die Übrigen übertraf. Denn da es die andern nicht wussten, war er der Erste, welcher antwortete: „Du bist der Sohn des lebendigen Gottes“ (vgl. Mt 16,16). Er war der Erste, welcher das Leiden, weil er es für ein Übel hielt, zurückwies (vgl. Mt 16,22). Er war der Erste, welcher erklärte, dass er sterben und nicht verleugnen wolle (vgl. Mt 26,35). Er war der Erste, welcher sich weigerte, die Füße sich waschen zu lassen (vgl. Joh 13,8). Er zog sogar das Schwert gegen diejenigen, welche den Herrn ergriffen (vgl. Joh 18,10). Dass aber nach seinem Einsteigen in das Schiff Wind und Wogen sich legten, dadurch wird nach der Wiederkunft in seiner Herrlichkeit der ewige Friede und die Ruhe der Kirche angezeigt. Und weil er dann geoffenbart kommen wird, deswegen sagten alle sich verwundernd mit Recht: „Wahrhaftig, er ist Gottes Sohn!“ (vgl. Mt 14,33). Denn das Bekenntnis aller wird dann vollständig und allgemein sein, der Sohn Gottes habe nicht mehr in körperlicher Niedrigkeit, sondern in himmlischer Herrlichkeit der Kirche den Frieden wiedergegeben.

@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 22 August 2018 : Buch Ezechiel 34,1-11.'
+date: 2018-08-21T17:47:00.001+02:00
+draft: false
+url: /2018/08/mittwoch-22-august-2018-buch-ezechiel.html
+tags: 
+- LECTIO
+---
+
+Das Wort des Herrn erging an mich: Menschensohn, sprich als Prophet gegen die Hirten Israels, sprich als Prophet, und sag zu ihnen: So spricht Gott, der Herr: Weh den Hirten Israels, die nur sich selbst weiden. Müssen die Hirten nicht die Herde weiden? Ihr trinkt die Milch, nehmt die Wolle für eure Kleidung und schlachtet die fetten Tiere; aber die Herde führt ihr nicht auf die Weide. Die schwachen Tiere stärkt ihr nicht, die kranken heilt ihr nicht, die verletzten verbindet ihr nicht, die verscheuchten holt ihr nicht zurück, die verirrten sucht ihr nicht, und die starken misshandelt ihr. Und weil sie keinen Hirten hatten, zerstreuten sich meine Schafe und wurden eine Beute der wilden Tiere. Meine Herde irrte auf allen Bergen und Höhen umher und war über das ganze Land verstreut. Doch keiner kümmerte sich um sie; niemand suchte sie. Darum ihr Hirten, hört das Wort des Herrn: So wahr ich lebe - Spruch Gottes, des Herrn: Weil meine Herde geraubt wurde und weil meine Schafe eine Beute der wilden Tiere wurden - denn sie hatten keinen Hirten - und weil meine Hirten nicht nach meiner Herde fragten, sondern nur sich selbst und nicht meine Herde weideten, darum, ihr Hirten, hört das Wort des Herrn: So spricht Gott, der Herr: Nun gehe ich gegen die Hirten vor und fordere meine Schafe von ihnen zurück. Ich setze sie ab, sie sollen nicht mehr die Hirten meiner Herde sein. Die Hirten sollen nicht länger nur sich selbst weiden: Ich reiße meine Schafe aus ihrem Rachen, sie sollen nicht länger ihr Fraß sein. Denn so spricht Gott, der Herr: Jetzt will ich meine Schafe selber suchen und mich selber um sie kümmern.

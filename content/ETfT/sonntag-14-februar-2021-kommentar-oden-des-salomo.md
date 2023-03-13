@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 14 Februar 2021 : Kommentar Oden des Salomo'
+date: 2021-02-13T18:13:00.001+01:00
+draft: false
+url: /2021/02/sonntag-14-februar-2021-kommentar-oden.html
+tags: 
+- MEDITATIO
+---
+
+Meine Arme habe ich zur Höhe erhoben, zur Gnade des Herrn, denn er hat meine Bande von mir weggeworfen, und mein Helfer hat mich erhöht zu seiner Gnade und zu seiner Erlösung. Und ich habe abgelegt die Finsternis und angezogen das Licht. Und es sind mir Glieder zuteil geworden zu meiner Seele, in denen kein Schmerz, auch keine Pein und keine Leiden sind. Und besonders hilfreich war für mich der Gedanke des Herrn und seine unvergängliche Gemeinschaft, und ich wurde erhoben in sein Licht und wirkte vor seinem Antlitz, und ich war ihm nahe, ihn preisend und ihn verkündend. Mein Herz floss über und fand sich in meinem Munde und stieg empor auf meine Lippen, und die jauchzende Begrüßung des Herrn wuchs auf meinem Angesicht und sein Preis. Hallelujah. Ich bin entkommen aus meinen Banden und habe mich zu dir geflüchtet, mein Gott, denn du bist meine Rechte zur Rettung gewesen und mein Helfer. Du hast zurückgehalten, die sich gegen mich erhoben, und ich werde ihn nicht wiedersehen, denn dein Antlitz war mit mir, welches mich errettete durch deine Gnade. Ich aber war verachtet und verworfen in den Augen vieler, und ich war in ihren Augen wie Blei. Und es ward mir Stärke zu teil von dir und Hilfe. Einen Leuchter stelltest du mir zu meiner Rechten und zu meiner Linken, und nichts soll an mir sein, das nicht Licht wäre. Und ich bin bedeckt mit dem Kleide deines Geistes, und er hat weggenommen von mir die Kleider (von) Fell (vgl. Gen 3,21), denn deine Rechte hat mich erhöht und hat Krankheit an mir vorübergehen lassen. Und ich bin stark geworden in der Wahrheit und heilig in deiner Gerechtigkeit \[…\] und ich bin gerechtfertigt worden in seiner Güte, und seine Ruhe währet in alle Ewigkeit. Hallelujah.

@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 25. August : Hl. Bernhard von Clairvaux'
+date: 2022-08-25T09:23:00.001+02:00
+draft: false
+url: /2022/08/donnerstag-25-august-hl-bernhard-von.html
+---
+
+Wann kam der Erlöser? Nicht am Anfang, auch nicht in der Mitte, sondern am Ende der Zeit. Und das geschah nicht ohne Grund. Die göttliche Weisheit, die ja wusste, dass die Kinder Adams zur Undankbarkeit neigen, verfügte sehr weise, dass sie ihnen erst dann Rettung bringen würde, wenn ihre Not am allergrößten wäre. Wahrhaftig, „schon wurde es Abend, und der Tag neigte sich“, die „Sonne der Gerechtigkeit“ war fast untergegangen (vgl. Lk 24,29; Mal 3,20); sie verbreitete nur noch einen schwachen Schein und wenig Wärme auf der Erde. In der Tat war das Licht der Gotteserkenntnis viel schwächer geworden und die Liebe war erkaltet, da die Gesetzlosigkeit überhandgenommen hatte (vgl. Mt 24,12). Erscheinungen von Engeln gab es nicht mehr, auch keine Weissagungen von Propheten: Sie hatten aufgehört, gleichsam überwältigt von Hoffnungslosigkeit angesichts der extremen Halsstarrigkeit und Verstocktheit der Menschen. In diesem Moment nun sprach der Sohn: „Darum sage ich: Ja, ich komme“ (Ps 40(39),8). Ja, zu der Stunde, da tiefes Schweigen das All umfing und die Nacht bis zur Mitte gelangt war, sprang dein allmächtiges Wort vom Himmel, vom königlichen Thron herab (vgl. Weish 18,14–15). Der Apostel Paulus drückt es so aus: „Als aber die Zeit erfüllt war, sandte Gott seinen Sohn“ (Gal 4,4).

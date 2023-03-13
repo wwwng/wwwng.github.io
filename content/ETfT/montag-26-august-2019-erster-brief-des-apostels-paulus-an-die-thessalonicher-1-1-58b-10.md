@@ -1,0 +1,10 @@
+---
+title: 'Montag, 26 August 2019 : Erster Brief des Apostels Paulus an die Thessalonicher 1,1-5.8b-10.'
+date: 2019-08-25T17:48:00.001+02:00
+draft: false
+url: /2019/08/montag-26-august-2019-erster-brief-des.html
+tags: 
+- LECTIO
+---
+
+Paulus, Silvanus und Timotheus an die Gemeinde von Thessalonich, die in Gott, dem Vater, und in Jesus Christus, dem Herrn, ist: Gnade sei mit euch und Friede. Wir danken Gott für euch alle, sooft wir in unseren Gebeten an euch denken; unablässig erinnern wir uns vor Gott, unserem Vater, an das Werk eures Glaubens, an die Opferbereitschaft eurer Liebe und an die Standhaftigkeit eurer Hoffnung auf Jesus Christus, unseren Herrn. Wir wissen, von Gott geliebte Brüder, dass ihr erwählt seid. Denn wir haben euch das Evangelium nicht nur mit Worten verkündet, sondern auch mit Macht und mit dem Heiligen Geist und mit voller Gewissheit; ihr wisst selbst, wie wir bei euch aufgetreten sind, um euch zu gewinnen. Von euch aus ist das Wort des Herrn aber nicht nur nach Mazedonien und Achaia gedrungen, sondern überall ist euer Glaube an Gott bekannt geworden, so dass wir darüber nichts mehr zu sagen brauchen. Überall ist euer Glaube an Gott bekannt geworden, so dass wir darüber nichts mehr zu sagen brauchen. Denn man erzählt sich überall, welche Aufnahme wir bei euch gefunden haben und wie ihr euch von den Götzen zu Gott bekehrt habt, um dem lebendigen und wahren Gott zu dienen und seinen Sohn vom Himmel her zu erwarten, Jesus, den er von den Toten auferweckt hat und der uns dem kommenden Gericht Gottes entreißt.

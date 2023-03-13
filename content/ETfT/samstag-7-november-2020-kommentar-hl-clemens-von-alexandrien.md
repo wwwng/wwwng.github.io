@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 7 November 2020 : Kommentar Hl. Clemens von Alexandrien'
+date: 2020-11-06T18:13:00.001+01:00
+draft: false
+url: /2020/11/samstag-7-november-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Es gibt einen Reichtum, der allen, bei denen er sich findet, den Tod bringt; sein Verlust aber bringt Heil. Von diesem Reichtum muss man die Seele rein, das heißt arm und frei machen und danach das Wort des Herrn hören: „Komm, und folge mir nach!“ (Mk 10,21). Denn nun wird er selbst der Weg (vgl. Joh 14,6) für den, der reinen Herzens ist; in ein unreines Herz dagegen zieht die Gnade Gottes nicht ein; unrein ist aber ein Herz, das reich an Begierden ist und schwanger geht mit vielen irdischen Lüsten. Wer dagegen Vermögen und Gold und Silber und Häuser als Gottes Gaben besitzt und damit Gott, der es gegeben hat, zum Wohl der Menschen dient, und sich dessen bewusst ist, dass er all dieses mehr seiner Brüder als seiner selbst wegen besitzt; wer Herr seines Vermögens, nicht ein Sklave seines Besitzes ist, und ihn nicht in seinem Herzen trägt und ihn nicht zum Ziel und Inhalt seines Lebens macht, sondern immer auch ein edles und göttliches Werk zu vollbringen sucht; wer fähig ist, wenn er einmal seiner Güter beraubt werden sollte, auch ihren Verlust mit Gemütsruhe zu ertragen ebenso wie den Überfluss an ihnen: Wer alle diese Eigenschaften hat, der wird vom Herrn selig gepriesen und arm im Geiste genannt, würdig, ein Erbe des Himmelreiches zu werden (vgl. Mt 5,3). \[…\] Wer aber den Reichtum in seiner Seele trägt und statt des göttlichen Geistes in seinem Herzen Gold oder Grundbesitz hat und immer danach trachtet, seinen Besitz unendlich groß zu machen; und wer, nach unten blickend und durch die Fangstricke der Welt gefesselt, immer nach mehr trachtet, obwohl er von Erde ist und zu Erde werden wird (vgl. Gen 3,19): Wie kann ein solcher nach dem Himmelreich verlangen und seinen Sinn darauf richten, ein Mensch, der nicht ein Herz, sondern einen Acker oder ein Bergwerk in sich trägt, und notwendigerweise in dem erfunden werden wird, was er sich gewählt hat? „Denn wo der Sinn des Menschen ist, da ist auch sein Schatz“ (vgl. Mt 6,21).

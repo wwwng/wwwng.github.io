@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 12 Februar 2020 : Kommentar Philotheos vom Sinai'
+date: 2020-02-11T18:12:00.001+01:00
+draft: false
+url: /2020/02/mittwoch-12-februar-2020-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Lasst uns jederzeit und in jedem Augenblick unser Herz sorgsam bewahren (vgl. Koh 4,23 LXX) vor Gedanken, die den Spiegel der Seele verdunkeln wollen, auf den Jesus Christus, die Weisheit und die Kraft Gottes, des Vaters (vgl. 1 Kor 1,24), seinen Stempel setzt und sein leuchtendes Bild einzeichnet. Und lasst uns unermüdlich im Herzen nach dem Königreich des Himmels suchen (vgl. Mt 6,33). \[…\] Es ist unmöglich für jemanden, der sich auf böse Gedanken einlässt, sich von Sünden in seinem äußeren Menschsein frei zu halten. Und wenn er die bösen Gedanken nicht aus seinem Herzen reißt, kann er auch nicht verhindern, dass er sie in böse Taten umsetzt. Die Ursache für den ehebrecherischen Blick ist, dass das innere Auge sich schon dem Ehebruch und der Finsternis hingegeben hat. Und die Ursache für das Verlangen, Abscheulichkeiten zu hören ist, dass wir uns anhören, was uns die abscheulichen Dämonen, die in uns sind, zuflüstern. Wir müssen uns also im Herrn – jeder von uns – innerlich und äußerlich reinigen, unsere Sinne hüten, uns von allen Handlungen reinhalten, die durch Leidenschaft und Sünde angeregt werden. Und so wie einst, als wir in unserer Unwissenheit und unserem eitlen Denken dem Leben der Welt ergeben, unser Verstand und all unsere Sinne gänzlich dem Irrweg der Sünde unterworfen waren, so müssen wir uns nun, nachdem wir uns wieder einem gottgefälligen Leben zugewandt haben, mit unserem ganzen Verstand und allen Sinnen dem lebendigen und wahren Gott unterwerfen (vgl. 1 Thess 1,9), seiner Gerechtigkeit und seinem Willen \[…\] Lasst uns also einen verständigen Kampf gegen diese Dämonen führen, damit ihre bösen Absichten nicht zu realen Sünden in unseren Taten werden. Wenn wir jedoch die Sünde aus unserem Herzen verbannen, werden wir in uns das Königreich Gottes finden. Lasst uns durch diese schöne Askese im Namen Gottes die Reinheit und bleibende Würde unseres Herzens bewahren.

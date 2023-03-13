@@ -1,0 +1,8 @@
+---
+title: 'Sonntag, 20 Februar 2022 : Kommentar Hl. Katharina von Siena'
+date: 2022-02-20T09:11:00.001+01:00
+draft: false
+url: /2022/02/sonntag-20-februar-2022-kommentar-hl.html
+---
+
+O ewige Barmherzigkeit, die du die Verfehlungen deiner Geschöpfe zudeckst! Dann wundert es mich nicht mehr, dass du von denen, die aus der Todsünde zu dir zurückkehren, sagst: Ich erinnere mich gar nicht mehr daran, dass ihr mich jemals beleidigt habt! O unaussprechliche Barmherzigkeit, nein ich wundere mich nicht mehr, dass du das zu denen sagt, die aus der Sünde herauskommen, wenn ich dich von denen, die dich verfolgen, sagen höre: Ich will, dass ihr für sie zu mir betet, damit ich ihnen Barmherzigkeit erweise. \[…\] Deine Barmherzigkeit schenkt Leben, und sie schenkt das Licht, das uns deine Milde für alle Geschöpfe, für Gerechte und Sünder, erkennen lässt. In den höchsten Himmelshöhen bricht deine Barmherzigkeit in deinen Heiligen hervor. Wenn ich die Erde betrachte, sehe ich deine Barmherzigkeit dort im Überfluss vorhanden. Selbst in der Finsternis der Hölle leuchtet deine Barmherzigkeit noch, da du den Verdammten nicht eine solche Qual auferlegst, wie es ihren Verfehlungen entsprechen würde. Deine Barmherzigkeit mildert deine Gerechtigkeit! Aus Barmherzigkeit hast du uns im Blut reingewaschen, aus Barmherzigkeit wolltest du mit deinen Geschöpfen Umgang haben. \[…\] O Barmherzigkeit! Mein Herz entbrennt, wenn ich an dich denke! Nach welcher Seite sich mein Geist auch dreht und wendet, ich finde nichts als Barmherzigkeit! O ewiger Vater, vergib mir meine Unwissenheit, wenn ich so vermessen bin, vor dir zu sprechen! Die Liebe zu deiner Barmherzigkeit wird mir vor deiner Güte eine Entschuldigung sein.

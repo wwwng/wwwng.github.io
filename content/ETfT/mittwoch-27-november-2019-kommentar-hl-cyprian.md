@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 27 November 2019 : Kommentar Hl. Cyprian'
+date: 2019-11-26T17:44:00.001+01:00
+draft: false
+url: /2019/11/mittwoch-27-november-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Ein heilsames Gebot unseres Herrn und Meisters lautet: „Wer ausharren wird bis zum Ende, der wird selig sein“ (Mt 10,22) \[…\] denn schon der Umstand, dass wir Christen sind, ist eine Sache des Glaubens und der Hoffnung. Damit aber die Hoffnung und der Glaube zu ihrer Frucht gelangen können, bedarf es der Geduld. Denn wir streben nicht nach dem gegenwärtigen Ruhm, sondern nach dem künftigen, wie der Apostel Paulus mahnt mit den Worten: „Durch die Hoffnung sind wir gerettet. Die Hoffnung aber, die man sieht, ist keine Hoffnung. Denn was einer sieht, was hofft er da noch? Wenn wir aber hoffen, was wir nicht sehen, so warten wir in Geduld“ (Röm 8,24f.). \[…\] So unterweist und belehrt auch an einer anderen Stelle derselbe Apostel die Gerechten und Wohltätigen, die durch den Zuwachs ihres an Gott geliehenen Gutes sich Schätze im Himmel zurücklegen \[…\]: „Lasst uns also, solange wir Zeit haben, an allen Gutes tun \[…\]! Gutes zu tun aber lasst uns nicht müde werden; denn zu seiner Zeit werden wir ernten“ (Gal 6,10.9). \[…\] Darum hat auch der Apostel, als er von der Liebe sprach, die Ausdauer und Geduld ihr an die Seite gestellt. „Die Liebe“, sagt er, „ist hochherzig, die Liebe ist gütig, die Liebe eifert nicht, sie bläht sich nicht auf, sie lässt sich nicht reizen, sie denkt nichts Schlimmes, alles liebt sie, alles glaubt sie, alles hofft sie, alles erträgt sie“ (1 Kor 13,4–7). Er zeigte, dass sie \[die Liebe\] nur deshalb fest ausharren könne, weil sie alles zu ertragen verstehe. Und an einer anderen Stelle sagt er: „\[…\] indem ihr einander ertraget in Liebe, indem ihr so recht bestrebt seid, die Einheit des Geistes in der Verbindung des Friedens zu erhalten“ (Eph 4,2f.). Er legte dar, dass weder die Einheit noch der Friede erhalten werden könne, wenn nicht die Brüder einander in gegenseitiger Duldung entgegenkämen und das Band der Eintracht mit Hilfe der Geduld bewahrten.

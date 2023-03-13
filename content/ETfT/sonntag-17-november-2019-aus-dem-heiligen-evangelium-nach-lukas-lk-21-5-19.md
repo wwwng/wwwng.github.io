@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 17 November 2019 : Aus dem Heiligen Evangelium nach Lukas - Lk 21,5-19.'
+date: 2019-11-16T17:41:00.001+01:00
+draft: false
+url: /2019/11/sonntag-17-november-2019-aus-dem.html
+tags: 
+- EVANGELIUM
+---
+
+In jener Zeit, als einige darüber sprachen, dass der Tempel mit schönen Steinen und Weihegeschenken geschmückt sei, sagte Jesus: Es wird eine Zeit kommen, da wird von allem, was ihr hier seht, kein Stein auf dem andern bleiben; alles wird niedergerissen werden. Sie fragten ihn: Meister, wann wird das geschehen, und an welchem Zeichen wird man erkennen, dass es beginnt? Er antwortete: Gebt acht, dass man euch nicht irreführt! Denn viele werden unter meinem Namen auftreten und sagen: Ich bin es!, und: Die Zeit ist da. - Lauft ihnen nicht nach! Und wenn ihr von Kriegen und Unruhen hört, lasst euch dadurch nicht erschrecken! Denn das muss als erstes geschehen; aber das Ende kommt noch nicht sofort. Dann sagte er zu ihnen: Ein Volk wird sich gegen das andere erheben und ein Reich gegen das andere. Es wird gewaltige Erdbeben und an vielen Orten Seuchen und Hungersnöte geben; schreckliche Dinge werden geschehen, und am Himmel wird man gewaltige Zeichen sehen. Aber bevor das alles geschieht, wird man euch festnehmen und euch verfolgen. Man wird euch um meines Namens willen den Gerichten der Synagogen übergeben, ins Gefängnis werfen und vor Könige und Statthalter bringen. Dann werdet ihr Zeugnis ablegen können. Nehmt euch fest vor, nicht im voraus für eure Verteidigung zu sorgen; denn ich werde euch die Worte und die Weisheit eingeben, so dass alle eure Gegner nicht dagegen ankommen und nichts dagegen sagen können. Sogar eure Eltern und Geschwister, eure Verwandten und Freunde werden euch ausliefern, und manche von euch wird man töten. Und ihr werdet um meines Namens willen von allen gehasst werden. Und doch wird euch kein Haar gekrümmt werden. Wenn ihr standhaft bleibt, werdet ihr das Leben gewinnen.

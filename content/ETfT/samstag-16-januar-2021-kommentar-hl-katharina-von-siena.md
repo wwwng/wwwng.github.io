@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 16 Januar 2021 : Kommentar Hl. Katharina von Siena'
+date: 2021-01-15T18:13:00.001+01:00
+draft: false
+url: /2021/01/samstag-16-januar-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+O mildreicher Vater, als das Menschengeschlecht darniederlag, verwundet durch die Sünde Adams, hast du ihm den Arzt geschickt, deinen lieben Sohn, das Wort der Liebe. Und als ich selbst erschlafft in Nachlässigkeit und tiefer Unwissenheit dahinschmachtete, da hast du, der mildreichste und sanfteste Arzt, der ewige Gott, mir eine liebliche, zugleich süße und bittere Medizin gegeben, um mich zu heilen und mich aus meinem Siechtum herauszuholen. Sie war lieblich, denn mit deiner Liebe, mit deiner Sanftheit hast du dich mir offenbart, du Milde über aller Milde. Du hast das Auge meines Verstandes durch das Licht des heiligsten Glaubens erleuchtet. Und da es dir gefiel, mir dieses Licht zu offenbaren, erkannte ich in diesem Licht die Vorzüglichkeit und Gnade, die du dem Menschengeschlecht erwiesen hast, indem du dich ihm gänzlich hingegeben hast, du wahrer Gott und wahrer Mensch, im mystischen Leib der heiligen Kirche. \[…\] O unaussprechliche Liebe! Indem du mir diese Dinge enthülltest, hast du mir eine süße und zugleich bittere Medizin verabreicht, um mich von meiner Schwachheit zu heilen, mich meiner Unwissenheit und Lauheit zu entreißen, meinen Eifer neu zu entfachen und eine glühende Sehnsucht zu wecken, zu dir zu kommen! Indem du mir auf diese Weise deine Güte vor Augen führst und die Beleidigungen, die dir von allen Menschen, besonders aber von deinen Dienern, zugefügt werden, wolltest du, dass ich arme Sünderin über mich selbst und all die Toten, die so elend dahinleben, einen Strom von Tränen vergieße, der aus der Erkenntnis deiner unendlichen Güte entspringt. Ich will also, o ewiger Vater, du Feuerofen unaussprechlicher Liebe und glühender Barmherzigkeit, keinen Augenblick aufhören, deine Ehre und das Heil der Seelen zu wünschen!

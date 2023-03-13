@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 4 Dezember 2020 : Kommentar Hl. Anselm'
+date: 2020-12-03T18:13:00.001+01:00
+draft: false
+url: /2020/12/freitag-4-dezember-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Sprich jetzt, mein ganzes Herz, sprich jetzt zu Gott: „Ich suche Dein Antlitz; Dein Antlitz, Herr, suche ich“ (vgl. Ps 27(26),8). Wohlan, jetzt also, Du Herr, mein Gott, lehre mein Herz, wo und wie es Dich suche, wo und wie es Dich finde. Herr, wenn Du hier nicht bist, wo soll ich suchen Dich, den Abwesenden? Wenn Du aber überall bist, warum sehe ich nicht den Anwesenden? Doch gewiss wohnst Du in einem unzugänglichen Lichte. Und wo ist das unzugängliche Licht? Oder wie kann ich zu dem unzugänglichen Lichte gelangen? Oder wer wird mich führen und hineinführen in es, dass ich Dich sehe in jenem? Sodann: unter welchen Zeichen, unter welchem Antlitz soll ich Dich suchen? Nie habe ich Dich gesehen, Herr, mein Gott, nicht kenne ich Dein Antlitz. Was soll tun, höchster Herr, was soll tun dieser Dein in die Ferne Verbannter? Was soll tun Dein Knecht, der ängstlich besorgt ist in Liebe zu Dir und weit hinweg von Deinem Antlitz verstoßen ist? Er lechzt Dich zu sehen – und allzu ferne ist jenem Dein Antlitz; er begehrt zu Dir zu gelangen – und unzugänglich ist Deine Wohnung; er wünscht Dich zu finden – und weiß nicht Deinen Ort; er verlangt Dich zu suchen – und kennt nicht Dein Antlitz. Herr, mein Gott bist Du und mein Herr bist Du – und niemals habe ich Dich gesehen; Du hast mich geschaffen und wiedergeschaffen und alle Güter hast Du mir verliehen – und noch habe ich Dich nicht erkannt; schließlich wurde ich geschaffen, um Dich zu sehen – und noch habe ich nicht getan, wofür ich geschaffen wurde. O elendes Los der Menschen, da er das verlor, wozu er geschaffen ward \[…\] Lass mich Dich suchen, indem ich nach Dir verlange, lass mich nach Dir verlangen, indem ich Dich suche! Lass mich Dich finden, indem ich Dich liebe, lass mich Dich lieben, indem ich Dich finde!

@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 13 Oktober 2021 : Brief des Apostels Paulus an die Römer 2,1-11.'
+date: 2021-10-13T07:27:00.001+02:00
+draft: false
+url: /2021/10/mittwoch-13-oktober-2021-brief-des.html
+---
+
+Du bist unentschuldbar - wer du auch bist, Mensch -, wenn du richtest. Denn worin du den andern richtest, darin verurteilst du dich selber, da du, der Richtende, dasselbe tust. Wir wissen aber, dass Gottes Gericht über alle, die solche Dinge tun, der Wahrheit entspricht. Meinst du etwa, du könntest dem Gericht Gottes entrinnen, wenn du die richtest, die solche Dinge tun, und dasselbe tust wie sie? Verachtest du etwa den Reichtum seiner Güte, Geduld und Langmut? Weißt du nicht, dass Gottes Güte dich zur Umkehr treibt? Weil du aber starrsinnig bist und dein Herz nicht umkehrt, sammelst du Zorn gegen dich für den «Tag des Zornes», den Tag der Offenbarung von Gottes gerechtem Gericht. Er wird jedem vergelten, wie es seine Taten verdienen: denen, die beharrlich Gutes tun und Herrlichkeit, Ehre und Unvergänglichkeit erstreben, gibt er ewiges Leben, denen aber, die selbstsüchtig nicht der Wahrheit, sondern der Ungerechtigkeit gehorchen, widerfährt Zorn und Grimm. Not und Bedrängnis wird jeden Menschen treffen, der das Böse tut, zuerst den Juden, aber ebenso den Griechen; Herrlichkeit, Ehre und Friede werden jedem zuteil, der das Gute tut, zuerst dem Juden, aber ebenso dem Griechen; denn Gott richtet ohne Ansehen der Person.

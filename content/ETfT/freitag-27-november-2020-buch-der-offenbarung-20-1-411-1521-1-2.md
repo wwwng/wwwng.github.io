@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 27 November 2020 : Buch der Offenbarung 20,1-4.11-15.21,1-2.'
+date: 2020-11-26T18:02:00.001+01:00
+draft: false
+url: /2020/11/freitag-27-november-2020-buch-der.html
+tags: 
+- LECTIO
+---
+
+Ich, Johannes, sah einen Engel vom Himmel herabsteigen; auf seiner Hand trug er den Schlüssel zum Abgrund und eine schwere Kette. Er überwältigte den Drachen, die alte Schlange - das ist der Teufel oder der Satan -, und er fesselte ihn für tausend Jahre. Er warf ihn in den Abgrund, verschloss diesen und drückte ein Siegel darauf, damit der Drache die Völker nicht mehr verführen konnte, bis die tausend Jahre vollendet sind. Danach muss er für kurze Zeit freigelassen werden. Dann sah ich Throne; und denen, die darauf Platz nahmen, wurde das Gericht übertragen. Ich sah die Seelen aller, die enthauptet worden waren, weil sie an dem Zeugnis Jesu und am Wort Gottes festgehalten hatten. Sie hatten das Tier und sein Standbild nicht angebetet, und sie hatten das Kennzeichen nicht auf ihrer Stirn und auf ihrer Hand anbringen lassen. Sie gelangten zum Leben und zur Herrschaft mit Christus für tausend Jahre. Dann sah ich einen großen weißen Thron und den, der auf ihm saß; vor seinem Anblick flohen Erde und Himmel, und es gab keinen Platz mehr für sie. Ich sah die Toten vor dem Thron stehen, die Großen und die Kleinen. Und Bücher wurden aufgeschlagen; auch das Buch des Lebens wurde aufgeschlagen. Die Toten wurden nach ihren Werken gerichtet, nach dem, was in den Büchern aufgeschrieben war. Und das Meer gab die Toten heraus, die in ihm waren; und der Tod und die Unterwelt gaben ihre Toten heraus, die in ihnen waren. Sie wurden gerichtet, jeder nach seinen Werken. Der Tod und die Unterwelt aber wurden in den Feuersee geworfen. Das ist der zweite Tod: der Feuersee. Wer nicht im Buch des Lebens verzeichnet war, wurde in den Feuersee geworfen. Dann sah ich einen neuen Himmel und eine neue Erde; denn der erste Himmel und die erste Erde sind vergangen, auch das Meer ist nicht mehr. Ich sah die heilige Stadt, das neue Jerusalem, von Gott her aus dem Himmel herabkommen; sie war bereit wie eine Braut, die sich für ihren Mann geschmückt hat.

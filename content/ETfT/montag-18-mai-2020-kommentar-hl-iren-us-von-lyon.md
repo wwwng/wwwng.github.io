@@ -1,0 +1,10 @@
+---
+title: 'Montag, 18 Mai 2020 : Kommentar Hl. Irenäus von Lyon'
+date: 2020-05-17T17:59:00.001+02:00
+draft: false
+url: /2020/05/montag-18-mai-2020-kommentar-hl-irenaus.html
+tags: 
+- MEDITATIO
+---
+
+Der von den Propheten verheißene Geist stieg auf den Sohn Gottes, der zum Menschensohn geworden war, hinab und gewöhnte sich bei ihm, im Menschengeschlecht zu wohnen und in den Menschen zu ruhen und Wohnung zu nehmen im Geschöpf Gottes, indem er in ihnen den Willen des Vaters vollzog und sie aus dem Alten zur Neuheit Christi erneuerte. Diesen Geist erbat David für das menschliche Geschlecht, indem er sprach: „Mit einem leitenden Geist stärke mich“ (Ps 50(51),14 LXX). Dass dieser nach der Himmelfahrt des Herrn auf die Jünger am Pfingstfest herabgestiegen sei (Apg 2,3) und allen Völkern den Eintritt zum Leben eröffnete und das Neue Testament erschloss, berichtet Lukas. Deshalb lobpriesen sie auch in dem Zusammenwehen aller Sprachen Gott, indem der Geist die auseinanderwohnenden Stämme zur Einheit zurückführte und die Erstlinge aller Völker dem Vater darbot. Deshalb versprach der Herr auch, den Tröster zu senden (Joh 16,7), der uns an Gott anpassen sollte. Wie nämlich aus dem trockenen Weizen ohne Feuchtigkeit kein Teig werden kann, noch ein Brot, so konnten wir viele nicht eins werden in Christus Jesus ohne das Wasser, das vom Himmel kommt. Und wie die trockene Erde, wenn sie keine Feuchtigkeit empfängt, auch keine Frucht bringt, so würden auch wir, die wir von Haus aus trockenes Holz sind, niemals das Leben ohne den „Gnadenregen“ von oben (vgl. Ps 68(67),10) Frucht bringen. Denn unsere Leiber haben durch jenes Bad \[die Taufe\], das zur Unvergänglichkeit dient, die Einheit empfangen, unsere Seelen aber durch den Geist. Daher ist auch beides nötig, da beides hinführt zum Leben in Gott.

@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 14 November 2018 : Kommentar Hl. Bernhard'
+date: 2018-11-13T17:48:00.003+01:00
+draft: false
+url: /2018/11/mittwoch-14-november-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+In unseren Tagen sieht man viele Menschen, die beten, aber leider keine, die umkehren und Gott danken \[...\] „Sind nicht zehn rein geworden? Wo sind die neun?“ Ihr erinnert euch sicher, so glaube ich, dass sich der Herr mit diesen Worten beklagt hat über die Undankbarkeit der neun anderen Aussätzigen. Wir lesen, dass sie sehr wohl wussten, wie man betet, erfleht und bittet, denn sie haben ihre Stimme erhoben, um zu schreien: „Jesus, Meister, hab Erbarmen mit uns!“ Doch ihnen fehlte eine vierte Eigenschaft, die der Apostel Paulus einfordert: die „Danksagung“ (1 Tim 2,1), denn sie sind nicht umgekehrt und haben Gott nicht gedankt. Wir sehen ja auch in unseren Tagen eine gewisse Zahl von Menschen, die Gott inständig um das bitten, was ihnen fehlt, aber man sieht nur wenige, die dankbar zu sein scheinen über die Wohltaten, die sie empfangen haben. Es ist nichts Schlechtes, inständig zu bitten. Was aber dazu führt, dass Gott uns nicht erhört, ist, dass es uns an Dankbarkeit mangelt. Nach allem, was wir gesagt haben, ist es vielleicht ein Akt der Großmut seinerseits, den Undankbaren nicht zu gewähren, was sie erbitten, damit sie nicht noch strenger gerichtet werden aufgrund ihrer Undankbarkeit \[...\] Aus Barmherzigkeit also hält Gott manchmal seine Barmherzigkeit zurück \[...\] Ihr seht also, dass nicht alle, die geheilt wurden von dem Aussatz der Welt – ich meine von augenscheinlichen Verirrungen – einen Gewinn ziehen aus ihrer Heilung. Mehrere sind denn auch verborgenerweise befallen von einem Geschwür, das schlimmer ist als der Aussatz, jedoch weitaus gefährlicher, da es tiefer im Inneren verborgen ist. Deshalb fragt der Erlöser der Welt zurecht danach, wo die neun anderen Aussätzigen sind, denn die Sünder entfernen sich vom Heil. Deshalb fragt Gott den ersten Menschen, nachdem er gesündigt hatte: „Wo bist Du?“ (Gen 3,9).

@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 10 Mai 2019 : Kommentar Katechismus der Katholischen Kirche'
+date: 2019-05-09T17:48:00.001+02:00
+draft: false
+url: /2019/05/freitag-10-mai-2019-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Die Eucharistie ist das Gedächtnis des Pascha Christi, die sakramentale Vergegenwärtigung und Darbringung seines einzigen Opfers in der Liturgie seines Leibes, der Kirche. In allen Hochgebeten finden wir nach den Einsetzungsworten ein Gebet, das Anamnese oder Gedächtnis genannt wird. Im Sinn der Heiligen Schrift ist das Gedächtnis nicht nur ein Sich-Erinnern an Ereignisse der Vergangenheit, sondern die Verkündigung der großen Taten, die Gott für die Menschen getan hat (vgl. Ex 13,3). In der liturgischen Feier dieser Ereignisse werden sie gegenwärtig und wieder lebendig. Auf diese Weise versteht das Volk Israel seine Befreiung aus Ägypten: Jedes Mal, wenn das Pascha gefeiert wird, werden die Ereignisse des Auszugs dem Gedächtnis der Gläubigen wieder gegenwärtig gemacht, damit diese ihr Leben diesen Ereignissen entsprechend gestalten. Im Neuen Bund erhält das Gedächtnis einen neuen Sinn. Wenn die Kirche Eucharistie feiert, gedenkt sie des Pascha Christi; dieses wird gegenwärtig. Das Opfer, das Christus am Kreuz ein für allemal dargebracht hat, bleibt stets gegenwärtig wirksam (vgl. Hebr 7,25–27): „Sooft das Kreuzesopfer, in dem ‚Christus, unser Osterlamm, geopfert wurde‘, auf dem Altar gefeiert wird, vollzieht sich das Werk unserer Erlösung“ (II. Vatikanisches Konzil, LG 3). Die Eucharistie ist auch ein Opfer, weil sie Gedächtnis an das Pascha Christi ist. Der Opfercharakter der Eucharistie tritt schon in den Einsetzungsworten zutage: „Das ist mein Leib, der für euch dahingegeben wird“, und „dieser Kelch ist der Neue Bund in meinem Blut, das für euch vergossen wird“ (Lk 22,19–20). In der Eucharistie schenkt Christus diesen Leib, den er für uns am Kreuz dahingegeben hat, und dieses Blut, das er „für viele vergossen“ hat „zur Vergebung der Sünden“ (Mt 26,28). Die Eucharistie ist also ein Opfer, denn sie stellt das Opfer des Kreuzes dar (und macht es dadurch gegenwärtig), ist dessen Gedächtnis und wendet dessen Frucht zu.

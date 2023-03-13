@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 2 Februar 2020 : Buch Maleachi 3,1-4.'
+date: 2020-02-01T18:06:00.001+01:00
+draft: false
+url: /2020/02/sonntag-2-februar-2020-buch-maleachi-31.html
+tags: 
+- LECTIO
+---
+
+So spricht Gott, der Herr: Seht, ich sende meinen Boten; er soll den Weg für mich bahnen. Dann kommt plötzlich zu seinem Tempel der Herr, den ihr sucht, und der Bote des Bundes, den ihr herbeiwünscht. Seht, er kommt!, spricht der Herr der Heere. Doch wer erträgt den Tag, an dem er kommt? Wer kann bestehen, wenn er erscheint? Denn er ist wie das Feuer im Schmelzofen und wie die Lauge im Waschtrog. Er setzt sich, um das Silber zu schmelzen und zu reinigen: Er reinigt die Söhne Levis, er läutert sie wie Gold und Silber. Dann werden sie dem Herrn die richtigen Opfer darbringen. Und dem Herrn wird das Opfer Judas und Jerusalems angenehm sein wie in den Tagen der Vorzeit, wie in längst vergangenen Jahren.

@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 1 Juni 2021 : Buch Tobias 2,9-14.'
+date: 2021-06-01T07:14:00.001+02:00
+draft: false
+url: /2021/06/dienstag-1-juni-2021-buch-tobias-29-14.html
+---
+
+Als ich, Tobit, am Pfingsttag einen Toten begraben hatte und in der Nacht nach Hause kam, legte ich mich an der Hofmauer zum Schlafen nieder, weil ich unrein geworden war. Mein Gesicht ließ ich unbedeckt, ohne auf die Sperlinge zu achten, die in der Mauer nisteten. Da ließen die Sperlinge ihren warmen Kot in meine offenen Augen fallen, und es bildeten sich weiße Flecke in meinen Augen. Ich ging zu den Ärzten, doch sie konnten mir nicht helfen. Achikar sorgte für meinen Unterhalt, bis er in die Provinz Elymaïs zog. Meine Frau Hanna fertigte zu Hause Webarbeiten an, wie sie Frauen zu machen pflegen, und lieferte sie dann bei den Bestellern ab. Einmal geschah es, dass sie ihr nicht nur den Lohn zahlten, sondern auch noch ein Ziegenböckchen dazuschenkten. Als sie heimkam, fing das Tier an zu meckern. Ich fragte sie: Wo hast du das Böckchen her? Es ist doch nicht etwa gestohlen? Dann gib es seinen Eigentümern zurück! Denn was gestohlen ist, darf man nicht essen. Sie erwiderte: Es wurde mir zusätzlich zu meinem Lohn geschenkt. Aber ich glaubte ihr nicht und verlangte, dass sie es seinen Eigentümern zurückbrachte, und ich schämte mich ihretwegen. Doch sie antwortete: Wo ist denn der Lohn für deine Barmherzigkeit und Gerechtigkeit? Jeder weiß, was sie dir eingebracht haben.

@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 2 Mai 2020 : Kommentar Hl. Johannes Paul II.'
+date: 2020-05-01T17:58:00.001+02:00
+draft: false
+url: /2020/05/samstag-2-mai-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wer sich von Christus in der Eucharistie nährt, muss nicht das Jenseits erwarten, um das ewige Leben zu erlangen: Er besitzt es schon auf Erden als Erstlingsgabe der künftigen Fülle, die den ganzen Menschen betreffen wird. In der Eucharistie empfangen wir tatsächlich auch die Garantie der leiblichen Auferstehung am Ende der Welt: „Wer mein Fleisch isst und mein Blut trinkt, hat das ewige Leben, und ich werde ihn auferwecken am Letzten Tag“ (Joh 6, 54). Diese Garantie der künftigen Auferstehung kommt aus der Tatsache, dass das Fleisch des Menschensohnes, das uns zur Speise gereicht wird, sein Leib im verherrlichten Zustand des Auferstandenen ist. Mit der Eucharistie nehmen wir sozusagen das „Geheimnis“ der Auferstehung in uns auf. Deshalb definierte der heilige Ignatius von Antiochien das eucharistische Brot zu Recht als „Medizin der Unsterblichkeit, Gegengift gegen den Tod“. Die eschatologische Spannung, die durch die Eucharistie wachgerufen wird, drückt die Gemeinschaft mit der himmlischen Kirche aus und stärkt sie. Es ist kein Zufall, dass die orientalischen Anaphoren und die eucharistischen Hochgebete des lateinischen Ritus das ehrfürchtige Gedenken Mariens, der allzeit jungfräulichen Mutter unseres Herrn und Gottes Jesus Christus, der Engel, der heiligen Apostel, der ruhmreichen Märtyrer und aller Heiligen enthalten. Dies ist ein Aspekt der Eucharistie, der es verdient, hervorgehoben zu werden: Während wir das Opfer des Lammes feiern, vereinen wir uns mit der himmlischen Liturgie und gesellen uns zu jener gewaltigen Schar, die ruft: „Die Rettung kommt von unserem Gott, der auf dem Thron sitzt, und von dem Lamm!“ (Offb 7,10). Die Eucharistie ist wirklich ein Aufbrechen des Himmels, der sich über der Erde öffnet. Sie ist ein Strahl der Herrlichkeit des himmlischen Jerusalem, der die Wolken unserer Geschichte durchdringt und Licht auf unseren Weg wirft.

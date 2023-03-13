@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 8 Juni 2019 : Kommentar Hl. Teresa von Avila'
+date: 2019-06-07T17:45:00.003+02:00
+draft: false
+url: /2019/06/samstag-8-juni-2019-kommentar-hl-teresa.html
+tags: 
+- MEDITATIO
+---
+
+Es liegt \[…\] sehr viel daran, zu verstehen, dass Gott nicht alle denselben Weg führt. Und vielleicht steht gerade derjenige, der den niedrigsten Weg zu gehen meint, in den Augen des Herrn sehr hoch. Weil alle in diesem Haus das Gebet üben, müssen darum nicht alle kontemplativ sein; das ist unmöglich. Wenn eine Schwester, die es nicht ist, diese Wahrheit nicht versteht, wird sie untröstlich sein. \[…\] Ich konnte über vierzehn Jahre lang ohne Buch nicht einmal Betrachtung halten. Es gibt sicher viele Personen, denen es genauso geht, und manche vermögen nicht einmal mit Hilfe eines Buches Betrachtung zu halten; sie können nur mündlich beten; dabei können sie am längsten verweilen. \[…\] Es gibt recht viele Menschen, denen es genauso ergeht. Wenn sie demütig sind, so glaube ich, dass ihnen am Ende nicht weniger zuteil wird als denen, die großen geistigen Genuss erfahren; sie empfangen genausoviel und gehen in gewisser Hinsicht sogar einen viel sichereren Weg; denn wir wissen nicht, ob diese geistigen Genüsse von Gott stammen oder vom Teufel. \[…\] Diejenigen, denen keine geistigen Genüsse zuteil werden, leben in Demut und fragen sich, ob nicht sie selbst schuld daran sind. Immer sind sie darum bemüht, vorwärtszuschreiten. Sehen sie andere auch nur eine Träne vergießen, so meinen sie gleich, sie selbst würden dem Herrn viel zu wenig dienen, weil ihnen keine Tränen kommen. Dabei dienen sie ihm vielleicht viel mehr; denn so gut Tränen auch sein mögen, sie sind nicht immer ein Zeichen der Vollkommenheit, während in der Demut, Abtötung, Losschälung und den anderen Tugenden immer eine viel größere Sicherheit liegt. Es besteht also kein Grund zur Furcht, und ihr braucht keine Angst zu haben, dass ihr nicht zur Vollkommenheit gelangt, so wie die großen Kontemplativen.

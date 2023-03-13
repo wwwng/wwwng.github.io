@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 10 März 2020 : Kommentar Hl. Cyprian'
+date: 2020-03-09T18:08:00.001+01:00
+draft: false
+url: /2020/03/dienstag-10-marz-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wir dürfen um unsere Brüder nicht trauern, wenn sie durch den Ruf des Herrn von der Welt befreit worden sind. Wissen wir doch, dass sie nicht verloren gehen, sondern nur vorausgehen, dass sie mit dem Hinscheiden uns nur voranschreiten; dass man sich zwar, wie gewöhnlich bei einer Land- oder Seereise, nach ihnen sehnen, aber nicht um sie klagen darf, und dass man hier nicht schwarze Kleider anlegen soll, wenn sie dort bereits weiße Gewänder angetan haben; dass man den Heiden keine Gelegenheit geben darf, uns mit Fug und Recht zu tadeln, weil wir dieselben, die doch nach unserer Behauptung bei Gott leben, als tot und verloren betrauern und den Glauben, den wir in Wort und Rede kundtun, nicht auch mit Herz und Seele bezeugen und beweisen. Heuchler in unserer Hoffnung und in unserem Glauben sind wir, wenn nur vorgetäuscht, wenn nur erdichtet, wenn nur erlogen erscheint, was wir sagen. Es nützt nichts, wenn man in Worten Mut zur Schau trägt und durch Taten seine Echtheit widerlegt. \[…\] Wenn wir sterben, so gehen wir durch den Tod zur Unsterblichkeit ein, und das ewige Leben kann nicht nachfolgen, wenn es uns nicht zuerst geschenkt ist, von hier wegzugehen. Das ist kein Hinscheiden für immer, sondern nur ein Übergang und ein Hinüberschreiten zur Ewigkeit, nachdem die zeitliche Laufbahn durchmessen ist. Wer sollte nicht dem Besseren zueilen? Wer sollte nicht wünschen, recht bald verwandelt und umgeformt zu werden nach Christi Gestalt \[…\] Als unsere Heimat betrachten wir das Paradies \[…\] warum eilen und laufen wir dann nicht, um unsere Heimat sehen, um unsere Eltern begrüßen zu können? Eine große Anzahl von Lieben erwartet uns dort, eine stattliche, mächtige Schar von Eltern, Geschwistern und Kindern sehnt sich nach uns, um die eigene Rettung bereits unbesorgt und nur um unser Heil noch bekümmert. Unter ihre Augen, in ihre Arme zu eilen, welch große Freude für sie und uns zugleich!

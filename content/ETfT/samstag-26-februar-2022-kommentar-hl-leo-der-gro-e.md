@@ -1,0 +1,8 @@
+---
+title: 'Samstag, 26 Februar 2022 : Kommentar Hl. Leo der Große'
+date: 2022-02-26T09:11:00.001+01:00
+draft: false
+url: /2022/02/samstag-26-februar-2022-kommentar-hl.html
+---
+
+Christus liebt also die Kleinen, deren Natur er zuerst dem Leibe und der Seele nach annahm. Er liebt die Kleinen, da sie uns Demut lehren, ein Vorbild der Unschuld sind und in sich die Sanftmut verkörpern. Er liebt die Kleinen, denn auf sie weist er die Erwachsenen in ihrer Gesinnung hin, und zu Kindern lässt er die Menschen wieder in ihren alten Tagen werden. Und nach seinem Vorbilde erniedrigt er jene, die er zum ewigen Reiche emporführt. Damit wir aber vollkommen zu erkennen vermögen, auf welche Weise man zu einer solchen Umkehr kommen kann und durch welche Änderung wir wie die Kinder werden wollen, so lasst uns darüber die Worte des seligen Apostel Paulus hören: „Werdet nicht Kinder an Einsicht, sondern seid Kindlein in der Bosheit!“ (1 Kor 14,20). Nicht zu den Tändeleien der Kindheit also oder zu den Unvollkommenheiten unserer Jugendjahre sollen wir zurückkehren, sondern solche Eigenschaften aus jener Zeit annehmen, die auch dem reiferen Alter ziemen! Schnell lasst uns darum unseren Ärger unterdrücken und rasch die Hand zur Versöhnung bieten! Aufhören soll jedes Nachtragen von Beleidigungen, aufhören jedes Verlangen nach Glanz und Würde! Gerne verkehre man miteinander, und unter allen herrsche natürliche Gleichheit! Ist es doch ein großes Gut, niemand schaden zu können und in Ränken unerfahren zu sein \[…\], dass man niemand Böses mit Bösem vergilt. In dieser Hinsicht den Kindern ähnlich zu werden \[…\] Diese Art der Demut legt uns der von den Weisen angebetete im Kindesalter stehende Erlöser ans Herz.

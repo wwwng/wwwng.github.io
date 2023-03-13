@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 14 Dezember 2021 : Kommentar Hl. Petrus Chrysologus'
+date: 2021-12-14T09:11:00.001+01:00
+draft: false
+url: /2021/12/dienstag-14-dezember-2021-kommentar-hl.html
+---
+
+Johannes der Täufer lehrt in Worten und Taten. Als wahrer Lehrer zeigt er durch sein Beispiel, was sein Mund redet. Das Wissen macht den Lehrer, aber das Verhalten ist es, was Autorität verleiht. Wer belehren will, muss diese eine Regel beachten: durch Taten lehren. Unterweisung durch Worte ist Wissensvermittlung; wenn das Wissen aber in Taten umgesetzt wird, ist es Tugend. Authentisch ist also nur das Wissen, das mit der Tugend verbunden ist: Sie ist es, sie allein, die göttlich ist und nicht bloß menschlich. \[…\] „In jenen Tagen trat Johannes der Täufer auf und verkündete in der Wüste von Judäa: Kehrt um! Denn das Himmelreich ist nahe“ (Mt 3,1–2). „Kehrt um.“ Warum sagt er stattdessen nicht: „Freut euch“? „Freut euch vielmehr, weil die menschlichen Wirklichkeiten den göttlichen weichen, die irdischen den himmlischen, die zeitlichen den ewigen, das Böse dem Guten, die Ungewissheit der Sicherheit, der Kummer dem Glück, das Vergängliche dem ewig Bleibenden. Das Himmelreich ist nahe. Kehrt um.“ Dein Verhalten soll offenbar machen, dass du umgekehrt bist. Du, der du das Menschliche dem Göttlichen vorgezogen hast, der du lieber Sklave der Welt sein wolltest, als mit dem Herrn der Welt die Welt zu überwinden, kehr um! Du, der du die Freiheit, die dir die Tugenden verschafft hätten, gemieden hast, weil du das Joch der Sünde tragen wolltest: Kehr um! Kehr wirklich um, der du aus Angst, das wahre Leben zu besitzen, dich dem Tod ausgeliefert hast.

@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 18 April 2020 : Kommentar Hl. Johannes Paul II.'
+date: 2020-04-17T18:01:00.001+02:00
+draft: false
+url: /2020/04/samstag-18-april-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Duc in altum! Gehen wir voll Hoffnung voran! Ein neues Jahrtausend liegt vor der Kirche wie ein weiter Ozean, auf den es hinauszufahren gilt. Dabei zählen wir auf die Hilfe Jesu Christi. Der Sohn Gottes, der aus Liebe zum Menschen vor zweitausend Jahren Mensch wurde, vollbringt auch heute sein Werk. Wir brauchen aufmerksame Augen, um es zu sehen, und vor allem ein großes Herz, um selber seine Werkzeuge zu werden. Haben wir etwa das Jubiläumsjahr nicht deshalb gefeiert, um wieder mit dieser lebendigen Quelle unserer Hoffnung Kontakt aufzunehmen? Nun fordert uns Christus, den wir in Liebe betrachteten, noch einmal auf, uns auf den Weg zu machen: „Darum geht zu allen Völkern, und macht alle Menschen zu meinen Jüngern; tauft sie auf den Namen des Vaters und des Sohnes und des Heiligen Geistes“ (Mt 28,19). Der Missionsauftrag führt uns mit der Aufforderung zu derselben Begeisterung, welche die Christen der ersten Stunde auszeichnete, in das dritte Jahrtausend ein: Wir können auf die Kraft desselben Geistes zählen, der am Pfingstfest ausgegossen wurde und uns heute dazu anspornt, einen Neuanfang zu setzen. Dabei fühlen wir uns getragen von der Hoffnung, „die nicht zugrunde gehen lässt“ (Röm 5,5). Am Beginn dieses neuen Jahrhunderts muss unser Schritt schneller werden, wenn wir erneut die Straßen der Welt zurücklegen. Es gibt so viele Straßen, auf denen jeder von uns und jede unserer Kirchen geht, aber jene, die zusammengebunden werden durch die eine Gemeinschaft, die Gemeinschaft, die sich täglich am Tisch des eucharistischen Brotes und des Wortes des Lebens nährt, kennen keine Distanz. Jeden Sonntag gewährt uns der auferstandene Christus gleichsam eine Begegnung im Abendmahlssaal, wo er sich am Abend „des ersten Tages der Woche“ (Joh 20,19) seinen Jüngern zeigte, um ihnen das lebendig machende Geschenk des Geistes »einzuhauchen« und sie in das große Abenteuer der Evangelisierung einzuführen.

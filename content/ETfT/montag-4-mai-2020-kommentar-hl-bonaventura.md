@@ -1,0 +1,10 @@
+---
+title: 'Montag, 4 Mai 2020 : Kommentar Hl. Bonaventura'
+date: 2020-05-03T17:41:00.001+02:00
+draft: false
+url: /2020/05/montag-4-mai-2020-kommentar-hl.html
+tags: 
+- EVANGELIUM
+---
+
+Welch große Sorge der liebevolle Hirte um die verlorenen Schafe trug, mit welcher Güte er sich kümmerte, das deutet der gute Hirte selber an: in seinem Gleichnis vom Hirten und dem verlorenen hundertsten Schaf, das mit Mühen und Sorgen gesucht, endlich gefunden und auf den Schultern mit Freude zurückgetragen wird (Lk 15,4–10). Was er hier mit einem ergreifenden Bild zu verstehen gibt, das erklärt er andernorts in unverhüllter Rede: „Der gute Hirte gibt sein Leben für die Schafe“ (Joh 10,11). In ihm findet jenes prophetische Wort seine vollkommene Erfüllung, das lautet: „Wie ein Hirt seine Herde weidet …“ (Jes 40,11). Deswegen hat er so viele Mühen, Sorgen und Entbehrungen ertragen, war ständig auf Wanderschaft und predigte das Evangelium in Städten und Dörfern, mitten unter den Anfeindungen der Pharisäer und unter vielerlei Gefahren, und verbrachte die Nächte im Gebet. Er fürchtete sich weder vor dem Murren der Pharisäer, noch davor, ihnen ein Ärgernis zu sein; er war gegenüber den Zöllnern zugänglich und versicherte, er sei der Kranken wegen in die Welt gekommen (Mt 9,12). Denen, die Buße taten, brachte er die Liebe des Vaters entgegen, er zeigte ihnen das geöffnete Herz seines Erbarmens. Als Zeugen dafür rufe ich hier in die Mitte: Matthäus, Zachäus, jene Sünderin, die sich zu seinen Füßen warf, und die Frau, die beim Ehebruch ertappt worden war (Mt 9,9ff.; 10,3; Lk 19,2ff.; Lk7,37; Joh 8,3ff.). Folge diesem vollkommen barmherzigen Hirten mit ganzem Herzen, wie es Matthäus tat; nimm ihn wie Zachäus in dein Haus auf, salbe ihn wie jene Sünderin und wasche seine Füße mit deinen Tränen, trockne sie mit deinen Haaren und küsse sie; damit du schließlich auch mit jener Frau, die seinem Richtspruch vorgeführt worden war, den Freispruch hören darfst: „Hat dich niemand verurteilt? Auch ich verurteile dich nicht. Geh hin und sündige nicht wieder“ (Joh 8,10f.).

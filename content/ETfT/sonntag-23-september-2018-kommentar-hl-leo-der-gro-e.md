@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 23 September 2018 : Kommentar Hl. Leo der Große'
+date: 2018-09-22T17:45:00.001+02:00
+draft: false
+url: /2018/09/sonntag-23-september-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Die Majestät des Gottessohnes war sich nicht zu schade, die Gestalt eines Kindes anzunehmen. Freilich hat sich jene Kindheit, die von der Majestät des Gottessohnes nicht verschmäht wurde, durch Zuwachs an Jahren zum reifen Mannesalter entwickelt, freilich haben durch die Erringung des Triumphes seines Leidens und seiner Auferstehung all die Handlungen, welche Christus in seiner Erniedrigung für uns auf sich nahm, ihren Abschluß gefunden, aber dennoch erneuert uns der heutige Festtag die hochheilige Geburt Jesu, der aus der Jungfrau Maria zur Welt kam. Indem wir die Menschwerdung unseres Erlösers anbeten, feiern wir offenbar den Beginn unseres eigenen Lebens. Ist doch die Erzeugung Christi der Ursprung des christlichen Volkes, und der Geburtstag des Hauptes zugleich auch der Geburtstag des Leibes. Mag auch jeder einzelne von den Berufenen seinen besonderen Stand haben, mögen auch all die Kinder der Kirche durch der Zeiten Folge voneinander getrennt sein, so ist doch die Gesamtheit aller Gläubigen, die aus dem Taufquell hervorging, ebenso mit Christus in seiner Geburt geboren worden, wie sie mit ihm in seinem Leiden gekreuzigt, in seiner Auferstehung auferweckt und in seiner Himmelfahrt zur Rechten des Vaters gesetzt wurde. Denn wer nur immer von den Gläubigen in irgendeinem Teile der Welt in Christus wiedergeboren wird, verwandelt sich durch diese Wiedergeburt in einen neuen Menschen, da ihm der Weg der alten Abstammung abgeschnitten wird. Auch gilt er nicht länger bloß für einen Nachkommen seines leiblichen Vaters, sondern vielmehr für einen Sprossen des Erlösers selbst, der deshalb des Menschen Sohn geworden, damit wir Kinder Gottes werden könnten.

@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 7 Juli 2021 : Kommentar Isaak von Stella'
+date: 2021-07-07T10:11:00.001+02:00
+draft: false
+url: /2021/07/mittwoch-7-juli-2021-kommentar-isaak.html
+---
+
+Christus kam, um das eine Schaf zu suchen, das verloren war (vgl. Mt 18,12). Um dieses Schafes willen ist der Gute Hirte in die Zeit gesandt worden, er, der von Anfang an verheißen war. Um dieses Schafes willen wurde er geboren und dahingegeben. Dieses Schaf ist einzigartig, herausgeholt aus Juden und Heiden \[…\], aus allen Nationen; einzig im Mysterium, vielfach in den Personen; vielfach aufgrund des Leibes der Natur nach, einzig aufgrund des Geistes der Gnade nach, kurz: Es geht um ein einziges Schaf und um eine unzählige Schar. Deshalb wurde er, der kam, um das eine Schaf zu suchen, „zu den verlorenen Schafen des Hauses Israel“ (Mt 15,24) gesandt. \[…\] Nun kann aber „niemand seiner Hand entreißen“ (vgl. Joh 10,28), was dieser Hirte als sein Eigentum betrachtet. Denn die Macht kann nicht gezwungen, die Weisheit nicht getäuscht, die Liebe nicht zerstört werden. Deshalb sprach er voller Gewissheit: „Vater, ich habe keinen von denen verloren, die du mir gegeben hast“ (vgl. Joh 18,9). \[…\] Er wurde also als Wahrheit gesandt für die Getäuschten, als Weg für die Verlorenen, als Leben für die Toten, als Weisheit für die Toren, als Heilmittel für die Kranken, als Lösegeld für die Gefangenen und als Nahrung für die Hungernden. Diese stehen in ihren Personen für alle, von denen man sagen kann, dass er „zu den verlorenen Schafen des Hauses Israel“ gesandt wurde, damit sie nicht für immer verloren gehen.

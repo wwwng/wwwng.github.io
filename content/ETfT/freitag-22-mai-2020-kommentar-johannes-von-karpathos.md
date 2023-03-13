@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 22 Mai 2020 : Kommentar Johannes von Karpathos'
+date: 2020-05-21T18:13:00.001+02:00
+draft: false
+url: /2020/05/freitag-22-mai-2020-kommentar-johannes.html
+tags: 
+- MEDITATIO
+---
+
+Was hat es uns genützt, in Kümmernis zu fallen, uns, die unaufhörlich beten und lobpreisen? Wo doch andere, die nicht beten, nicht nachtwachen und heiterer Stimmung sind, gedeihen und sich vergnügen? Wie der Prophet sagt: „Siehe, Fremde haben Häuser gebaut und wir schätzen sie glücklich.“ Er fügt hinzu: „Das ist es, was die Diener Gottes zum Vorwurf machen“ (vgl. Mal 3,15–16 LXX), sie, die das Wissen haben. Man muss jedoch wissen, dass die Heimgesuchten, die schwer Bekümmerten, solche die durch viele Prüfungen das Zeichen ihres Meisters an sich tragen, nichts erleiden, was sie überraschen könnte. Denn sie haben die Ankündigung davon in den Evangelien gehört: „Amen, amen, ich sage euch, die ihr bei mir seid: Ihr werdet weinen und klagen, aber die Welt wird sich freuen“ (vgl. Joh 16,20). Nur noch eine kurze Zeit, und ich werde durch den Tröster zu euch kommen; ich werde euch aus eurer Niedergeschlagenheit herausholen und euch durch Gedanken des Lebens und des himmlischen Friedens wiederaufrichten, auch durch sanfte Tränen, die ihr während der Tage eurer Prüfung nicht geweint habt. Ich nähre euch mit meiner Gnade, wie eine Mutter ihr weinendes Kind stillt. Ich werde euch, die ihr vom Kampf erschöpft seid, durch die Kraft von oben stärken. Euch, die ihr mit Bitterkeit bedeckt wart, werde ich mit Sanftmut und Milde erfüllen, wie es Jeremia in den Klageliedern sagt, wenn er von dem Jerusalem spricht, das in dir verborgen ist. Aber ich komme euch besuchen und euer Herz wird sich über diesen heimlichen Besuch freuen. Euer Kummer wird sich in Freude verwandeln, und niemand wird euch eure Freude nehmen können (vgl. Joh 16,22).

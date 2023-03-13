@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 22 August 2019 : Buch der Richter 11,29-39a.'
+date: 2019-08-21T17:46:00.001+02:00
+draft: false
+url: /2019/08/donnerstag-22-august-2019-buch-der.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen kam der Geist des Herrn über Jiftach, und Jiftach zog durch Gilead und Manasse nach Mizpa in Gilead, und von Mizpa in Gilead zog er gegen die Ammoniter. Jiftach legte dem Herrn ein Gelübde ab und sagte: Wenn du die Ammoniter wirklich in meine Gewalt gibst und wenn ich wohlbehalten von den Ammonitern zurückkehre, dann soll, was immer mir als erstes aus der Tür meines Hauses entgegenkommt, dem Herrn gehören, und ich will es ihm als Brandopfer darbringen. Darauf zog Jiftach gegen die Ammoniter in den Kampf, und der Herr gab sie in seine Gewalt. Er schlug sie im ganzen Gebiet zwischen Aroër und Minnit bis hin nach Abel-Keramim vernichtend und nahm zwanzig Städte ein. So wurden die Ammoniter vor den Augen der Israeliten gedemütigt. Als Jiftach nun nach Mizpa zu seinem Haus zurückkehrte, da kam ihm seine Tochter entgegen; sie tanzte zur Pauke. Sie war sein einziges Kind; er hatte weder einen Sohn noch eine andere Tochter. Als er sie sah, zerriss er seine Kleider und sagte: Weh, meine Tochter! Du machst mich niedergeschlagen und stürzt mich ins Unglück. Ich habe dem Herrn mit eigenem Mund etwas versprochen und kann nun nicht mehr zurück. Sie erwiderte ihm: Mein Vater, wenn du dem Herrn mit eigenem Mund etwas versprochen hast, dann tu mit mir, was du versprochen hast, nachdem dir der Herr Rache an deinen Feinden, den Ammonitern, verschafft hat. Und sie sagte zu ihrem Vater: Nur das eine möge mir gewährt werden: Lass mir noch zwei Monate Zeit, damit ich in die Berge gehe und zusammen mit meinen Freundinnen meine Jugend beweine. Er entgegnete: Geh nur!, und ließ sie für zwei Monate fort. Sie aber ging mit ihren Freundinnen hin und beweinte ihre Jugend in den Bergen. Als zwei Monate zu Ende waren, kehrte sie zu ihrem Vater zurück, und er tat mit ihr, was er gelobt hatte; sie aber hatte noch mit keinem Mann Verkehr gehabt. So wurde es Brauch in Israel,

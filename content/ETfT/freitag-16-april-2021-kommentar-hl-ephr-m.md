@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 16 April 2021 : Kommentar Hl. Ephräm'
+date: 2021-04-15T18:13:00.001+02:00
+draft: false
+url: /2021/04/freitag-16-april-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+In einem Augenblick vermehrte der Herr ein wenig Brot. Was Menschen in zehn Monaten Arbeit schaffen, schafften seine zehn Finger in einem Moment. \[…\] Doch nicht an seinem Können hat er das Wunder bemessen, sondern am Hunger derjenigen, die dort versammelt waren. Wenn das Wunder an seinem Können bemessen worden wäre, dann hätte man es unmöglich bewerten können; gemessen am Hunger dieser Tausenden von Menschen, ging das Wunder noch um zwölf Körbe darüber hinaus. Bei Handwerkern ist das Können geringer als die Wünsche der Kunden; sie vermögen nicht alles zu tun, was man von ihnen verlangt; die Werke Gottes dagegen übertreffen jeden Wunsch. \[…\] Gesättigt in der Wüste, wie einst die Israeliten nach dem Gebet des Moses, riefen sie: „Das ist wirklich der Prophet, der in die Welt kommen soll“ (Joh 6,14). Damit spielten sie auf die Worte des Mose an: „Einen Propheten \[…\] wird dir der Herr, dein Gott, erstehen lassen“, nicht irgendeinen, sondern „einen Propheten wie mich“ (vgl. Dtn 18,15), der euch in der Wüste mit Brot sättigen wird. Wie ich, ist er auf dem Meer gegangen, er ist in der erleuchteten Wolke erschienen (vgl. Mt 17,5), er hat sein Volk befreit. \[…\] Er übergab Maria an Johannes, so wie Mose seine Herde an Josua übergab. \[…\] Aber das Brot des Mose war noch nicht vollkommen; es wurde nur den Israeliten gegeben. Um anzudeuten, dass seine Gabe der des Mose überlegen und die Berufung der Völker noch vollkommener ist, sagte unser Herr: „Wer von diesem Brot isst, das ich geben werde, wird in Ewigkeit leben“, denn „das Brot Gottes ist vom Himmel herabgekommen“ und wird der ganzen Welt gegeben (vgl. Joh 6,51).

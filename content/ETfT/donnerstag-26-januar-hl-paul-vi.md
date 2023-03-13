@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 26. Januar : Hl. Paul VI.'
+date: 2023-01-26T08:23:00.001+01:00
+draft: false
+url: /2023/01/donnerstag-26-januar-hl-paul-vi.html
+---
+
+Die Laien, die ihrer besonderen Berufung gemäß ihren Platz mitten in der Welt haben und die verschiedensten zeitlichen Aufgaben erfüllen, müssen darin eine besondere Form der Evangelisierung vollziehen. Ihre erste und unmittelbare Aufgabe ist nicht der Aufbau und die Entwicklung der kirchlichen Gemeinschaft – hier liegt die besondere Aufgabe der Hirten –, sondern sie sollen alle christlichen, vom Evangelium her gegebenen Möglichkeiten, die zwar verborgen, aber dennoch in den Dingen der Welt schon vorhanden sind und aktiv sich auswirken, verwirklichen. Das eigentliche Feld ihrer evangelisierenden Tätigkeit ist die weite und schwierige Welt der Politik, des Sozialen und der Wirtschaft, aber auch der Kultur, der Wissenschaften und Künste, des internationalen Lebens und der Massenmedien, ebenso gewisse Wirklichkeiten, die der Evangelisierung offenstehen, wie Liebe, Familie, Kinder- und Jugenderziehung, Berufsarbeit, Leiden usw. Je mehr vom Evangelium geprägte Laien da sind, die sich für diese Wirklichkeiten verantwortlich wissen und überzeugend in ihnen sich betätigen, sie mit Fachkenntnis voranbringen und sich bewusst bleiben, dass sie ihre gesamte christliche Substanz, die oft verschüttet und erstickt erscheint, einsetzen müssen, umso mehr werden diese Wirklichkeiten, ohne etwas von ihrer menschlichen Tragweite zu verlieren oder zu opfern, geradezu eine oft verkannte transzendente Dimension offenbaren, in den Dienst der Erbauung des Reiches Gottes treten und damit in den Dienst des Heiles in Jesus Christus.

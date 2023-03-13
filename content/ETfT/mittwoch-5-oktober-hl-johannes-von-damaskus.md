@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 5. Oktober : Hl. Johannes von Damaskus'
+date: 2022-10-05T09:23:00.001+02:00
+draft: false
+url: /2022/10/mittwoch-5-oktober-hl-johannes-von.html
+---
+
+„Jesus betete einmal in der Einsamkeit“ (Lk 9,18). Das Gebet hat seine Quelle in der Stille und im inneren Frieden; dort offenbart sich die Herrlichkeit Gottes (vgl. Lk 9,29). Denn wenn wir unsere Augen und Ohren schließen, wenn wir uns innerlich in der Gegenwart Gottes befinden, wenn wir, befreit von der Unruhe der äußeren Welt, in uns selbst sind, dann werden wir in unseren Seelen das Reich Gottes deutlich sehen. Denn das Himmelreich oder, wenn man so will, das Reich Gottes ist in uns selbst: Jesus, unser Herr, hat es uns gesagt (vgl. Lk 17,21). Die Glaubenden und der Herr beten jedoch auf verschiedene Weise. Die Diener nähern sich in ihrem Gebet dem Herrn ja mit einer Mischung aus Furcht und Sehnsucht; das Gebet wird für sie zu einer Wanderschaft hin zu Gott und zur Vereinigung mit ihm, indem es sie mit seiner eigenen Substanz nährt und stärkt. Christus jedoch, dessen heilige Seele eins ist mit dem Wort Gottes, wie betet er? Wie kann der Herr denn eine bittende Haltung einnehmen? Und wenn er es tut, will er uns, nachdem er unsere Natur angenommen hat, nicht unterweisen und uns den Weg zeigen, der uns eben durch das Gebet zu Gott hinaufführt? Will er uns nicht lehren, dass das Gebet zutiefst die Herrlichkeit Gottes in sich birgt?

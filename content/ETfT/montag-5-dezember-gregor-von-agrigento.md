@@ -1,0 +1,8 @@
+---
+title: 'Montag, 5. Dezember : Gregor von Agrigento'
+date: 2022-12-05T08:23:00.001+01:00
+draft: false
+url: /2022/12/montag-5-dezember-gregor-von-agrigento.html
+---
+
+„Süß ist das Licht, und es tut den Augen wohl, die Sonne zu sehen“ (vgl. Koh 11,7) \[…\]; deshalb sagte schon Mose: „Gott sah, dass das Licht gut war“ (Gen 1,4). \[…\] Wie gut tut es uns, an das große, wahre und unzerstörbare Licht zu denken, „das jeden Menschen erleuchtet, der in diese Welt kommt“ (vgl. Joh 1,9), an Christus also, den Erlöser und Befreier der Welt. Nachdem er sich vor den Augen der Propheten enthüllt hatte, wurde er Mensch und drang bis in die letzten Tiefen menschlichen Daseins vor. Von ihm spricht der Prophet David: „Lobsinget Gott, bringt seinem Namen ein Loblied; bereitet dem Bahn, der heraufzieht über den Sonnenuntergang! Herr ist sein Name! Frohlocket vor seinem Angesicht“ (vgl. Ps 67,5 Vulg.). Und dann noch Jesaja mit seiner großen Stimme: „Ihr Völker, die ihr in der Finsternis sitzt, schaut dieses Licht! Für euch, die ihr im Land des Todesschattens wohnt, wird ein Licht aufleuchten“ (vgl. Jes 9,2 Vulg.). \[…\] So kündigt also das Licht der Sonne, das wir mit unseren leiblichen Augen sehen, die geistliche Sonne der Gerechtigkeit an (vgl. Mal 3,20); die süßeste Sonne, die denen aufgegangen ist, die das Glück hatten, von ihr, nämlich von Christus, belehrt zu werden und ihn mit ihren leiblichen Augen zu sehen, während er als gewöhnlicher Mensch unter den Menschen weilte. Und doch war er nicht bloß ein gewöhnlicher Mensch, denn da er als wahrer Gott geboren war, konnte er machen, dass Blinde sehen, Lahme gehen, Taube hören, Aussätzige rein werden und Tote durch ein Wort zum Leben erwachen (vgl. Lk 7,22).

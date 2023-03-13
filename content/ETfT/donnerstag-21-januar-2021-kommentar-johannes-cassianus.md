@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 21 Januar 2021 : Kommentar Johannes Cassianus'
+date: 2021-01-20T18:13:00.001+01:00
+draft: false
+url: /2021/01/donnerstag-21-januar-2021-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Gott hat den Menschen nicht geschaffen, damit er verloren gehe, sondern damit er ewig lebe; und diese seine Absicht bleibt unveränderlich. \[…\] Denn „er will, dass alle Menschen gerettet werden und zur Erkenntnis der Wahrheit gelangen“ (1 Tim 2,4). „So will auch euer himmlischer Vater nicht, dass einer von diesen Kleinen verloren geht“ (Mt 18,14). An anderer Stelle heißt es ebenfalls: „Gott will nicht, dass auch nur eine einzige Seele verloren geht; er schiebt die Ausführung seiner Beschlüsse auf, damit einer, der verworfen wurde, nicht endgültig zugrunde geht (vgl. 2 Sam 14,14 Vulg.; vgl. 2 Petr 3,9). Gott ist wahrhaftig; er lügt nicht, wenn er mit einem Eid bekräftigt: „So wahr ich lebe – ich habe kein Gefallen am Tod des Schuldigen, sondern daran, dass er auf seinem Weg umkehrt und am Leben bleibt“ (vgl. Ez 33,11). \[…\] Darf man denn, ohne sich einer ungeheuren Gotteslästerung schuldig zu machen, annehmen, dass er nicht das Heil ausnahmslos aller will, sondern nur einiger weniger? Wer verloren geht, der geht gegen den Willen Gottes verloren. Tagtäglich ruft er ihm zu: „Kehrt um auf euren bösen Wegen! Warum wollt ihr sterben, ihr vom Haus Israel?“ (Ez 33,11). Und wiederum fragt er: „Warum wendet dieses Volk sich ab und beharrt auf der Abkehr? Ihre Stirn ist härter als Stein, sie weigern sich umzukehren“ (Jer 8,5; 5,3). Die Gnade Christi steht uns also immer zur Verfügung. Da er will, dass alle Menschen gerettet werden, \[…\] ruft er sie alle ohne Ausnahme auf: „Kommt alle zu mir, die ihr euch plagt und schwere Lasten zu tragen habt. Ich werde euch Ruhe verschaffen“ (Mt 11,28).

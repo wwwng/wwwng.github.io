@@ -1,0 +1,10 @@
+---
+title: 'Montag, 31 Dezember 2018 : Kommentar Hl. Maximus von Turin'
+date: 2018-12-30T17:49:00.003+01:00
+draft: false
+url: /2018/12/montag-31-dezember-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wie wir lesen, liebe Brüder, gibt es in Christus zwei Geburten; die eine wie die andere ist Ausdruck einer göttlichen Macht, die unser Begreifen übersteigt. Einerseits zeugt Gott aus sich selbst seinen Sohn; andererseits hat ihn eine Jungfrau durch das Eingreifen Gottes empfangen. \[...\] Einerseits wird er geboren, um das Leben zu erschaffen; andererseits, um den Tod zu beseitigen. Dort wird er aus dem Vater geboren, hier wird er in die Welt gesandt um der Menschen willen. Durch seine Geburt aus dem Vater steht er am Anfang des Menschen; durch seine Geburt als Mensch befreit er den Menschen. Die eine wie die andere Form der Geburt lässt sich nicht in Worte fassen, und zugleich sind beide nicht von einander zu trennen. \[...\] Wenn wir lehren, dass es zwei Geburten in Christus gibt, wollen wir damit nicht sagen, dass der Sohn Gottes zweimal geboren wird, sondern wir stellen die zwei Naturen in ein und demselben Sohn Gottes heraus. Einerseits wurde der geboren, der bereits existierte; andererseits wurde der erzeugt, der noch nicht existierte. Der selige Evangelist Johannes bestätigt es mit diesen Worten: „Im Anfang war das Wort, und das Wort war bei Gott, und das Wort war Gott“, und weiter: „Und das Wort ist Fleisch geworden“. Gott also, der bei Gott war, ist aus ihm hervorgegangen, und das Fleisch Gottes, das nicht in ihm war, ist hervorgegangen aus einer Frau. So ist das Wort Fleisch geworden, freilich nicht in der Weise, dass Gott sich im Menschen aufgelöst hätte, sondern damit der Mensch in Gott herrlich erhoben werde. Deshalb ist Gott nicht zweimal geboren worden, sondern durch diese beiden Arten von Geburten – d. h. die Gottes und die des Menschen – wollte der einzige Sohn des Vaters selber gleichzeitig Gott und Mensch sein in einer einzigen Person: „Wer also könnte von seiner Geburt berichten?“ (vgl. Jes 53,8 Vulg.).

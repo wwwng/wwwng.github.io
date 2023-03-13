@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 14 September 2021 : Kommentar Hl. Theresia Benedicta a Cruce [Edith Stein]'
+date: 2021-09-14T10:11:00.001+02:00
+draft: false
+url: /2021/09/dienstag-14-september-2021-kommentar-hl.html
+---
+
+\[…\] Der Mensch ward um der Menschen willen, Er schenkte Seines Menschenlebens Fülle Den Seelen, die Er sich erwählt. Der einzeln jedes Menschenherz gebildet Und seines Wesens geheimen Sinn In einem neuen Namen einst offenbaren will, Den jener nur versteht, dem er zu eigen: Er hat mit jedem der Erwählten sich verbunden Auf eine eigene, tief geheimnisvolle Weise. Uns schenkt Er aus Seines Menschenlebens Fülle Das Kreuz. Was ist das Kreuz? Das Zeichen der tiefsten Schmach. Wer es berührt, ist ausgestoßen aus der Menschen Reihen. Die einst ihm zugejubelt, Sie wenden scheu sich ab und kennen ihn nicht mehr. Den Feinden ist er schutzlos preisgegeben. Auf Erden bleibt ihm nichts mehr Als Schmerzen, Qual und Tod. Was ist das Kreuz? Das Zeichen, das zum Himmel weist. Hoch ragt es über Erdenstaub und -dunst und damit Empor ins reine Licht. Was Menschen nehmen können, lass es fahren, Öffne die Hände und schmiege Dich ans Kreuz: Dann trägt es Dich hinauf Ins ew’ge Licht. Schau auf zum Kreuz: Es breitet seine Balken, Wie einer seine Arme öffnet, Als wollt’ er alle Welt umfassen: Kommt her, ihr alle, Mühsel’ge und Belad’ne, Auch ihr, die ihr mir rieft: ans Kreuz mit ihm. Es ist das Bild des Gottes, der am Kreuz erblich. Es steigt vom Erdengrund hinauf zum Himmel Gleich Ihm, der auf zum Himmel fuhr, Und tragen möcht’ es alle mit hinauf. Umfasse nur das Kreuz, so hast Du Ihn, Der Wahrheit, Weg und Leben ist. Trägst Du Dein Kreuz, so trägt es Dich Und wird Dir Seligkeit.

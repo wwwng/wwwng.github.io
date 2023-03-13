@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 23 September 2021 : Kommentar Hl. Clemens von Rom'
+date: 2021-09-23T10:11:00.001+02:00
+draft: false
+url: /2021/09/donnerstag-23-september-2021-kommentar.html
+---
+
+Wir bitten beharrlich und inständig, dass der Schöpfer des Weltalls die abgezählte Zahl seiner Auserwählten auf der ganzen Welt unversehrt erhalten wolle durch seinen geliebten Sohn Jesus Christus. Durch den er uns berufen hat von der Finsternis zum Licht, von der Unwissenheit zur Erkenntnis der Herrlichkeit seines Namens, auf dass wir hoffen auf Deinen Namen, der aller Schöpfung den Anfang gab. Da Du uns geöffnet hast die Augen unseres Herzens, damit wir Dich erkennen, den einzigen „Höchsten in der Höhe, den Heiligen, der im Heiligtume ruht“. „Dich, der Du den Stolz der Prahler demütigst“, „die Pläne der Heiden vereitelst“, „die Demütigen erhöhst und die Hohen erniedrigst“, „der Du reich machst und arm“, „tötest und rettest und Leben weckst“. „Dich, den einzigen Wohltäter der Geister und den Gott alles Fleisches“, „der Du hineinsiehst in die Unterwelt“, schaust auf die Werke der Menschen, den Helfer in Gefahr, „den Retter in der Verzweiflung“, den Schöpfer und Aufseher jeglichen Geistes \[…\] Wir bitten Dich, Herr, Du mögest unser „Helfer und Beistand“ sein. Unsere Bedrängten errette, mit den Bedrückten habe Erbarmen, die Gefallenen richte auf. Den Betenden zeige Dich, die Kranken heile, die Irrenden aus Deinem Volke führe den rechten Weg; gib Nahrung den Hungernden, befreie unsere Gefangenen, richte auf die Schwachen, tröste die Kleinmütigen; „erkennen sollen Dich alle Völker, dass Du bist der einzige Gott“ und Jesus Christus Dein Sohn und „wir Dein Volk und die Schafe Deiner Weide“.

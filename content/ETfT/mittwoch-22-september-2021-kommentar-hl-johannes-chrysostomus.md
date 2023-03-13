@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 22 September 2021 : Kommentar Hl. Johannes Chrysostomus'
+date: 2021-09-22T10:11:00.001+02:00
+draft: false
+url: /2021/09/mittwoch-22-september-2021-kommentar-hl.html
+---
+
+Das Kreuz hingegen überzeugte durch ungelehrte Männer, es überzeugte den ganzen Erdkreis, und das nicht über gleichgültige Dinge, sondern über Gott, über die wahre Gottesverehrung, über das Leben nach dem Evangelium und über das künftige Gericht, – und es machte alle Unwissenden und Ungelehrten zu Philosophen. Siehe da, wie das töricht scheinende Werk Gottes die Weisheit der Menschen übertrifft, und wie das schwach scheinende Werk Gottes mehr vermag als die Menschen. Wie vermag es mehr? Indem es sich auf dem ganzen Erdenrund verbreitete, mit Kraft alle gefangen nahm und, ob sich auch Tausende bemühten, den Namen des Gekreuzigten zu vertilgen, dennoch das Gegenteil geschah: denn dieser Name prangte und wurde herrlicher, jene aber vergingen und verdarben: die Lebenden vermochten nichts gegen den Toten, den sie bekriegten \[…\] denn was mit der Gnade Gottes Zöllner und Fischer vermochten, das konnten Redner, Weltweise, Herrscher, kurz die ganze Welt bei aller Anstrengung nicht einmal im Gedanken erreichen \[…\] Das hatte Paulus im Sinn, als er sprach: „Das schwache Werk Gottes vermag mehr als alle Menschen.“ Dass aber die Verkündigung des Evangeliums Gotteswerk ist, lässt sich auch hieraus erkennen. Denn woher kam es doch zwölf ungelehrten Männern in den Sinn, so große Dinge zu unternehmen \[…\]?

@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 1 April 2021 : Buch Exodus 12,1-8.11-14.'
+date: 2021-03-31T18:02:00.001+02:00
+draft: false
+url: /2021/03/donnerstag-1-april-2021-buch-exodus-121.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen sprach der Herr zu Mose und Aaron in Ägypten: Dieser Monat soll die Reihe eurer Monate eröffnen, er soll euch als der erste unter den Monaten des Jahres gelten. Sagt der ganzen Gemeinde Israel: Am Zehnten dieses Monats soll jeder ein Lamm für seine Familie holen, ein Lamm für jedes Haus. Ist die Hausgemeinschaft für ein Lamm zu klein, so nehme er es zusammen mit dem Nachbarn, der seinem Haus am nächsten wohnt, nach der Anzahl der Personen. Bei der Aufteilung des Lammes müsst ihr berücksichtigen, wieviel der einzelne essen kann. Nur ein fehlerfreies, männliches, einjähriges Lamm darf es sein, das Junge eines Schafes oder einer Ziege müsst ihr nehmen. Ihr sollt es bis zum vierzehnten Tag dieses Monats aufbewahren. Gegen Abend soll die ganze versammelte Gemeinde Israel die Lämmer schlachten. Man nehme etwas von dem Blut und bestreiche damit die beiden Türpfosten und den Türsturz an den Häusern, in denen man das Lamm essen will. Noch in der gleichen Nacht soll man das Fleisch essen. Über dem Feuer gebraten und zusammen mit ungesäuertem Brot und Bitterkräutern soll man es essen. So aber sollt ihr es essen: eure Hüften gegürtet, Schuhe an den Füßen, den Stab in der Hand. Esst es hastig! Es ist die Paschafeier für den Herrn. In dieser Nacht gehe ich durch Ägypten und erschlage in Ägypten jeden Erstgeborenen bei Mensch und Vieh. Über alle Götter Ägyptens halte ich Gericht, ich, der Herr. Das Blut an den Häusern, in denen ihr wohnt, soll ein Zeichen zu eurem Schutz sein. Wenn ich das Blut sehe, werde ich an euch vorübergehen, und das vernichtende Unheil wird euch nicht treffen, wenn ich in Ägypten dreinschlage. Diesen Tag sollt ihr als Gedenktag begehen. Feiert ihn als Fest zur Ehre des Herrn! Für die kommenden Generationen macht euch diese Feier zur festen Regel!

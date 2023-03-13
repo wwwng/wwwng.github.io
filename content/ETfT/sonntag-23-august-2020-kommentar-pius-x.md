@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 23 August 2020 : Kommentar Pius X.'
+date: 2020-08-22T18:13:00.001+02:00
+draft: false
+url: /2020/08/sonntag-23-august-2020-kommentar-pius-x.html
+tags: 
+- MEDITATIO
+---
+
+Wir \[fühlen\] Uns sicher in der Burg der Heiligen Kirche. \[…\] Die Verheißungen Christi \[haben zu keiner Zeit\] die Erwartungen getäuscht; \[…\] bestätigt durch die Erfahrungen vieler Jahrhunderte, erprobt in den Umwälzungen einer langen Vergangenheit müssen sie Uns umso mehr bestärken. Königreiche und Kaisertümer sind dahingesunken. Einst hochberühmte und mit allen Segnungen menschlicher Kultur ausgezeichnete Völker sind dem Untergang verfallen. Nicht selten haben die Völker gleichsam vom Alter gebeugt sich verloren. Die Kirche hingegen ist unvergänglich; unlösbar ist das Band, welches sie mit ihrem himmlischen Bräutigam verbindet. Nicht wie eine hinfällige Jugendblüte ist ihre Kraft. Fortwährend ist sie von derselben Lebensfrische beseelt, mit der sie aus Jesu durchstochenem Herzen nach seinem Tode am Kreuze hervorging. Die Mächtigen der Erde haben sich gegen sie erhoben. Sie verschwanden, aber jene blieb. Ruhmredige Philosophen haben in fast unübersehbarer Mannigfaltigkeit Theorien ersonnen und die Lehre der Kirche gewähnt entkräftet, die Hauptstücke des Glaubens widerlegt und alle Dogmen als unhaltbar erwiesen zu haben. Die Geschichte aber zählt heute diese Philosophen alle zu den vergessenen und gänzlich abgetanen Erscheinungen, während das Licht der Wahrheit vom Felsen Petri noch immer im gleichen Glanze strahlt, den Jesus ihm gegeben und vor dem Erbleichen durch sein göttliches Wort schützt: Himmel und Erde werden vergehen, aber meine Worte werden nicht vergehen (Mt 24,35). \[…\] Lenket daher, \[…\] Denken und Forschen nach wie vor auf den festen Felsen, auf welchen, ihr wisst es, unser Erlöser die Kirche für die ganze Welt begründet hat; so wird aufrichtiger Sinn nicht durch Irrwege vom rechten Pfad abgelenkt werden.

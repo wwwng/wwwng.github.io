@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 8 März 2022 : Kommentar Tertullian'
+date: 2022-03-08T09:11:00.001+01:00
+draft: false
+url: /2022/03/dienstag-8-marz-2022-kommentar.html
+---
+
+Im Gebet \[des Herrn ist\] wirklich ein kurzer Inbegriff des ganzen Evangeliums enthalten. Es hebt an mit einem Zeugnis für Gott und einer Errungenschaft des Glaubens, wenn wir sagen: „Vater, der du bist in den Himmeln“, denn wir beten damit Gott an und legen unsern Glauben dar, von welchem diese Anrede ein Ergebnis ist. Es steht geschrieben: „Denen, welche an ihn glauben werden, hat er Gewalt gegeben, dass sie Kinder Gottes genannt werden“ (Joh 1,12). Auch der Herr selbst hat uns sehr häufig Gott als den Vater verkündet, ja er hat sogar vorgeschrieben, keinen andern auf Erden Vater zu nennen, als nur den, welchen wir im Himmel haben (vgl. Mt 23,9). Folglich erfüllen wir, wenn wir so beten, auch ein Gebot. Glücklich die, welche den Vater erkennen! Das ist es gerade, was Israel zum Vorwurf gemacht wird und wofür der Geist Himmel und Erde zu Zeugen anruft, wenn er sagt: „Söhne habe ich gezeugt, und sie erkennen mich nicht an“ (vgl. Jes 1,2). Wenn wir aber sagen: „Vater“, so erkennen wir damit zugleich auch die Gottheit an. Diese Anrede ist Ausdruck des Kindesverhältnisses und der Macht, Im Vater wird auch der Sohn angerufen, denn es heißt: „Ich und der Vater sind eins“ (Joh 10,30). Nicht einmal die Mutter, die Kirche, wird übergangen. Im Sohne und im Vater wird ja die Mutter erkannt; in ihr findet die Benennung Vater und Sohn ihre Grundlage. So ehren wir also in diesem einen Verwandtschaftsverhältnis oder der einen Bezeichnung Gott mit den Seinigen, sind eines Gebotes eingedenk und sprechen eine Missbilligung aus gegen diejenigen, welche den Vater vergessen haben.

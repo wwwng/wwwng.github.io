@@ -1,0 +1,10 @@
+---
+title: 'Montag, 17 Juni 2019 : Kommentar Hl. Dorotheos von Gaza'
+date: 2019-06-16T17:48:00.001+02:00
+draft: false
+url: /2019/06/montag-17-juni-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Im alten Bund hieß es: „Auge für Auge, Zahn für Zahn“ (Ex 21,24). Der Herr aber fordert uns auf, nicht nur geduldig den Schlag dessen hinzunehmen, der uns ohrfeigt, sondern ihm auch noch demütig die andere Wange hinzuhalten. Zweck des Gesetzes war es ja, uns beizubringen, das nicht zu tun, was wir nicht erleiden wollen. Es hinderte uns also daran Böses zu tun, und zwar aus Angst, selber leiden zu müssen. Die Forderung jetzt aber heißt, nein zu sagen zu Hass, Vergnügungssucht, Ehrsucht und anderen schlechten Neigungen \[…\] Durch die heiligen Gebote lehrt uns Christus, wie wir von unseren Leidenschaften frei werden können, um so nicht immer wieder in die gleichen Sünden zu verfallen. Er deckt uns die Ursache auf, die uns zur Missachtung und Übertretung der Gebote Gottes verleitet, und gibt uns so ein Mittel an die Hand, mit dem wir gehorchen und gerettet werden können. Was ist das nun für ein Mittel, und was ist die Ursache der Missachtung? Hört, was unser Herr dazu sagt: „\[…\] lernt von mir; denn ich bin gütig und von Herzen demütig; so werdet ihr Ruhe finden für eure Seele“ (Mt 11,29). Damit zeigt er uns kurz und in einem einzigen Wort sowohl die Wurzel und Ursache all unserer Übel auf, als auch sein Heilmittel, die Quelle alles Guten. Er zeigt uns, dass es der Hochmut ist, der uns zu Fall gebracht hat, und dass es uns nur mit der entgegengesetzten Haltung, der Demut, möglich ist, Erbarmen zu finden. Und in der Tat, Hochmut bewirkt Missachtung und Ungehorsam und führt zum Tod; Demut hingegen bringt Gehorsam und das Seelenheil hervor. Ich verstehe darunter echte Demut, nicht bloß eine Demut in Worten und im Verhalten, sondern eine wirklich demütige Grundhaltung des Herzens und des Geistes. Deshalb sagt der Herr: „Ich bin gütig und von Herzen demütig“. Wer also die echte Seelenruhe finden möchte, übe sich in der Demut.

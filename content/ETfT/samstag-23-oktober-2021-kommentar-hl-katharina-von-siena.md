@@ -1,0 +1,8 @@
+---
+title: 'Samstag, 23 Oktober 2021 : Kommentar Hl. Katharina von Siena'
+date: 2021-10-23T10:11:00.001+02:00
+draft: false
+url: /2021/10/samstag-23-oktober-2021-kommentar-hl.html
+---
+
+\[Die heilige Katharina hörte Gott zu ihr sprechen:\] Ob die Welt es will oder nicht, sie verherrlicht Mich. Allerdings tut sie es nicht in der Weise, wie sie sollte, indem sie Mich nämlich über alles liebte. Ich aber ziehe Lob und Verherrlichung Meines Namens aus den Geschöpfen: Ich lasse Meine Barmherzigkeit und die Überfülle Meiner Liebe in ihnen aufleuchten, gewähre ihnen Aufschub und befehle der Erde nicht, sie um ihrer Sünden willen zu verschlingen. Ja, Ich warte auf sie und heiße die Erde ihnen von ihren Früchten mitteilen, die Sonne sie erwärmen und ihnen Licht und Hitze spenden, den Himmel sich bewegen; und in allen für sie geschaffenen Dingen erzeige Ich ihnen Meine Barmherzigkeit und Liebe und entziehe sie ihnen nicht ihrer Sünden wegen. Dem Sünder wie dem Gerechten teile Ich sie aus, und häufig dem Sünder reichlicher als dem Gerechten, da Ich den Gerechten, der imstande ist zu ertragen, die Güter der Erde entbehren lasse, um ihm das himmlische Gut in größerer Fülle zu schenken. So leuchtet Meine Barmherzigkeit und Liebe über ihnen. Zuweilen werden Meine Knechte auch durch die Verfolgungen, die sie Mir in demütigem und nie ermüdendem Gebet darbringen, Meinem Namen Verherrlichung und Ruhm verschaffen. So dass die Bösen, ob sie es wollen oder nicht, zu Meinem Ruhme handeln, selbst wenn sie beabsichtigen, Mir Schimpf anzutun.

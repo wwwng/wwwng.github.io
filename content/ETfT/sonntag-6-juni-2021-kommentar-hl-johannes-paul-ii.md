@@ -1,0 +1,8 @@
+---
+title: 'Sonntag, 6 Juni 2021 : Kommentar Hl. Johannes Paul II.'
+date: 2021-06-06T10:15:00.001+02:00
+draft: false
+url: /2021/06/sonntag-6-juni-2021-kommentar-hl.html
+---
+
+\[In der Schule Mariens, der „eucharistischen Frau“\]: In gewissem Sinn hat Maria ihren eucharistischen Glauben bereits vor der Einsetzung der Eucharistie gelebt, weil sie nämlich ihren jungfräulichen Schoß für die Menschwerdung des Wortes Gottes dargeboten hat. Die Eucharistie, die auf das Leiden und die Auferstehung verweist, steht zugleich in Kontinuität zur Menschwerdung. Bei der Verkündigung empfing Maria den göttlichen Sohn, auch seinen wahren Leib und sein wahres Blut, und nahm in sich das vorweg, was sich in gewissem Maß auf sakramentale Weise in jedem Gläubigen ereignet, der unter den Zeichen von Brot und Wein den Leib und das Blut des Herrn empfängt. Es besteht daher eine tiefgehende Analogie zwischen dem Fiat, mit dem Maria auf die Worte des Engels geantwortet hat, und dem Amen, das jeder Gläubige spricht, wenn er den Leib des Herrn empfängt. Von Maria wurde verlangt zu glauben, dass der, den sie durch das Wirken des Heiligen Geistes empfing, der „Sohn Gottes“ war (vgl. Lk 1,30–35). In Fortführung des Glaubens der Jungfrau wird von uns verlangt zu glauben, dass derselbe Jesus, der Sohn Gottes und der Sohn Mariens, im eucharistischen Mysterium unter den Zeichen von Brot und Wein mit seinem ganzen gott-menschlichen Sein gegenwärtig wird. „Selig ist die, die geglaubt hat“ (Lk 1,45) \[…\].

@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 16 Oktober 2018 : Kommentar Hl. Johannes vom Kreuz'
+date: 2018-10-15T17:49:00.001+02:00
+draft: false
+url: /2018/10/dienstag-16-oktober-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Gebet der liebenden Seele. Herr, mein Gott, mein Geliebter, wenn du immer noch meiner Sünden gedenkst und dich weigerst, meine Bitte zu erhören, so geschehe hierin dein Wille. Das ist mein einziger Wunsch. Erzeige mir deine Güte und Barmherzigkeit, und meine Sünden offenbaren, was du bist. Und wenn du, um meinen Bitten Erhörung zu gewähren, auf meine Werke wartest, so gewähre dieselben und wirke sie in mir, indem du als Sühne die Leiden annimmst, die ich auf mich zu nehmen bereit bin. \[...\] Wer ist imstande, o mein Gott, sich von den armseligen Wegen und Weisen, dich zu lieben, frei zu machen, wenn du ihn nicht selbst zu dir erhebst in der Reinheit der Liebe? Wie könnte sich der Mensch, erzeugt und geboren in Armseligkeit, zu dir erheben, wenn du, o Herr, ihn nicht an dich ziehen würdest durch die Hand, die ihn erschaffen? Du wirst mir, o mein Gott, nicht das entziehen, was du mir in deinem eingeborenen Sohne gegeben, in dem du mir alles geschenkt hast, was ich verlange; und deshalb darf ich mich auf deine Ankunft freuen, wenn ich auf dich hoffe. Wie magst du noch länger zuwarten, meine Seele? Kannst du denn nicht von diesem Augenblicke an Gott lieben von ganzem Herzen? Mein ist der Himmel und mein die Erde, mein sind die Völker, die Gerechten und Sünder. Mein sind die Engel, die Mutter Gottes und alle geschaffenen Dinge; Gott selbst ist mein und für mich, da Jesus Christus mein und ganz für mich ist (vgl. 1 Kor 3,22-23). Was verlangst du, was suchst du noch mehr, meine Seele? All das ist dein und alles für dich. Halte dich nicht für klein und begnüge dich nicht mit den Brosamen, die vom Tische deines Vaters fallen; steh auf von deiner Niedrigkeit und rühme dich deiner Herrlichkeit, verbirg dich in ihr, und du wirst alles besitzen, was dein Herz begehrt! (vgl. Ps 37(36),4).

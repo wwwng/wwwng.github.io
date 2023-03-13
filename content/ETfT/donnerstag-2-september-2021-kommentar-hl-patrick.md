@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 2 September 2021 : Kommentar Hl. Patrick'
+date: 2021-09-02T10:11:00.001+02:00
+draft: false
+url: /2021/09/donnerstag-2-september-2021-kommentar.html
+---
+
+Denn ich stehe tief in Gottes Schuld. Er ließ mir große Gnade zuteil werden, dass durch mich so viele Völker in Gott wiedergeboren \[…\] wurden \[…\] „Ich habe dich als Licht unter die Völker gebracht, damit du ihr Heil bist bis ans Ende der Welt“ (vgl. Apg 13,47). Und dort möchte ich auf die Verheißung warten, weil er niemals bricht, was er im Evangelium verspricht: „Sie werden von Osten und Westen kommen und sich niederlassen mit Abraham, Isaak und Jakob“ (vgl. Mt 8,11). Das glauben wir: aus der ganzen Welt werden die Gläubigen kommen. Daher ist es wichtig, dass wir gut und gewissenhaft fischen, wie uns der Herr in weiser Voraussicht mit den folgenden Worten mahnt und lehrt: „Folgt mir nach! Ich werde euch zu Menschenfischern machen“ (Mt 4,19). Ein anderes Mal sagt er durch die Propheten: „Seht, ich sende viele Fischer und Jäger, so spricht der Herr“ (vgl. Jer 16,16), und so weiter. Daher ist es also besonders wichtig, dass wir unsere Netze so auswerfen, dass wir eine möglichst große Zahl und sehr, sehr viele für Gott fangen und dass allerorts Geistliche sind, die das Volk taufen und aufmuntern, wo es nötig und erwünscht ist. So wie es dem Ausspruch des Herrn entspricht, der uns im Evangelium mit den folgenden Worten mahnt und lehrt: „Geht also hin zu allen Völkern und unterrichtet sie. Tauft sie auf den Namen des Vaters und des Sohnes und des Heiligen Geistes, und lehrt sie, alles zu befolgen, was ich euch geboten habe. Seid gewiss: Ich bin bei euch alle Tage bis die Welt zu Ende geht“ (vgl. Mt 28,19–20).

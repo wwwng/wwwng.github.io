@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 3 Januar 2020 : Kommentar Hl. Romanos Melodos'
+date: 2020-01-02T17:48:00.001+01:00
+draft: false
+url: /2020/01/freitag-3-januar-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Über Adam, in Eden verblendet, erschien eine Sonne, die aus Bethlehem aufging. Sie öffnete ihm die Augen, indem sie diese im Wasser des Jordan wusch. Über ihm, der von Schatten und Finsternis bedeckt war, stieg ein Licht auf, das nie verlöschen wird. Nun gibt es keine Nacht mehr für ihn, alles ist Tag. Die Zeit der Morgendämmerung ist angebrochen für ihn, denn es war zur Zeit der Abenddämmerung, als er sich versteckte, wie die Schrift sagt (Gen 3,8). Der am Abend zu Fall gekommen war, erlebte nun die Morgenröte, die ihn erleuchtete; er entkam der Finsternis, er schritt er auf den anbrechenden Morgen zu, der alles ins Licht tauchte. \[…\] Sing, Adam, sing! Bete ihn an, der zu dir kommt. Da du dich entfernt hattest, offenbarte er sich dir, damit du ihn schauen, berühren und begrüßen könntest. Er, den du fürchtetest, als du getäuscht worden warst, machte sich um deinetwillen dir gleich. Er stieg herab zur Erde, um dich in den Himmel zu bringen. Er wurde sterblich, damit du Gott \[ähnlich\] werden und dich mit deiner ursprünglichen Schönheit bekleiden kannst. Um dir die Tore zum Garten Eden wieder zu öffnen, wohnte er in Nazareth. Für all das singe ihm, o Mensch, und preise im Psalm den, der sich offenbart und alles erleuchtet hat. \[…\] Die Augen der Erdenkinder empfingen die Kraft, das himmlische Antlitz zu betrachten. Die Blicke der Kreaturen aus Lehm sahen den schattenlosen Glanz des ungeschaffenen Lichtes, das Propheten und Könige sehen wollten, aber nicht gesehen haben (vgl. Mt 13,17). Der große Daniel wurde ein Mann der Sehnsucht genannt, weil er den zu schauen begehrte, den wir schauen. Auch David hoffte auf diesen himmlischen Ratschluss. Das, was damals noch verborgen war, können wir jetzt erkennen: Er ist es, der sich offenbarte und alles erleuchtete.

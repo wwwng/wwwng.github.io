@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 16 Mai 2020 : Kommentar Hl. Cyprian'
+date: 2020-05-15T18:03:00.001+02:00
+draft: false
+url: /2020/05/samstag-16-mai-2020-kommentar-hl-cyprian.html
+tags: 
+- MEDITATIO
+---
+
+„Selig seid ihr, wenn euch die Menschen hassen und aus ihrer Gemeinschaft ausschließen, wenn sie euch beschimpfen und euch in Verruf bringen um des Menschensohnes willen. Freut euch und jauchzt an jenem Tag; euer Lohn im Himmel wird groß sein“ (Lk 6,22–23). Der Herr wollte, dass wir uns freuen, dass wir jubeln vor Freude, wenn wir verfolgt werden, denn wenn Verfolgungen kommen, dann werden die „Kränze des Lebens“ (vgl. Jak 1,12) verteilt, dann bewähren sich die Soldaten Christi, dann öffnen sich die Himmel für seine Zeugen. Wir haben uns nicht in das Heer Gottes eingeschrieben, um nur an die Ruhe zu denken, um den Dienst zu verweigern und uns davor zu drücken, wenn der Herr selbst, der Meister der Demut, der Geduld und des Leidens, den gleichen Dienst vor uns geleistet hat. Was er gelehrt hat, hat er zuerst getan, und wenn er uns drängt, standhaft zu bleiben, dann deshalb, weil er selbst vor uns und für uns gelitten hat. \[…\] Um an den Wettkämpfen im Stadion teilzunehmen, üben die Athleten, trainieren sie und fühlen sich sehr geehrt, wenn sie vor den Augen der Menge und des Kaisers das Glück haben, den Siegespreis zu erhalten. Hier jedoch ist eine Prüfung, die in anderer Weise edel und großartig ist, bei der Gott uns beim Kampf zusieht, uns, seinen Kindern, und bei der er selbst uns eine himmlische Krone verleiht (vgl. 1 Kor 9,25). \[…\] Während wir den Kampf des Glaubens unterstützen, schaut Gott auf uns, seine Engel schauen auch auf uns und Christus schaut auf uns: Welche Ehre für uns! \[…\] Wappnen wir uns deshalb, liebe Brüder, mit all unserer Kraft; bereiten wir uns mit einer beständigen Seele, mit ganzem Glauben und opferbereitem Mut vor.

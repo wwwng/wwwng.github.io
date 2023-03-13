@@ -1,0 +1,8 @@
+---
+title: 'Montag, 24 Mai 2021 : Brief des Apostels Paulus an die Epheser 1,3a.4a.13-19a.'
+date: 2021-05-24T07:14:00.003+02:00
+draft: false
+url: /2021/05/montag-24-mai-2021-brief-des-apostels.html
+---
+
+Gepriesen sei Gott, der Gott und Vater unseres Herrn Jesus Christus: Er hat uns mit allem Segen seines Geistes gesegnet durch unsere Gemeinschaft mit Christus im Himmel. Denn in ihm hat er uns erwählt vor der Erschaffung der Welt, damit wir heilig und untadelig leben vor Gott; Durch ihn habt auch ihr das Wort der Wahrheit gehört, das Evangelium von eurer Rettung; durch ihn habt ihr das Siegel des verheißenen Heiligen Geistes empfangen, als ihr den Glauben annahmt. Der Geist ist der erste Anteil des Erbes, das wir erhalten sollen, der Erlösung, durch die wir Gottes Eigentum werden, zum Lob seiner Herrlichkeit. Darum höre ich nicht auf, für euch zu danken, wenn ich in meinen Gebeten an euch denke; denn ich habe von eurem Glauben an Jesus, den Herrn, und von eurer Liebe zu allen Heiligen gehört. Der Gott Jesu Christi, unseres Herrn, der Vater der Herrlichkeit, gebe euch den Geist der Weisheit und Offenbarung, damit ihr ihn erkennt. Er erleuchte die Augen eures Herzens, damit ihr versteht, zu welcher Hoffnung ihr durch ihn berufen seid, welchen Reichtum die Herrlichkeit seines Erbes den Heiligen schenkt und wie überragend groß seine Macht sich an uns, den Gläubigen, erweist durch das Wirken seiner Kraft und Stärke.

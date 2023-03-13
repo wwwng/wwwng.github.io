@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 6 November 2018 : Kommentar Didachè'
+date: 2018-11-05T17:45:00.003+01:00
+draft: false
+url: /2018/11/dienstag-6-november-2018-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Bezüglich der Eucharistie haltet es so: Zunächst in Betreff des Kelches: Wir danken Dir, unser Vater, für den heiligen Weinstock Davids, Deines Knechtes, den Du uns zu erkennen gabst durch Jesus, Deinen Knecht; Dir sei die Ehre in Ewigkeit. Und in Betreff des gebrochenen Brotes: Wir danken Dir, unser Vater, für das Leben und die Erkenntnis, die Du uns zu erkennen gabst durch Jesus, Deinen Knecht; Dir sei die Ehre in Ewigkeit. Wie dieses gebrochene Brot auf den Bergen zerstreut war und zusammengebracht eins wurde, so möge Deine Gemeinde von den Enden der Erde zusammengebracht werden in Dein Reich; weil Dein ist die Ehre und die Macht durch Jesus Christus in Ewigkeit. \[...\] Wenn ihr aber gesättigt seid, danket also: Wir danken Dir, heiliger Vater, für Deinen heiligen Namen, dessen Wohnung Du in unseren Herzen bereitet hast, und für die Erkenntnis und den Glauben und die Unsterblichkeit, die Du uns zu erkennen gabst durch Jesus Deinen Knecht; Dir sei die Ehre in Ewigkeit. Du allmächtiger Herrscher, „hast alles erschaffen“ um Deines Namens willen, hast Speise und Trank gegeben den Menschen zum Genusse, damit sie Dir danken; uns aber hast Du geschenkt eine geistige Speise, einen geistigen Trank und ein ewiges Leben durch Deinen Knecht. Vor allem danken wir Dir, weil Du mächtig bist; Dir sei die Ehre in Ewigkeit. Gedenke, o Herr, Deiner Gemeinde, dass Du sie erlösest von allem Übel und sie vollkommen machest in Deiner Liebe, „führe sie zusammen von den vier Winden“, die Geheiligte, in Dein Reich, das Du ihr bereitet hast; weil Dein ist die Macht und die Ehre in Ewigkeit. Es soll kommen die Gnade und vergehen diese Welt. „Hosanna dem Gotte Davids“ (Mt 21,9.15). Ist einer heilig, so soll er kommen; ist er’s nicht, so soll er sich bekehren, maranatha (1 Kor 16,22), Amen.

@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 16 Februar 2022 : Brief des Jakobus 1,19-27.'
+date: 2022-02-16T06:27:00.001+01:00
+draft: false
+url: /2022/02/mittwoch-16-februar-2022-brief-des.html
+---
+
+Denkt daran, meine geliebten Brüder: Jeder Mensch soll schnell bereit sein zu hören, aber zurückhaltend im Reden und nicht schnell zum Zorn bereit; denn im Zorn tut der Mensch nicht das, was vor Gott recht ist. Darum legt alles Schmutzige und Böse ab, seid sanftmütig und nehmt euch das Wort zu Herzen, das in euch eingepflanzt worden ist und das die Macht hat, euch zu retten. Nehmt euch das Wort zu Herzen, das in euch eingepflanzt worden ist und das die Macht hat, euch zu retten. Hört das Wort nicht nur an, sondern handelt danach; sonst betrügt ihr euch selbst. Wer das Wort nur hört, aber nicht danach handelt, ist wie ein Mensch, der sein eigenes Gesicht im Spiegel betrachtet: Er betrachtet sich, geht weg und schon hat er vergessen, wie er aussah. Wer sich aber in das vollkommene Gesetz der Freiheit vertieft und an ihm festhält, wer es nicht nur hört, um es wieder zu vergessen, sondern danach handelt, der wird durch sein Tun selig sein. Wer meint, er diene Gott, aber seine Zunge nicht im Zaum hält, der betrügt sich selbst und sein Gottesdienst ist wertlos. Ein reiner und makelloser Dienst vor Gott, dem Vater, besteht darin: für Waisen und Witwen zu sorgen, wenn sie in Not sind, und sich vor jeder Befleckung durch die Welt zu bewahren.

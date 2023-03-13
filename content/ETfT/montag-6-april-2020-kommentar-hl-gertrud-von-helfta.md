@@ -1,0 +1,10 @@
+---
+title: 'Montag, 6 April 2020 : Kommentar Hl. Gertrud von Helfta'
+date: 2020-04-05T17:47:00.001+02:00
+draft: false
+url: /2020/04/montag-6-april-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Beim Andenken an den Herrn, von dem es heißt, dass er an diesem Tag spät zu Martha und Maria nach Betanien ging, \[wurde sie\] von dem Verlangen, ihn zu beherbergen, entzündet. \[Sie\] ging zu einem Kruzifix, küsste mit innigster Liebe die Wunde der heiligsten Seite und zog alles Verlangen des liebevollsten Herzens des Sohnes Gottes in sich, indem sie mit der Innigkeit aller Gebete, welche jemals aus diesem süßesten Herzen herausgeflossen sind, flehte, er möge in das Hütchen ihres unwürdigsten Herzens einkehren. Darauf gewährte der Herr, der stets allen, die ihn anrufen, nahe ist, ihr die ersehnte Gegenwart und sprach: „Sieh, hier bin ich! (vgl. Ps 144,18; Jes 58,9). Was wirst du mir denn nun geben?“ Sie antwortete: „Sei mir willkommen, du mein einziges Heil und mein ganzes, mein allein wahres Gut! Ach Herr, ich Unwürdige habe nichts, was deiner göttlichen Erhabenheit geziemen kann, bereitet; aber ich opfere mein ganzes Wesen deiner Güte auf, begehrend und bittend, dass du selber dir in mir bereiten mögest, was deine göttliche Huld erfreuen kann.“ Der Herr sagte: „Ja, wenn du mir diese Freiheit in dir gewähren willst, so gib mir den Schlüssel, womit ich alles nehmen und zurücklegen kann, was mir zur Bequemlichkeit und zur Erquickung gefällt.“ Sie entgegnete: „Aber was ist denn der Schlüssel?“ Der Herr erwiderte: „Dein eigener Wille.“ Bei diesen Worten erkannte sie, dass, wenn jemand den Herrn beherbergen will, er sich seinem preiswürdigsten Wohlgefallen vollständig anheimstellen muss, in der Zuversicht, seine gütigste Huld werde in allem sein Heil wirken. Dann kehrt der Herr bei ihm ein und vollendet in seinem Herzen und in seiner Seele alles, woran sein göttlicher Wille sich erfreut.

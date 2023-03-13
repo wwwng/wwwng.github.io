@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 19 Juni 2019 : Aus dem Heiligen Evangelium nach Matthäus - Mt 6,1-6.16-18.'
+date: 2019-06-18T17:44:00.001+02:00
+draft: false
+url: /2019/06/mittwoch-19-juni-2019-aus-dem-heiligen.html
+tags: 
+- EVANGELIUM
+---
+
+In jener Zeit sprach Jesus zu seinen Jüngern: Hütet euch, eure Gerechtigkeit vor den Menschen zur Schau zu stellen; sonst habt ihr keinen Lohn von eurem Vater im Himmel zu erwarten. Wenn du Almosen gibst, lass es also nicht vor dir herposaunen, wie es die Heuchler in den Synagogen und auf den Gassen tun, um von den Leuten gelobt zu werden. Amen, das sage ich euch: Sie haben ihren Lohn bereits erhalten. Wenn du Almosen gibst, soll deine linke Hand nicht wissen, was deine rechte tut. Dein Almosen soll verborgen bleiben, und dein Vater, der auch das Verborgene sieht, wird es dir vergelten. Wenn ihr betet, macht es nicht wie die Heuchler. Sie stellen sich beim Gebet gern in die Synagogen und an die Straßenecken, damit sie von den Leuten gesehen werden. Amen, das sage ich euch: Sie haben ihren Lohn bereits erhalten. Du aber geh in deine Kammer, wenn du betest, und schließ die Tür zu; dann bete zu deinem Vater, der im Verborgenen ist. Dein Vater, der auch das Verborgene sieht, wird es dir vergelten. Wenn ihr fastet, macht kein finsteres Gesicht wie die Heuchler. Sie geben sich ein trübseliges Aussehen, damit die Leute merken, dass sie fasten. Amen, das sage ich euch: Sie haben ihren Lohn bereits erhalten. Du aber salbe dein Haar, wenn du fastest, und wasche dein Gesicht, damit die Leute nicht merken, dass du fastest, sondern nur dein Vater, der auch das Verborgene sieht; und dein Vater, der das Verborgene sieht, wird es dir vergelten.

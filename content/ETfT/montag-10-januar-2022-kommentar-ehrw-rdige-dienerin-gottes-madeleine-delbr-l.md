@@ -1,0 +1,8 @@
+---
+title: 'Montag, 10 Januar 2022 : Kommentar Ehrwürdige Dienerin Gottes Madeleine Delbrêl'
+date: 2022-01-10T09:11:00.001+01:00
+draft: false
+url: /2022/01/montag-10-januar-2022-kommentar.html
+---
+
+In dem Maß, in dem unsere Welt mit Gott brechen will und meint, ohne ihn auszukommen, sich ohne ihn einrichten zu können, in dem Maß wird Gott für sie zu einer Neuheit und der Gott des Evangeliums wird wieder zu einer neuen Botschaft. Angesichts der Entchristlichung kämpft der Christ oft gegen neue Fakten und Ereignisse, damit der Glaube dort, wo er noch vorhanden ist, nicht schwindet. So wirkt der Christ wie ein Mensch der Vergangenheit. Im Gegensatz dazu stellt der gläubige Christ im Angesicht des Atheismus – eben weil er gläubig ist – durch sein Leben eine Hypothese über Gott auf, selbst dort, wo es keine Hypothese über Gott mehr gibt. Sein Glaube an Gott ist für diese neue Welt ein Phänomen, das sie an Neuheit noch übertrifft. Der Christ ist für seine Brüder ein Mensch, der die Dinge der Welt ihrem Wert und in ihrer Realität entsprechend liebt, aber er ist auch ein Mensch, der Gott, an den er glaubt, all diesen Dingen vorzieht. Dieser Vorzug führt ihn zu bestimmten Entscheidungen. Und die anderen können sehen, wie er sich für den unsichtbaren Gott entscheidet. Diese Entscheidungen stellen die Welt erneut vor die Frage nach dem, was die Welt übersteigt. Wenn Menschen nicht erkennen, dass Gott ihr höchstes Gut ist, dürfen wir uns nicht an ihrer Unkenntnis, ihrem Elend orientieren. Wir sollen nicht nur glauben, sondern auch begreifen und damit rechnen, dass der lebendige Gott des Evangeliums für sie nicht nur eine neue Botschaft, sondern eine gute neue Botschaft werden kann.

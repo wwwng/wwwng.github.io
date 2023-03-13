@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 28 Dezember 2018 : Kommentar Hl. Theresia Benedicta a Cruce [Edith Stein]'
+date: 2018-12-27T17:42:00.005+01:00
+draft: false
+url: /2018/12/freitag-28-dezember-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wohin es uns auf dieser Erde führen will, das wissen wir nicht und sollen wir nicht vor der Zeit fragen. Nur das wissen wir, dass denen, die den Herrn lieben, alle Dinge zum Guten gereichen. Und ferner, dass die Wege, die der Heiland führt, über diese Erde hinausgehen. O admirabile commercium! Creator generis humani, animatum corpus sumens, largitus est nobis suam Deitatem. \[O wunderbarer Tausch! Der den Menschen erschuf, nimmt menschliches Leben an \[...\] und schenkte uns sein göttliches Leben (Antiphon in der Weihnachtszeit)\]. Zu diesem wunderbaren Tauschhandel ist ja der Erlöser auf die Welt gekommen. Gott ward ein Menschenkind, damit die Menschenkinder Gotteskinder werden könnten. \[...\] Gotteskind sein heißt an Gottes Hand gehen, Gottes Willen, nicht den eigenen Willen tun, alle Sorgen und alle Hoffnung in Gottes Hand legen, nicht mehr selbst um sich und seine Zukunft sorgen. Darauf beruhen die Freiheit und Fröhlichkeit des Gotteskindes. \[...\] Gott ist Mensch geworden, um uns an seinem Leben aufs neue Anteil zu geben. \[...\] Die menschliche Natur, die er annahm, gab ihm die Möglichkeit zu leiden und zu sterben. \[...\] Leiden und sterben muss jeder Mensch. Aber wenn er lebendiges Glied am Leibe Christi ist, dann bekommt sein Leiden und Sterben durch die Gottheit des Hauptes erlösende Kraft. \[...\] In der Nacht der Sünde strahlt der Stern von Bethlehem auf. Auf den Lichtglanz, der von der Krippe ausgeht, fällt der Schatten des Kreuzes. Das Licht erlischt im Dunkel des Karfreitags, aber es steigt strahlender auf als Gnadensonne am Auferstehungsmorgen. Per passionem et crucem ad resurrectionis gloriam ist der Weg des fleischgewordenen Gottessohnes. Mit dem Menschensohn durch Leiden und Tod zur Herrlichkeit der Auferstehung ist der Weg für jeden von uns, für die ganze Menschheit.

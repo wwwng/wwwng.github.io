@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 14 Oktober 2018 : Kommentar Hl. Johannes Chrysostomus'
+date: 2018-10-13T17:47:00.001+02:00
+draft: false
+url: /2018/10/sonntag-14-oktober-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Als Christus dem jungen Mann antwortete: „Wenn du in das Leben eingehen willst, so halte die Gebote“ (Mt 19,17), fragte er: „Welche?“ Durchaus nicht, um ihn zu versuchen, sondern in der Annahme es gäbe außer den Vorschriften des Gesetzes noch andere, die ihm die Pforte zum Leben erschließen könnten: ein klarer Beweis für die Aufrichtigkeit seines Verlangens. Als ihn darauf Jesus auf die Vorschriften des Gesetzes verwies, erklärte er: „Dies alles hab’ ich von meiner Jugend an beobachtet“. Aber auch das genügte ihm noch nicht, er fragte neuerdings: „Was fehlt mir noch?“ (vgl. Mt 19,20). Auch das ist doch wahrlich nichts Geringes, dass er dachte, es fehle ihm noch etwas, die angeführte Gesetzestreue reiche noch nicht aus, um zu erreichen, wonach er verlangte. Was erwidert nun Christus? Da er ihm etwas Großes auferlegen wollte, so stellte er ihm auch einen großen Kampfpreis in Aussicht und spricht: „Wenn du vollkommen sein willst, so geh hin, verkaufe, was du hast und gib es den Armen, und du wirst einen Schatz im Himmel haben; und komme, folge mir nach!“ Siehst du, was für Preise, was für Siegeskränze der Herr bei diesem Wettkampf in Aussicht stellt? \[…\] Um ihn aufzumuntern, redet Jesus so und deshalb zeigt er ihm auch den großen Lohn, stellt alles seiner Entscheidung anheim und verschleiert auf jede Weise, was an seiner Aufforderung hätte drückend erscheinen können. So weist er ihn denn, ehe er von Kampf und Anstrengung spricht, auf den Siegespreis hin: „Willst du vollkommen sein“ \[…\] „Du wirst einen Schatz im Himmel haben, und komm, folge mir nach.“ Wer Christus nachfolgt, empfängt herrlichen Lohn: „Und du wirst einen Schatz im Himmel haben.“ Da von Besitz die Rede war und Jesus den Jüngling auffordere, alles hinzugeben, so zeigt er ihm, dass er sein Vermögen nicht einbüßen, sondern es noch vermehren würde \[…\].

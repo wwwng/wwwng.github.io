@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 21 Dezember 2018 : Kommentar Origenes'
+date: 2018-12-20T17:45:00.001+01:00
+draft: false
+url: /2018/12/freitag-21-dezember-2018-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+„Sieh da, er kommt. Er springt über die Berge, hüpft über die Hügel“ (Hld 2,8). Christus hat sich der Kirche zuerst nur durch seine Stimme zu erkennen gegeben. Anfangs hat er seiner Stimme durch die Propheten Gehör verschafft; ohne selbst zu erscheinen, ließ er sich vernehmen. Seine Stimme war in den Botschaften vernehmbar, die ihn ankündigten, und in dieser ganzen Zeit nahm ihn die von Anbeginn der Welt versammelte Braut-Kirche lediglich durch Hören wahr. Doch eines Tages hat sie ihn mit eigenen Augen gesehen und gesagt: „Sieh da, er kommt. Er springt über die Berge“! \[…\] Und jede Seele, sofern die Liebe zum Logos sie erfasst hat \[...\], empfindet Glück und Trost, wenn sie die Gegenwart des Bräutigams spürt, wo sie doch vorher dem schwierigen Wortlaut des Gesetzes und der Propheten ausgesetzt war. In dem Maße, wie sich der Bräutigam den Gedanken der Seele nähert, um sie in ihrem Glauben zu erleuchten, sieht sie ihn über Berge und Hügel hüpfen \[...\] und kann mit Recht sagen: „Sieh da, er kommt!“ \[...\] Gewiss, der Bräutigam hat seiner Braut, d.h. seinen Jüngern, versprochen: „Und siehe, ich bin mit euch alle Tage bis zum Ende der Welt“ (Mt 28,20). Das hindert ihn aber nicht daran, auch zu sagen, dass er geht, um sein Reich in Besitz zu nehmen (Lk 19,12). Da ertönt wieder mitten in der Nacht der Ruf: „Siehe, der Bräutigam!“ (Mt 25,6). Mal ist der Bräutigam also gegenwärtig und unterweist; mal sagt man, er sei abwesend und man hat Sehnsucht nach ihm \[…\] Wenn also die Seele zu verstehen sucht und es ihr nicht gelingt, ist für sie der Logos abwesend. Findet sie aber, was sie sucht, so ist er zweifelsfrei gegenwärtig und erleuchtet sie mit seinem Licht. \[…\] Wenn nun auch wir den Logos, den Bräutigam der Seele, sehen wollen, wie er „über die Hügel springt“, dann lasst uns zuerst auf seine Stimme hören, und dann werden auch wir ihn sehen können.

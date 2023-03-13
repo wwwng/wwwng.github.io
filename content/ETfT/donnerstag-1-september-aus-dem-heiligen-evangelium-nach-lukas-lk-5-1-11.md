@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 1. September : Aus dem Heiligen Evangelium nach Lukas - Lk 5,1-11.'
+date: 2022-09-01T08:44:00.001+02:00
+draft: false
+url: /2022/09/donnerstag-1-september-aus-dem-heiligen.html
+---
+
+In jener Zeit, als Jesus am Ufer des Sees Gennesaret stand, drängte sich das Volk um ihn und wollte das Wort Gottes hören. und sah zwei Boote am See liegen. Die Fischer waren aus ihnen ausgestiegen und wuschen ihre Netze. Jesus stieg in eines der Boote, das dem Simon gehörte, und bat ihn, ein Stück weit vom Land wegzufahren. Dann setzte er sich und lehrte das Volk vom Boot aus. Als er seine Rede beendet hatte, sagte er zu Simon: Fahr hinaus, wo es tief ist, und werft eure Netze zum Fang aus! Simon antwortete ihm: Meister, wir haben die ganze Nacht gearbeitet und nichts gefangen. Doch auf dein Wort hin werde ich die Netze auswerfen. Das taten sie und sie fingen eine große Menge Fische; ihre Netze aber drohten zu reißen. Und sie gaben ihren Gefährten im anderen Boot ein Zeichen, sie sollten kommen und ihnen helfen. Sie kamen und füllten beide Boote, sodass sie fast versanken. Als Simon Petrus das sah, fiel er Jesus zu Füßen und sagte: Geh weg von mir; denn ich bin ein sündiger Mensch, Herr! Denn Schrecken hatte ihn und alle seine Begleiter ergriffen über den Fang der Fische, den sie gemacht hatten; ebenso auch Jakobus und Johannes, die Söhne des Zebedäus, die mit Simon zusammenarbeiteten. Da sagte Jesus zu Simon: Fürchte dich nicht! Von jetzt an wirst du Menschen fangen. Und sie zogen die Boote an Land, verließen alles und folgten ihm nach.

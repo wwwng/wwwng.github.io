@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 14 März 2020 : Kommentar Benedikt XVI.'
+date: 2020-03-13T17:57:00.001+01:00
+draft: false
+url: /2020/03/samstag-14-marz-2020-kommentar-benedikt.html
+tags: 
+- MEDITATIO
+---
+
+Das eigentlich Neue des Neuen Testaments sind nicht neue Ideen, sondern die Gestalt Christi selber, der den Gedanken Fleisch und Blut, einen unerhörten Realismus gibt. Schon im Alten Testament besteht das biblisch Neue nicht einfach in Gedanken, sondern in dem unerwarteten und in gewisser Hinsicht unerhörten Handeln Gottes. Dieses Handeln Gottes nimmt seine dramatische Form nun darin an, dass Gott in Jesus Christus selbst dem „verlorenen Schaf“, der leidenden und verlorenen Menschheit, nachgeht. Wenn Jesus in seinen Gleichnissen von dem Hirten spricht, der dem verlorenen Schaf nachgeht, von der Frau, die die Drachme sucht, von dem Vater, der auf den verlorenen Sohn zugeht und ihn umarmt, dann sind dies alles nicht nur Worte, sondern Auslegungen seines eigenen Seins und Tuns. In seinem Tod am Kreuz vollzieht sich jene Wende Gottes gegen sich selbst, in der er sich verschenkt, um den Menschen wieder aufzuheben und zu retten – Liebe in ihrer radikalsten Form. Der Blick auf die durchbohrte Seite Jesu, von dem Johannes spricht (vgl. 19,37), begreift, was Ausgangspunkt dieses Schreibens war: „Gott ist Liebe“ (1 Joh 4,8). Dort kann diese Wahrheit angeschaut werden. Und von dort her ist nun zu definieren, was Liebe ist. Von diesem Blick her findet der Christ den Weg seines Lebens und Liebens. Diesem Akt der Hingabe hat Jesus bleibende Gegenwart verliehen durch die Einsetzung der Eucharistie während des Letzten Abendmahles. Er antizipiert seinen Tod und seine Auferstehung, indem er schon in jener Stunde den Jüngern in Brot und Wein sich selbst gibt, seinen Leib und sein Blut \[…\] Die Eucharistie zieht uns in den Hingabeakt Jesu hinein. \[…\] Die „Mystik“ des Sakraments, die auf dem Abstieg Gottes zu uns beruht, \[…\] führt höher, als jede mystische Aufstiegsbegegnung des Menschen reichen könnte.

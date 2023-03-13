@@ -1,0 +1,8 @@
+---
+title: 'Montag, 17 Januar 2022 : Kommentar Origenes'
+date: 2022-01-17T09:11:00.001+01:00
+draft: false
+url: /2022/01/montag-17-januar-2022-kommentar-origenes.html
+---
+
+Möchtest du, dass ich dir zeige, welches Fasten du üben sollst? Faste von aller Sünde, nimm keine Nahrung der Boshaftigkeit, nimm keine Speise der Begierde zu dir, erwärme dich nicht am Wein der Unzucht. Faste von schlechten Taten, enthalte dich von giftigen Worten, hüte dich vor bösen Gedanken. Rühre nicht das gestohlene Brot einer verkehrten Lehre an. Verlange nicht nach der trügerischen Nahrung einer Philosophie, die dir die Wahrheit verdreht. Ein solches Fasten gefällt Gott. \[…\] Wir sagen dies jedoch keinesfalls, um die Zügel der christlichen Enthaltsamkeit zu lockern. Denn wir haben ja die Tage der Fastenzeit, die dem Fasten gewidmet sind, und den Brauch, am vierten und am sechsten Tag der Woche zu fasten. Und es ist dem Christen die Freiheit gegeben, jederzeit zu fasten, nicht aufgrund von Skrupeln, sondern aufgrund der Tugend der Enthaltsamkeit. Denn wie sollen wir die Keuschheit unversehrt bewahren, wenn sie nicht straff gehalten wird von der strengen Stütze der Enthaltsamkeit? Wie soll man sich der Heiligen Schrift widmen, wie sich mit Wissenschaft und Weisheit beschäftigen? Nicht etwa durch Enthaltsamkeit des Bauches und des Gaumens? \[…\] Das also ist für Christen ein Grund zu fasten. Es gibt auch noch einen anderen, ebenfalls geistlichen Grund, der sogar in den Schriften einiger Apostel gepriesen wird. In einem Brief finden wir nämlich folgendes Apostelwort: „Selig, wer fastet, um den Armen zu speisen.“ Sein Fasten ist Gott sehr wohlgefällig und in Wahrheit höchst würdig, denn er ahmt den nach, der sein Leben für seine Brüder hingegeben hat.

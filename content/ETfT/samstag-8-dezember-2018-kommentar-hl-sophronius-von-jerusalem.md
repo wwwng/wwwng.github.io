@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 8 Dezember 2018 : Kommentar Hl. Sophronius von Jerusalem'
+date: 2018-12-07T17:45:00.001+01:00
+draft: false
+url: /2018/12/samstag-8-dezember-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+„Freue dich, die du voll der Gnade bist, der Herr ist mit dir.“ Was könnte es Größeres geben als diese Freude, o Jungfrau Maria? Was könnte es Größeres geben als diese Gnade, die einzig du empfangen hast als Mitgift von Gott? Was kann man Froheres und Lichtvolleres empfangen? Alles bleibt zurück hinter deinen wunderbaren Eigenschaften; alles bleibt unterhalb deiner Gnade. Die sichersten Vorrechte nehmen nur den zweiten Platz ein und besitzen nur einen blassen Glanz. „Der Herr ist mit dir.“ Wer würde es wagen in diesem Punkt mit dir zu wetteifern? Gott wird aus dir geboren. Wer also würde dir nicht sofort den Platz räumen, um dir mit Freude den ersten Platz und alle Ehre zu geben? Deshalb verkünde ich laut dein Lob, wenn ich dich betrachte, wie du über allen Geschöpfen thronst: „Freue Dich, du Gnadenvolle, der Herr ist mit Dir.“ Die Freude, die von dir ausgeht, wird nicht nur den Menschen verliehen, sondern auch allen Engelsmächten des Himmels \[...\] Gott selbst wohnt leibhaftig in deinem Schoß; er geht daraus hervor wie ein Bräutigam (vgl. Ps 19(18),6), um allen Menschen die himmlische Freude und das himmlische Licht zu bringen. Und in dir, o Jungfrau, hat Gott wie in einem strahlendreinen und lichten Himmel „seine Wohnung bereitet“ (vgl. Ps 76(75),3). Aus dir tritt er aus seinem Gemach hervor wie ein Bräutigam, er gleicht dem frohlockenden Held, der seine Bahn läuft, um sein Leben zu durchschreiten, das allen Lebendigen das Heil bringen wird. Er erstreckt sich von einem Ende des Himmels bis zum anderen wie die Sonne (vgl. Ps 19(18),6-7), er erfüllt alles mit seiner göttlichen Glut und seinem lebenspendenden Licht.

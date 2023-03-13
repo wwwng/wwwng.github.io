@@ -1,0 +1,8 @@
+---
+title: 'Montag, 17 Januar 2022 : Erstes Buch Samuel 15,16-23.'
+date: 2022-01-17T06:27:00.001+01:00
+draft: false
+url: /2022/01/montag-17-januar-2022-erstes-buch.html
+---
+
+In jenen Tagen sagte Samuel zu Saul: Ich will dir verkünden, was der Herr mir heute Nacht gesagt hat. Saul antwortete: Sprich! Samuel sagte: Bist du nicht, obwohl du dir gering vorkommst, das Haupt der Stämme Israels? Der Herr hat dich zum König von Israel gesalbt. Dann hat dich der Herr auf den Weg geschickt und gesagt: Geh und weihe die Amalekiter, die Übeltäter, dem Untergang; kämpfe gegen sie, bis du sie vernichtet hast. Warum hast du nicht auf die Stimme des Herrn gehört, sondern hast dich auf die Beute gestürzt und getan, was dem Herrn missfällt? Saul erwiderte Samuel: Ich habe doch auf die Stimme des Herrn gehört; ich bin den Weg gegangen, auf den der Herr mich geschickt hat; ich habe Agag, den König von Amalek, hergebracht und die Amalekiter dem Untergang geweiht. Aber das Volk hat von der Beute einige Schafe und Rinder genommen, das Beste von dem, was dem Untergang geweiht war, um es dem Herrn, deinem Gott, in Gilgal zu opfern. Samuel aber sagte: Hat der Herr an Brandopfern und Schlachtopfern das gleiche Gefallen wie am Gehorsam gegenüber der Stimme des Herrn? Wahrhaftig, Gehorsam ist besser als Opfer, Hinhören besser als das Fett von Widdern. Denn Trotz ist ebenso eine Sünde wie die Zauberei, Widerspenstigkeit ist ebenso schlimm wie Frevel und Götzendienst. Weil du das Wort des Herrn verworfen hast, verwirft er dich als König.

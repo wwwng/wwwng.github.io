@@ -1,0 +1,8 @@
+---
+title: 'Montag, 9. Januar : Hl. Gregor der Große'
+date: 2023-01-09T14:12:00.001+01:00
+draft: false
+url: /2023/01/montag-9-januar-hl-gregor-der-groe.html
+---
+
+Vielleicht wird sich jemand fragen: „Was haben sie denn schon Kostbares aufgegeben, als der Herr sie rief, diese beiden Fischer, die doch fast gar nichts hatten? \[…\] Sie haben viel aufgegeben, weil sie auf alles verzichtet haben, wie wenig das auch gewesen sein mag. Wir jedoch kleben an dem, was wir haben, und suchen gierig nach dem, was wir nicht haben. Petrus und Andreas haben also viel aufgegeben, als sie beide dem bloßen Wunsch nach Besitz entsagten. Sie haben viel aufgegeben, da sie mit dem Verzicht auf ihre Habe auch ihrer Begehrlichkeit entsagten \[…\] Niemand soll also, auch wenn er sieht, dass einige auf großen Reichtum verzichtet haben, bei sich selbst sagen: „Ich würde sie gerne in ihrer Geringschätzung dieser Welt nachahmen; doch ich habe nichts, wovon ich mich trennen könnte: Ich besitze nichts.“ Ihr gebt viel auf, meine Brüder, wenn ihr den Begierden dieser Welt entsagt. Denn der Herr begnügt sich mit unseren äußeren Gütern, so gering sie auch sein mögen: Das Herz ist es, worauf er schaut, nicht der Marktwert unserer Gabe. Er achtet nicht darauf, wie viel wir ihm opfern, sondern von wie viel Liebe unsere Opfergabe begleitet wird. Denn wenn man nur die äußeren Güter in Betracht zieht, so haben unsere heiligen Kaufleute mit ihren Netzen und ihrem Boot das ewige Leben, das Leben der Engel, erkauft. Das Reich Gottes hat keinen Preis, und doch kostet es dich nicht mehr und nicht weniger als das, was du besitzt.

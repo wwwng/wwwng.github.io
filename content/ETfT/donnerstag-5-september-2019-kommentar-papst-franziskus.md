@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 5 September 2019 : Kommentar Papst Franziskus'
+date: 2019-09-04T17:48:00.003+02:00
+draft: false
+url: /2019/09/donnerstag-5-september-2019-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Die Verkündigung des Petrus und der Apostel besteht nicht nur aus Worten, sondern die Treue zu Christus geht ihr Leben selbst an; es wird verändert, erhält eine neue Richtung, und gerade mit ihrem Leben geben sie für den Glauben und die Verkündigung Christi Zeugnis \[…\] Doch dies gilt für alle: Das Evangelium muss verkündet und bezeugt werden. Jeder müsste sich fragen: Wie bezeuge ich Christus mit meinem Glauben? Habe ich den Mut Petri und der anderen Apostel, als Christ zu denken, zu entscheiden und zu leben, indem ich Gott gehorche? Gewiss, das Zeugnis für den Glauben kennt viele Formen, wie es in einem großen Gemälde die Vielfalt der Farben und der Schattierungen gibt; aber alle sind wichtig, auch diejenigen, die nicht augenfällig sind. Im großen Plan Gottes ist jedes Detail wichtig, auch dein, auch mein kleines demütiges Zeugnis, auch das verborgene dessen, der in Einfachheit seinen Glauben im Alltag der Beziehungen in Familie, Arbeit und Freundschaft lebt. Es gibt die Heiligen des Alltags, die „verborgenen“ Heiligen, eine Art „Mittelklasse der Heiligkeit“ \[…\] zu der wir alle gehören können. Doch in verschiedenen Teilen der Welt gibt es auch die, welche wie Petrus und die Apostel für das Evangelium leiden; die ihr Leben hingeben, um Christus treu zu bleiben, und dieses Zeugnis mit ihrem Blut bezahlen. Erinnern wir uns alle gut daran: Man kann das Evangelium Jesu nicht ohne das konkrete Lebenszeugnis verkünden. Wer uns hört und uns sieht, muss in unserem Tun das lesen können, was er aus unserem Mund hört, und Gott die Ehre geben! Da kommt mir jetzt ein Rat in den Sinn, den der heilige Franziskus von Assisi seinen Mitbrüdern gab: „Verkündet das Evangelium und, sollte es nötig sein, auch mit Worten!“

@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 22 September 2020 : Kommentar Ehrwürdige Dienerin Gottes Madeleine Delbrêl'
+date: 2020-09-21T17:47:00.001+02:00
+draft: false
+url: /2020/09/dienstag-22-september-2020-kommentar.html
+tags: 
+- EVANGELIUM
+---
+
+Das Evangelium ist das Buch des Herren-Lebens. Es wurde geschrieben, damit es das Buch unseres Lebens wird. Es wurde nicht geschrieben, um verstanden zu werden, sondern um als eine Schwelle des Mysteriums behandelt zu werden. Es wurde nicht geschrieben, um gelesen zu werden, sondern um in uns aufgenommen zu werden. Jedes seiner Worte ist Geist und Leben. Flink und frei warten sie nur darauf, dass die Begierde unserer Seele in sie hineinstürzt. Sie sind lebendig und wie Sauerteig, der unsere Teigmasse angreifen und zu neuer Lebensweise umgestalten wird. \[…\] Die Worte des Evangeliums wirken Wunder. Sie verändern uns nur deshalb nicht, weil wir sie nicht darum bitten, uns zu verändern. Aber jedem Satz Jesu, jedem seiner Beispiele wohnt immer noch die feurige Kraft inne, die heilte, reinigte und auferweckte –, unter der Bedingung, dass wir ihm persönlich begegnen, wie der Gelähmte oder der Zenturio; dass wir sofort in vollem Gehorsam handeln. \[…\] Helfen wird uns dabei, das Wort, dem wir gehorchen wollen, in der Glut unseres Glaubens und unserer Hoffnung in uns zu tragen und zu „bewahren“. Zwischen dem Wort und unserem Willen wird sich dann so etwas wie ein Lebensbund schließen. Wenn wir unser Evangelium in Händen halten, sollten wir daran denken, dass in ihm das Wort wohnt, das Fleisch werden will in uns, das von uns Besitz ergreifen will, damit wir – sein Herz auf das unsere aufgepfropft, sein Geist mit dem unseren verbunden – sein Leben noch einmal neu beginnen, an einem anderen Ort, in einer anderen Zeit, in einer anderen menschlichen Gesellschaft. Das Evangelium auf diese Weise zu vertiefen, bedeutet, unser Leben loszulassen, um eine Bestimmung zu empfangen, deren einzige Form Christus ist.

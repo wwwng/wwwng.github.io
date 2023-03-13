@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 27 Juni 2019 : Buch Genesis 16,1-12.15-16.'
+date: 2019-06-26T17:45:00.003+02:00
+draft: false
+url: /2019/06/donnerstag-27-juni-2019-buch-genesis.html
+tags: 
+- LECTIO
+---
+
+Sarai, Abrams Frau, hatte ihm keine Kinder geboren. Sie hatte aber eine ägyptische Magd namens Hagar. Sarai sagte zu Abram: Der Herr hat mir Kinder versagt. Geh zu meiner Magd! Vielleicht komme ich durch sie zu einem Sohn. Abram hörte auf sie. Sarai, Abrams Frau, nahm also die Ägypterin Hagar, ihre Magd - zehn Jahre, nachdem sich Abram in Kanaan niedergelassen hatte -, und gab sie ihrem Mann Abram zur Frau. Er ging zu Hagar, und sie wurde schwanger. Als sie merkte, dass sie schwanger war, verlor die Herrin bei ihr an Achtung. Da sagte Sarai zu Abram: Das Unrecht, das ich erfahre, komme auf dich. Ich habe dir meine Magd überlassen. Kaum merkt sie, dass sie schwanger ist, so verliere ich schon an Achtung bei ihr. Der Herr entscheide zwischen mir und dir. Abram entgegnete Sarai: Hier ist deine Magd; sie ist in deiner Hand. Tu mit ihr, was du willst. Da behandelte Sarai sie so hart, dass ihr Hagar davonlief. Der Engel des Herrn fand Hagar an einer Quelle in der Wüste, an der Quelle auf dem Weg nach Schur. Er sprach: Hagar, Magd Sarais, woher kommst du, und wohin gehst du? Sie antwortete: Ich bin meiner Herrin Sarai davongelaufen. Da sprach der Engel des Herrn zu ihr: Geh zurück zu deiner Herrin, und ertrag ihre harte Behandlung! Der Engel des Herrn sprach zu ihr: Deine Nachkommen will ich so zahlreich machen, dass man sie nicht zählen kann. Weiter sprach der Engel des Herrn zu ihr: Du bist schwanger, du wirst einen Sohn gebären und ihn Ismael - Gott hört - nennen; denn der Herr hat auf dich gehört in deinem Leid. Er wird ein Mensch sein wie ein Wildesel. Seine Hand gegen alle, die Hände aller gegen ihn! Allen seinen Brüdern setzt er sich vors Gesicht. Hagar gebar dem Abram einen Sohn, und Abram nannte den Sohn, den ihm Hagar gebar, Ismael. Abram war sechsundachtzig Jahre alt, als Hagar ihm Ismael gebar.

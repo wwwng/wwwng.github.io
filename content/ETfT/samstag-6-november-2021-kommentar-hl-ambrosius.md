@@ -1,0 +1,8 @@
+---
+title: 'Samstag, 6 November 2021 : Kommentar Hl. Ambrosius'
+date: 2021-11-06T09:11:00.001+01:00
+draft: false
+url: /2021/11/samstag-6-november-2021-kommentar-hl.html
+---
+
+„Abraham saß vor dem Eingang seines Zeltes“, sagt uns die Schrift, „er saß dort in der Mittagshitze“ (vgl. Gen 18,1). Die anderen ruhten sich aus, er aber hielt Ausschau nach möglichen Gästen. Er hatte es wohl verdient, dass Gott ihn bei der Eiche von Mamre besuchte, da er sich eifrig um Gastfreundschaft bemüht war. \[…\] Ja, Gastfreundschaft ist gut, und sie hat ihren eigenen, besonderen Lohn: Zunächst einmal zieht sie die Dankbarkeit der Menschen auf sich; und außerdem – was noch wichtiger ist – wird sie von Gott belohnt. Wir alle sind in diesem Land des Exils nur Gäste auf der Durchreise. Eine Zeit lang können wir unter einem Dach wohnen; bald aber werden wir es verlassen müssen. Seien wir auf der Hut! Falls wir hart oder nachlässig waren, wenn es darum ging, Fremde aufzunehmen, dann kann es gut sein, dass die Heiligen ihrerseits auch uns nach diesem Leben die Aufnahme verweigern. „Macht euch Freunde mit Hilfe des ungerechten Mammons“, sagt der Herr im Evangelium, „damit ihr in die ewigen Wohnungen aufgenommen werdet“ (Lk 16,9). \[…\] Denn weißt du, ob es nicht Gott ist, den du empfängst, während du meinst, es nur mit Menschen zu tun zu haben? Abraham nimmt Reisende auf; doch in Wirklichkeit nimmt er Gott und seine Engel bei sich auf. Auch du, der du einen Fremden aufnimmst, nimmst Gott bei dir auf. Jesus, der Herr, bezeugt es im Evangelium: „Ich war fremd und obdachlos, und ihr habt mich aufgenommen \[…\] Was ihr für einen meiner geringsten Brüder getan habt, das habt ihr mir getan“ (Mt 25,35.40).

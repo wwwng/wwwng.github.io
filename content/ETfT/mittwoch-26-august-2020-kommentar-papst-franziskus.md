@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 26 August 2020 : Kommentar Papst Franziskus'
+date: 2020-08-25T17:47:00.001+02:00
+draft: false
+url: /2020/08/mittwoch-26-august-2020-kommentar-papst.html
+tags: 
+- EVANGELIUM
+---
+
+Ihr könntet mir sagen: Aber die Kirche besteht doch aus Sündern, das sehen wir jeden Tag. Und das ist wahr: Wir sind eine Kirche von Sündern; und wir Sünder sind aufgerufen, uns von Gott verwandeln, erneuern, heiligen zu lassen. In der Geschichte sind einige in Versuchung geraten zu sagen: Die Kirche ist nur die Kirche der Reinen, jener, die völlig konsequent sind, und die anderen müssen entfernt werden. Das ist nicht wahr! Das ist eine Irrlehre! Die Kirche, die heilig ist, weist die Sünder nicht zurück. Sie weist uns alle nicht zurück; sie weist nicht zurück, weil sie alle ruft und annimmt. Sie ist offen auch für die Fernstehenden, sie ruft alle auf, sich von der Barmherzigkeit, der Zärtlichkeit und der Vergebung des Vaters umgeben zu lassen, der allen die Möglichkeit anbietet, ihm zu begegnen, den Weg zur Heiligkeit zu gehen. \[…\] Der Gott, dem wir in der Kirche begegnen, ist kein unbarmherziger Richter, sondern er ist wie der Vater aus dem Gleichnis im Evangelium. Du kannst sein wie der Sohn, der das Haus verlassen hat, der den tiefsten Grund der Gottesferne berührt hat. Wenn du die Kraft hast zu sagen: Ich will nach Hause zurückkehren, wirst du die Tür offen finden. Gott kommt dir entgegen, weil er immer auf dich wartet, Gott wartet immer auf dich, Gott umarmt dich, küsst dich und feiert ein Fest. So ist der Herr, so ist die Zärtlichkeit unseres himmlischen Vaters. Der Herr will, dass wir Teil einer Kirche sind, die es versteht, die Arme zu öffnen, um alle anzunehmen, die nicht das Haus einiger weniger ist, sondern das Haus aller, wo alle von seiner Liebe erneuert, verwandelt, geheiligt werden können, die Stärksten und die Schwächsten, die Sünder, die Gleichgültigen, jene, die sich entmutigt und verloren fühlen.

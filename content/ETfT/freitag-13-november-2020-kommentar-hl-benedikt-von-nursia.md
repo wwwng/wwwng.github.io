@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 13 November 2020 : Kommentar Hl. Benedikt von Nursia'
+date: 2020-11-12T17:47:00.001+01:00
+draft: false
+url: /2020/11/freitag-13-november-2020-kommentar-hl.html
+tags: 
+- EVANGELIUM
+---
+
+Stehen wir also endlich einmal auf! Die Schrift rüttelt uns wach und ruft: „Die Stunde ist da, vom Schlaf aufzustehen“ (Röm 13,11). Öffnen wir unsere Augen dem göttlichen Licht, und hören wir mit aufgeschrecktem Ohr, wozu uns die Stimme Gottes täglich mahnt und aufruft. „Heute, wenn ihr seine Stimme hört, verhärtet eure Herzen nicht!“ Und wiederum: „Wer Ohren hat zu hören, der höre, was der Geist der Gemeinden sagt!“ Und was sagt er? „Kommt ihr Söhne, hört auf mich! Die Furcht des Herrn will ich euch lehren. Lauft, solange ihr das Licht des Lebens habt, damit die Schatten des Todes euch nicht überwältigen.“ Und der Herr sucht in der Volksmenge, der er dies zuruft, einen Arbeiter für sich und sagt wieder: „Wer ist der Mensch, der das Leben liebt und gute Tage zu sehen wünscht?“ Wenn du hörst und antwortest: „Ich“, dann sagt Gott zu dir: Willst du wahres und unvergängliches Leben, bewahre deine Zunge vor Bösem und deine Lippen vor falscher Rede! Meide das Böse und tue das Gute! Such Frieden und jage ihm nach! Wenn ihr das tut, blicken meine Augen auf euch, und meine Ohren hören auf eure Gebete; und noch bevor ihr zu mir ruft, sage ich euch: Seht, „Ich bin da“. Liebe Brüder, was kann beglückender für uns sein als dieses Wort des Herrn, der uns einlädt? Seht, in seiner Güte zeigt uns der Herr den Weg des Lebens. Gürten wir uns also mit Glauben und Treue im Guten, und gehen wir unter der Führung des Evangeliums seine Wege, damit wir ihn schauen dürfen, der uns in sein Reich gerufen hat. Wollen wir in seinem Reich und in seinem Zelt wohnen, dann müssen wir durch gute Taten dorthin eilen; anders kommen wir nicht ans Ziel.

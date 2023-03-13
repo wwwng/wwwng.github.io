@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 13 März 2019 : Kommentar Hl. Bernhard'
+date: 2019-03-12T17:46:00.005+01:00
+draft: false
+url: /2019/03/mittwoch-13-marz-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+„Bekehrt euch“, sagt der Herr, „von ganzem Herzen“. Brüder, wenn er gesagt hätte „Bekehrt euch“, ohne etwas hinzuzufügen, dann hätten wir vielleicht antworten können: „Schon geschehen – du kannst uns eine neue Weisung geben.“ Aber, wenn ich es recht verstehe, so spricht Christus hier von einer geistlichen Bekehrung, die sich nicht an einem Tag vollzieht. Könnte sie doch nur innerhalb eines Menschenlebens durchführbar sein! Richte deine Aufmerksamkeit also auf das, was du liebst, auf das, was du fürchtest, auf das, worauf du dich freust, oder das, was dich mit Traurigkeit erfüllt. Und so wirst du manchmal sehen, dass du unter der Ordenstracht ein Mensch dieser Welt bist. Das Herz nämlich bewegt sich ganz und gar in diesen vier Gefühlen und von ihnen her, so meine ich, sind folgende Worte zu verstehen: „Bekehrt euch von ganzem Herzen zum Herrn.“ Deine Liebe möge sich wandeln, sodass du nichts außer dem Herrn liebst oder du nichts liebst außer um Gottes willen. Auch deine Furcht wandle sich auf ihn hin, denn jegliche Furcht, die uns in Angst versetzt vor etwas, was außerhalb von ihm liegt und nicht in ihm ihren Ursprung hat, ist schlecht. Möge deine Freude und Traurigkeit sich auf ihn hin wandeln. So wird es sein, wenn du Leid und Freude ausschließlich in ihm empfindest. Wenn du also niedergeschlagen bist wegen deiner eigenen Sünden oder wegen derjenigen deines Nächsten, so tust du gut daran und deine Trauer ist heilsam. Wenn du dich an den Gaben der Gnade erfreust, so ist diese Freude heilig und du kannst sie in Frieden auskosten im Heiligen Geist. Es ist an dir, dich in Christi Liebe am Wohlergehen deiner Brüder zu freuen und an ihrem Unglück voll Mitgefühl Anteil zu nehmen, gemäß dem Wort: „Freut euch mit den Fröhlichen und weint mit den Weinenden!“ (Röm 12,15).

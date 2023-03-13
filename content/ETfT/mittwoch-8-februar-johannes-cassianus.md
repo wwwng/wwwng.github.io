@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 8. Februar : Johannes Cassianus'
+date: 2023-02-08T08:23:00.001+01:00
+draft: false
+url: /2023/02/mittwoch-8-februar-johannes-cassianus.html
+---
+
+Es ist nämlich etwas anderes, ob einer aus Freude an einem gegenwärtigen Gut die Befleckung mit Lastern und der Fleischlichkeit hasst, oder ob er im Hinblick auf den künftigen Lohn die unerlaubten Begierden zügelt; und etwas anderes ist es, ein gegenwärtiges Unglück zu fürchten oder eine künftige Strafe zu scheuen. Endlich ist es viel höher, um des Guten selbst willen nicht von ihm ablassen zu wollen, als aus Furcht vor Bösem in das Böse nicht einzuwilligen. Denn in jenem ist das Gute freiwillig, in diesem aber wie erzwungen und gegen seinen Willen ihm abgepresst, sei es nun durch die Furcht vor der Strafe oder durch die Begierde nach Lohn. Wer sich nämlich aus Furcht von den Reizen der Laster fern hält, der wird, wenn das Hindernis der Furcht entfernt ist, wieder zu dem zurückkehren, was er liebt, und wird deshalb nicht nur die Festigkeit im Guten nicht beständig bewahren, sondern nicht einmal vor Anfechtung je Ruhe haben, weil er nicht den festen und ewigen Frieden der Reinheit besitzen wird; denn wo die Unruhe des Kampfes ist, da muss notwendig auch die Gefahr der Verwundung da sein. \[…\] Wer aber nach Überwindung der lasterhaften Anfechtung schon die Sicherheit des Friedens genießt und zur Liebe der Tugend als solcher gelangt ist, der wird das Gute, dem er schon ganz angehört, beständig in Stand halten, weil er glaubt, dass kein Verlust größer sei als der einer recht innerlichen Reinheit. Denn er hält nichts für wertvoller und kostbarer als die gegenwärtige Reinheit, welcher die verderbliche Verletzung der Tugend oder die giftige Ansteckung des Lasters die größte Strafe ist.

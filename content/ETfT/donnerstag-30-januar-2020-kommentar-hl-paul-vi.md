@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 30 Januar 2020 : Kommentar Hl. Paul VI.'
+date: 2020-01-29T17:56:00.001+01:00
+draft: false
+url: /2020/01/donnerstag-30-januar-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Unser Aufruf lässt sich hier nun vom Eifer der größten Prediger und Verkünder des Evangeliums inspirieren, die ihr Leben dem Apostolat gewidmet haben. \[…\] Sie haben es verstanden, nicht wenige Hindernisse der Evangelisierung zu überwinden. Von diesen Hindernissen, die sich auch in unserer Zeit stellen, wollen Wir hier jedoch nur eines hervorheben, nämlich den Mangel an Eifer, der umso schwerwiegender ist, weil er aus dem Innern entspringt. Er zeigt sich in der Müdigkeit, in der Enttäuschung, der Bequemlichkeit und vor allem im Mangel an Freude und Hoffnung. Wir ermahnen deshalb alle diejenigen, die auf irgendeine Weise und auf welcher Ebene auch immer mit der Evangelisierung beauftragt sind, gerade den geistlichen Eifer zu fördern (vgl. Röm 12,11). \[…\] Bewahren Wir also das Feuer des Geistes. Hegen Wir die innige und tröstliche Freude der Verkündigung des Evangeliums, selbst wenn Wir unter Tränen säen sollten. Es sei für uns – wie für Johannes den Täufer, für Petrus und Paulus, für die anderen Apostel und die vielen, die sich in bewundernswerter Weise im Lauf der Kirchengeschichte für die Evangelisierung eingesetzt haben – ein innerer Antrieb, den niemand und nichts ersticken kann. Es sei die große Freude Unseres als Opfer dargebrachten Lebens. Die Welt von heute, die sowohl in Angst wie in Hoffnung auf der Suche ist, möge die Frohbotschaft nicht aus dem Munde trauriger und mutlos gemachter Verkünder hören, die keine Geduld haben und ängstlich sind, sondern von Dienern des Evangeliums, deren Leben voller Glut erstrahlt, die als erste die Freude Christi in sich aufgenommen haben und die entschlossen sind, ihr Leben einzusetzen, damit das Reich Gottes verkündet und die Kirche in das Herz der Welt eingepflanzt werde.

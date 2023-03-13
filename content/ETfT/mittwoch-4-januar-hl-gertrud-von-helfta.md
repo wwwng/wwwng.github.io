@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 4. Januar : Hl. Gertrud von Helfta'
+date: 2023-01-04T08:23:00.001+01:00
+draft: false
+url: /2023/01/mittwoch-4-januar-hl-gertrud-von-helfta.html
+---
+
+Nimm mich auf, heiliger Vater, und sei mir ein ganz milder Vater, auf dass ich auf der Bahn dieses heiligen Vorsatzes, auf der ich um deiner Liebe willen zu laufen begonnen habe, dich selbst als Siegespreis und ewiges Erbe erhalte. Nimm mich auf, geliebter Jesus, und sei mir ein ganz gütiger Bruder, auf dass du mit mir die volle Last und Hitze des Tages trägst und ich dich bei all meinen Arbeiten als Trost habe und auf meinem Weg als Begleiter, als Führenden und Freund. Nimm mich auf, Heiliger Geist, göttliche Liebe, in dein völlig gütiges Erbarmen und in deine Liebe, auf dass ich in meinem ganzen Leben dich als Meister habe und als Lehrer und als süßesten liebenden Freund meines Herzens. \[…\] Reiße die Mauer meines alten Wandels ein, die mich fernhält von dir. Ziehe mich so mächtig an dich, dass ich im Glück deiner unauslöschlichen Liebe dir weise liebend folge. Ja, gütiger Jesus, da mir das Wollen nahe liegt, ich aber aus menschlicher Gebrechlichkeit nicht zur Ausführung gelangen kann, so bekehre meine Seele mit Hilfe deiner Gnade durch das makellose Gesetz deiner Liebe so zu dir, dass ich unermüdlich auf dem Weg deiner Gebote voraneile (vgl. Ps 119,32) und dir untrennbar anhänge. Sei du, mein Herr, bei mir. Hilf mir immer und stärke mich bei dem guten Werk, das ich aus Liebe zu deiner Liebe auf mich genommen habe.

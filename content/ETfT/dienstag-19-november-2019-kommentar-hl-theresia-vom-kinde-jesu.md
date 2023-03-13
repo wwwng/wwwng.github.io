@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 19 November 2019 : Kommentar Hl. Theresia vom Kinde Jesu'
+date: 2019-11-18T17:50:00.001+01:00
+draft: false
+url: /2019/11/dienstag-19-november-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Céline, welches Geheimnis: unsere Größe in Jesus … Dies alles hat Jesus uns gezeigt, als er uns den symbolischen Baum ersteigen ließ, von dem ich eben sprach. Und welche Wissenschaft wird Er uns nunmehr lehren? Hat Er uns nicht alles gelehrt? … Hören wir, was Er uns sagt: „Steigt schnell herab, ich muss heute in eurem Hause bleiben.“ Wie, Jesus sagt, wir sollen hinabsteigen … Wohin sollen wir denn herabsteigen? Céline, Du weißt es besser als ich, und dennoch: lass mich es Dir sagen, wohin wir jetzt Jesus folgen müssen. Einst fragten die Juden unseren göttlichen Erlöser: „Meister, wo wohnst du?“ – und Er antwortete ihnen: „Die Füchse haben ihre Höhle und die Vögel des Himmels ihre Nester, und ich habe nicht, wohin ich mein Haupt legen kann.“ Das ist es, wohin wir hinabsteigen müssen, um Jesus als Wohnung dienen zu können. So arm sein, dass wir nichts haben, wohin wir unser Haupt legen. Das, geliebte Céline, hat Jesus während meiner Exerzitien in meiner Seele gewirkt … Du verstehst, es handelt sich um ein inneres Geschehen. \[…\] Jesus wünscht, dass wir ihn in unseren Herzen empfangen. Zweifellos sind sie bereits leer von den Geschöpfen, aber leider fühle ich, dass meines noch nicht ganz leer von mir selbst ist, und deshalb sagt Jesus zu mir, ich soll hinabsteigen … Er, der König der Könige, verdemütigte sich so, dass sein Antlitz verborgen war und niemand ihn erkannte … Und auch ich will mein Antlitz verbergen. Ich will, dass allein mein Vielgeliebter es sehen kann, dass Er allein es sei, der meine Tränen zählt … Dass Er wenigstens in meinem Herzen sein Haupt zum Ausruhen hinlegen kann und dass er fühlt, hier wird Er erkannt und verstanden!

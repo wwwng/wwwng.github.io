@@ -1,0 +1,8 @@
+---
+title: 'Montag, 25 Oktober 2021 : Kommentar Hl. Johannes Paul II.'
+date: 2021-10-25T10:11:00.001+02:00
+draft: false
+url: /2021/10/montag-25-oktober-2021-kommentar-hl.html
+---
+
+Der Vergleich des christlichen Sonntags mit der Sabbatauffassung des Alten Testamentes löste auch eingehende theologische Untersuchungen aus, die großes Interesse fanden. Insbesondere wurde der einzigartige Zusammenhang deutlich gemacht, der zwischen Auferstehung und Schöpfung besteht. Das christliche Denken gelangte spontan dahin, die „am ersten Tag der Woche“ geschehene Auferstehung mit dem ersten Tag jener kosmischen Woche (vgl. Gen 1,1–2.4) in Verbindung zu bringen \[…\] Dieser Zusammenhang legte es nahe, die Auferstehung als den Beginn einer Neuschöpfung zu verstehen, deren Erster der verherrlichte Christus ist, „der Erstgeborene der ganzen Schöpfung“ (Kol 1,15), aber auch „der Erstgeborene der Toten“ (Kol 1,18). Der Sonntag ist tatsächlich der Tag, an welchem mehr als an jedem anderen der Christ aufgerufen ist, des Heils zu gedenken, das ihm in der Taufe angeboten worden ist und ihn in Christus zu einem neuen Menschen gemacht hat. „Mit Christus wurdet ihr in der Taufe begraben, mit ihm auch auferweckt, durch den Glauben an die Kraft Gottes, der ihn von den Toten auferweckt hat“ (Kol 2,12; vgl. Röm 6,4–6). Die Liturgie unterstreicht diese Taufdimension des Sonntags, sei es durch die Aufforderung, Tauffeiern außer in der Osternacht auch an diesem Wochentag abzuhalten, „an dem die Kirche der Auferstehung des Herrn gedenkt“, sei es dadurch, dass sie als angemessenen Bußritus zu Beginn der Messe die Besprengung mit Weihwasser empfiehlt, die an das Taufgeschehen erinnert, aus dem jede christliche Existenz geboren wird.

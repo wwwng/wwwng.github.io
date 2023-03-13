@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 28 April 2019 : Kommentar Hl. Franz von Sales'
+date: 2019-04-27T17:46:00.003+02:00
+draft: false
+url: /2019/04/sonntag-28-april-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Herr Jesus Christus, lass es wieder geschehen, dass wir nur „ein Herz und eine Seele“ sind (vgl. Apg 4,32), denn dann wird „große Ruhe“ eintreten (vgl. Mk 4,39). Meine lieben Zuhörer, ich fordere euch auf zu Freundschaft und Wohlwollen unter euch und Frieden mit allen; denn wenn wir Liebe unter uns hätten, dann hätten wir den Frieden und den Heiligen Geist. Wir müssen fromm sein und zu Gott beten \[…\], denn die Apostel verharrten im Gebet \[…\] Wenn wir anfangen, inständig zu beten, wird der Heilige Geist in unser Herz kommen und sagen: „Friede sei mit euch! Ich bin es; fürchtet euch nicht!“ (vgl. Mk 6,50) \[…\] Was sollen wir von Gott erbitten, meine Brüder? Alles, was zu seiner Ehre und zum Heil eurer Seelen dient, mit einem Wort, den Beistand des Heiligen Geistes: „Sende aus Deinen Geist und alles wird neu erschaffen“ (vgl. Ps 104(103),30) – Ruhe und Frieden \[…\] Wir müssen um diesen Frieden bitten, damit der Geist des Friedens über uns komme. Wir müssen Gott auch für all seine Wohltaten danken, wenn wir wollen, dass er uns Siege schenkt, die den Frieden beginnen lassen. Um den Heiligen Geist zu erlangen, müssen wir Gott, dem Vater, dafür danken, dass er ihn zuerst auf unser Haupt Jesus Christus, seinen Sohn, unseren Herrn, herabgesandt hat \[…\] – denn „aus seiner Fülle haben wir alle empfangen“ (vgl. Joh 1,16) –, und dass er ihn auf die Apostel herabgesandt hat, um ihn durch ihre Hände auch uns mitzuteilen. Wir müssen dem Sohn danken, denn als Gott sendet er den Geist denen, die sich dafür bereitmachen. Doch vor allem müssen wir ihm danken, dass er uns als Mensch die Gnade erwirkt hat, diesen göttlichen Geist zu empfangen \[…\] Wie hat Jesus Christus das Kommen des Heilige Geistes erwirkt? Als er „das Haupt neigte und den Geist aufgab“ (vgl. Joh 19,30); denn als er seinen letzten Atemzug tat und seinen Geist dem Vater übergab, da hat er erwirkt, dass der Vater seinen Geist aussendet über seinen mystischen Leib.

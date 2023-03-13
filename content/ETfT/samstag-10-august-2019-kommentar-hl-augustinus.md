@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 10 August 2019 : Kommentar Hl. Augustinus'
+date: 2019-08-09T17:46:00.005+02:00
+draft: false
+url: /2019/08/samstag-10-august-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+In der Kirche von Rom versah der selige Laurentius den Dienst des Diakons. Dort teilte er den Gläubigen das heilige Blut Christi aus, und dort vergoss er sein eigenes Blut für den Namen Christi \[…\] Der heilige Apostel Johannes legte das Mysterium des Herrenmahls in voller Klarheit dar, als er sagte: „Jesus hat für uns sein Leben hingegeben. So müssen auch wir für die Brüder das Leben hingeben“ (vgl. 1 Joh 3,16). Der heilige Laurentius hat das verstanden, meine Brüder; er hat es verstanden und danach gehandelt. Er bereitete dieses Opfer durch das vor, was er von dieser Tafel empfangen hatte. Er liebte Christus in seinem Leben, er ahmte ihn nach in seinem Tod. Auch wir, meine Brüder, müssen ihn nachahmen, wenn wir ihn wirklich lieben. Der beste Beweis, den wir ihm für unsere Liebe geben können, ist die Nachahmung seines Vorbildes. „\[…\] denn auch Christus hat für euch gelitten und euch ein Beispiel gegeben, damit ihr seinen Spuren folgt“ (1 Petr 2,21) \[…\] Im Garten des Herrn gibt es alle möglichen Arten von Blumen: nicht nur die Rosen der Märtyrer, sondern auch die Lilien der Jungfrauen, das Efeu der Eheleute, die Veilchen der Witwen. Überhaupt niemand, meine Lieben, muss an seiner Berufung zweifeln, denn für alle hat der Herr gelitten \[…\] Wir müssen also verstehen, wie der Christ, auch ohne sein Blut zu vergießen, ohne sich den Leiden des Martyriums zu stellen, Christus nachfolgen soll. Der Apostel Paulus sagt im Hinblick auf Christus den Herrn: „Er war Gott gleich, hielt aber nicht daran fest, wie Gott zu sein“. O welche Hoheit! „Sondern er entäußerte sich und wurde wie ein Sklave und den Menschen gleich“ (Phil 2,6ff.). O welche Erniedrigung! Christus „erniedrigte sich“: Sieh, Christ, welches Mittel dir hier geboten wird. „Christus war gehorsam“ (vgl. Phil 2,8): Warum also bist du stolz? \[…\] Dann aber, nachdem er sich bis zum Ende erniedrigt und den Tod besiegt hatte, ist Christus in den Himmel aufgestiegen: Folgen wir ihm.

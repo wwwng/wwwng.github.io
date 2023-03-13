@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 16 Dezember 2021 : Buch Jesaja 54,1-10.'
+date: 2021-12-16T06:27:00.001+01:00
+draft: false
+url: /2021/12/donnerstag-16-dezember-2021-buch-jesaja.html
+---
+
+Freu dich, du Unfruchtbare, die nie gebar, du, die nie in Wehen lag, brich in Jubel aus und jauchze! Denn die Einsame hat jetzt viel mehr Söhne als die Vermählte, spricht der Herr. Mach den Raum deines Zeltes weit, spann deine Zelttücher aus, ohne zu sparen. Mach die Stricke lang und die Pflöcke fest! Denn nach rechts und links breitest du dich aus. Deine Nachkommen werden Völker beerben und verödete Städte besiedeln. Fürchte dich nicht, du wirst nicht beschämt; schäme dich nicht, du wirst nicht enttäuscht. Denn die Schande in deiner Jugend wirst du vergessen, an die Schmach deiner Witwenschaft wirst du nicht mehr denken. Denn dein Schöpfer ist dein Gemahl, «Herr der Heere» ist sein Name. Der Heilige Israels ist dein Erlöser, «Gott der ganzen Erde» wird er genannt. Ja, der Herr hat dich gerufen als verlassene, bekümmerte Frau. Kann man denn die Frau verstoßen, die man in der Jugend geliebt hat?, spricht dein Gott. Nur für eine kleine Weile habe ich dich verlassen, doch mit großem Erbarmen hole ich dich heim. Einen Augenblick nur verbarg ich vor dir mein Gesicht in aufwallendem Zorn; aber mit ewiger Huld habe ich Erbarmen mit dir, spricht dein Erlöser, der Herr. Wie in den Tagen Noachs soll es für mich sein: So wie ich damals schwor, dass die Flut Noachs die Erde nie mehr überschwemmen wird, so schwöre ich jetzt, dir nie mehr zu zürnen und dich nie mehr zu schelten. Auch wenn die Berge von ihrem Platz weichen und die Hügel zu wanken beginnen -meine Huld wird nie von dir weichen und der Bund meines Friedens nicht wanken, spricht der Herr, der Erbarmen hat mit dir.

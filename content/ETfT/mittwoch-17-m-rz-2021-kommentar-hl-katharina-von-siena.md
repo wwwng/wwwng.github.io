@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 17 März 2021 : Kommentar Hl. Katharina von Siena'
+date: 2021-03-16T18:13:00.001+01:00
+draft: false
+url: /2021/03/mittwoch-17-marz-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+O Gehorsam, wie mühelos kommst du dahergefahren und gelangst gefahrlos zum Hafen des Heils! Du gestaltest Dich dem Wort, Meinem eingeborenen Sohn, gleich, steigst ins Boot des heiligsten Kreuzes, um dich ins Leiden zu begeben und so weder den Gehorsam des Wortes noch seine Weisung zu missachten. Du machst dir daraus einen Tisch, an dem du die Speise der Seelen verzehrst in der Liebe zum Nächsten! Du bist gesalbt mit wahrer Demut, und darum begehrst du nicht außerhalb Meines Willens nach dem Gut des Nächsten. Du bist gerade ohne jede Verdrehung, du machst das Herz aufrichtig ohne Falsch, denn du liebst Meine Geschöpfe freimütig und nicht heuchlerisch. Du bist eine Morgenröte, die das Licht Meiner göttlichen Gnade heraufführt, eine wärmende Sonne, die Glut der Liebe mangelt dir nicht. Du lässest die Erde sprießen und sämtliche Kräfte der Seele und des Leibes die Frucht tragen, die dir selbst und deinem Nächsten das Leben verleiht. Du bist ganz fröhlich, weil dein Antlitz nicht von Ungeduld entstellt ist, sondern freundlich bleibt in der Anmut der Geduld und heiter in der Stärke. Du bist groß an Langmut und spannst dich vom Himmel bis zur Erde, denn mit dir öffnet man den Himmel. Du bist die verborgene Perle, die Welt kennt dich nicht und tritt dich mit Füßen, weil du dich selbst unscheinbar machst und den Geschöpfen unterstellst. Deine Herrschaftlichkeit aber ist so groß, dass dich keiner zu überherrschen vermag, denn du bist dem tödlichen Knechtsdienst der eigenen Sinnlichkeit entronnen, die dir deine Würde raubte. Nun ist dieser Feind tot durch die Abscheu vor jedem Selbstgefallen, und du hast deine Freiheit wieder.

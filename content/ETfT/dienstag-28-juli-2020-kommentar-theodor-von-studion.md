@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 28 Juli 2020 : Kommentar Theodor von Studion'
+date: 2020-07-27T18:13:00.001+02:00
+draft: false
+url: /2020/07/dienstag-28-juli-2020-kommentar-theodor.html
+tags: 
+- MEDITATIO
+---
+
+Im Geiste sehen wir unseren Herrn Jesus Christus auf dem Thron der Herrlichkeit sitzen. Um ihn herum sind Seraphim, Cherubim und Engel jeden Ranges, die ihm mit Furcht und Zittern dienen. Dann werden all jene die gebenedeite Stimme des Meisters hören, die den Kampf bis zum Ende geführt haben, ohne sich von den Verlockungen ihres Zeitalters anziehen oder von den Reizen dieser eitlen Welt verführen zu lassen. „Dann“, so sagt er, „werden die Gerechten leuchten wie die Sonne“ (vgl. Mt 13,43), wenn sie vom Morgen- und Abendland, vom Norden und vom Meer kommend mit Abraham, Isaak und Jakob (vgl. Mt 8,11) in unsagbarer Freude (vgl. 1 Petr 1,8) beim Festmahl Platz nehmen; wenn unser König und Herr seine Gaben an sie verteilen wird, ihren Verdiensten entsprechend. Ach, meine Brüder, meine Kinder, ach! Wie groß und schön ist doch die Herrlichkeit, die den dreimal Seligen und Heiligen zuteilwird, die Verzicht geübt haben! Ja, ganz sicher wird ein jeder die verheißenen Gaben empfangen, je nach dem Stand, in dem er Gott wohlgefällig war. \[…\] Folgt also weiter der Wahrheit (vgl. Gal 5,7), und lasst euch nicht vom Teufel verblenden (vgl. Gal 3,1) oder behindern! \[…\] Es möge über euch kommen \[…\] Barmherzigkeit, Friede, Liebe, die Freiheit von Neid, Eifersucht und Prahlerei; sodann Gelehrigkeit, aufbauendes Reden, Solidarität, Mitgefühl füreinander, Demut. Lebt und verhaltet euch so, und betet auch von ganzem Herzen für meine armselige Person, damit ich nicht in das ewige Feuer geworfen werde. Mögen wir alle dem entkommen, nachdem wir des Himmelreiches für würdig befunden worden sind, in Christus, unserem Gott, dem alle Herrlichkeit, Ehre, Anbetung und Größe gebührt mit dem Vater und dem Heiligen Geist, jetzt und immer und in alle Ewigkeit. Amen.

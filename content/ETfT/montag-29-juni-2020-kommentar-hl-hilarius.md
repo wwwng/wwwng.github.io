@@ -1,0 +1,10 @@
+---
+title: 'Montag, 29 Juni 2020 : Kommentar Hl. Hilarius'
+date: 2020-06-28T18:13:00.001+02:00
+draft: false
+url: /2020/06/montag-29-juni-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Der Herr hatte gefragt: „Für wen halten die Leute den Menschensohn?“ Selbstverständlich offenbarte der Anblick seines Leibes den Menschensohn, aber durch den Zusatz: „Für wen halten sie mich?“ gab er zu verstehen, dass man außer dem, was man an ihm sah, noch etwas anderes beachten müsse \[…\] Die Ursache seiner Frage war ein Geheimnis, zu dem der Glaube der Gläubigen sich hinwenden sollte \[…\] Das Bekenntnis des Petrus hat einen würdigen Lohn erhalten, weil er Gottes Sohn in dem Menschen gesehen hatte. Selig ist der, welchem das Lob zu Teil geworden ist, dass er mehr, als die menschlichen Augen, wahrgenommen und gesehen habe; indem er nicht auf das, was aus Fleisch und Blut war, seinen Blick richtete, sondern Gottes Sohn durch die Offenbarung des himmlischen Vaters erblickte, und für würdig gehalten wurde, das, was in Christo von Gott wäre, zuerst zu erkennen. O du durch die Belegung mit dem neuen Namen glücklicher Grundstein der Kirche, und der Erbauung derselben würdiger Fels, der die Gesetze der Hölle \[…\] und alle Fesseln des Todes sprengen sollte! O du seliger Pförtner des Himmels, dessen Gutdünken die Schlüssel zum ewigen Eingang übergeben werden, dessen Gericht auf Erden schon voraus Kraft im Himmel hat! so dass über dasjenige, was auf Erden entweder gebunden oder gelöst worden ist, auch im Himmel ein Ausspruch von derselben Art erfolgt. Jesus gebietet auch den Jüngern, sie sollten Niemanden sagen, dass er der Gesalbte (Christus) ist; denn es mussten andere, nämlich das Gesetz und die Propheten, Zeugen seines Geistes sein. Das Zeugnis der Auferstehung aber ist den Aposteln eigen. Und weil die Seligkeit derer, welche Christus im Geiste kennen, ausgesprochen ist; so wird im Gegenteil die Gefahr, welche mit der Leugnung seiner Niedrigkeit und seines Leidens verbunden ist, angedeutet.

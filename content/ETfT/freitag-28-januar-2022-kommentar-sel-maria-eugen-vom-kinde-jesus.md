@@ -1,0 +1,8 @@
+---
+title: 'Freitag, 28 Januar 2022 : Kommentar Sel. Maria-Eugen vom Kinde Jesus'
+date: 2022-01-28T09:30:00.001+01:00
+draft: false
+url: /2022/01/freitag-28-januar-2022-kommentar-sel.html
+---
+
+Wir können von der göttlichen Gnade nicht verlangen, dass sie schon während der Zeit des Wachstums all ihre Entwicklungsmöglichkeiten offenbart. Der Same, der stirbt, der zarte Keimling, der austreibt, lassen noch nicht genau feststellen, was sie in sich tragen. Jedes Keimen und Wachsen geschieht im Chaos oder zumindest im Geheimen. Erst die volle Entfaltung bringt dann die besonderen Eigenschaften des Lebens und die Qualität der Frucht zum Vorschein. Nach den dunklen Perioden, in der die Gnade manche ihrer Eigenschaften vor uns verborgen hat, muss sie nun, in der umwandelnden Vereinigung, ihre wesentlichen Reichtümer offenbaren und uns zeigen, dass sie eine Umwandlung in Jesus Christus bewirkt durch die Ähnlichkeit mit ihm in der Liebe. Die äußere Entfaltung Jesu Christi in den Seelen nimmt verschiedene Formen an, denn die Gnade Christi ist in der Tat vielgestaltig und strahlt in ganz unterschiedlichen Lichtreflexen auf. Die Umwandlung in Christus muss allerdings real und tiefgründig sein; sie muss sich durch die Ähnlichkeit ausweisen, welche durch Liebe im Wollen, im Denken, im Fühlen und im Tun hervorgerufen wird. \[…\] Vergöttlichung der menschlichen Natur, damit wir Kinder Gottes sind, Inkarnation (Fleischwerdung) des göttlichen Lebens, damit wir Christen sind – das ist der doppelte Realismus, den wir von der umwandelnden Vereinigung erwarten müssen, um sie als wahr und echt christlich anzuerkennen.

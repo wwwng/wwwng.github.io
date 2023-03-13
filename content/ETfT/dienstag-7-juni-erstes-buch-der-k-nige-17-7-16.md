@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 7. Juni : Erstes Buch der Könige 17,7-16.'
+date: 2022-06-07T07:27:00.001+02:00
+draft: false
+url: /2022/06/dienstag-7-juni-erstes-buch-der-konige.html
+---
+
+In jenen Tagen vertrocknete der Bach, an dem sich Elija verborgen hielt; denn es fiel kein Regen im Land. Da erging das Wort des Herrn an Elija: Mach dich auf und geh nach Sarepta, das zu Sidon gehört, und bleib dort! Ich habe dort einer Witwe befohlen, dich zu versorgen. Er machte sich auf und ging nach Sarepta. Als er an das Stadttor kam, traf er dort eine Witwe, die Holz auflas. Er bat sie: Bring mir in einem Gefäß ein wenig Wasser zum Trinken! Als sie wegging, um es zu holen, rief er ihr nach: Bring mir auch einen Bissen Brot mit! Doch sie sagte: So wahr der Herr, dein Gott, lebt: Ich habe nichts mehr vorrätig als eine Hand voll Mehl im Topf und ein wenig Öl im Krug. Ich lese hier ein paar Stücke Holz auf und gehe dann heim, um für mich und meinen Sohn etwas zuzubereiten. Das wollen wir noch essen und dann sterben. Elija entgegnete ihr: Fürchte dich nicht! Geh heim und tu, was du gesagt hast. Nur mache zuerst für mich ein kleines Gebäck und bring es zu mir heraus! Danach kannst du für dich und deinen Sohn etwas zubereiten; denn so spricht der Herr, der Gott Israels: Der Mehltopf wird nicht leer werden und der Ölkrug nicht versiegen bis zu dem Tag, an dem der Herr wieder Regen auf den Erdboden sendet. Sie ging und tat, was Elija gesagt hatte. So hatte sie mit ihm und ihrem Sohn viele Tage zu essen. Der Mehltopf wurde nicht leer und der Ölkrug versiegte nicht, wie der Herr durch Elija versprochen hatte.

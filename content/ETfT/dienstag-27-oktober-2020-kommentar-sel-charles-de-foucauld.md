@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 27 Oktober 2020 : Kommentar Sel. Charles de Foucauld'
+date: 2020-10-26T18:13:00.001+01:00
+draft: false
+url: /2020/10/dienstag-27-oktober-2020-kommentar-sel.html
+tags: 
+- MEDITATIO
+---
+
+Wie gut bist du doch, mein Gott, dass du alle Völker zum Heil rufst. \[…\] Und nicht nur alle Völker im Allgemeinen durch deine Apostel und ihre Nachfolger, sondern jeden Menschen im Besonderen und zu allen Zeiten, durch das unaufhörliche Wirken deiner Gnade! Und nicht nur zum Heil und zum Himmel, sondern auf „den ersten Platz“ im Himmel, da du ohne Unterlass durch deine Gnade „an die Tür jeder einzelnen Seele anklopfst“ und es auf jede Seele ankommt, die Gnade eines solchen Augenblicks anzunehmen. Bleibt die Seele treu, wird sie sofort danach eine größere Gnade erhalten und sehen, wie die Gnade wächst, wie sie von Augenblick zu Augenblick zunimmt und sich alsbald stark weiterentwickelt, vorausgesetzt, die Seele empfängt sie treu weiter. Bleiben wir der Gnade treu, mit Beharrlichkeit, egal, in welchem Augenblick unseres Lebens wir gerade stehen, und sie wird sich in kurzer Zeit in uns entwickeln wie das Senfkorn, das zu einem Baum wird, in dem sich die Vögel des Himmels ausruhen können, und wo durch die Gemeinschaft der Heiligen, durch ihre Verdienste, durch die Kraft ihrer Gebete und ihres Beispiels Gott große Ehre zuteilwird, nicht nur um seiner selbst willen sondern auch als Hilfe für die Heiligung vieler anderer. \[…\] Oh mein Gott, welche Verheißung hast du für jeden von uns! Jede Seele kann eine Sonne werden, ein großer Baum, „der erste im Himmelreich“, jede Seele kann Ströme der Gnade erhalten; all das bietest du jeder und jedem von uns unaufhörlich an: Es genügt, der Gnade stets treu zu sein, egal in welchem Augenblick unseres Lebens wir stehen. Möge der jetzige Moment für mich dieser gesegnete Augenblick sein!

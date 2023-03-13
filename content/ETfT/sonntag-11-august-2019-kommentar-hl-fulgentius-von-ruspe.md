@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 11 August 2019 : Kommentar Hl. Fulgentius von Ruspe'
+date: 2019-08-10T17:46:00.005+02:00
+draft: false
+url: /2019/08/sonntag-11-august-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Um die besondere Pflicht der Diener, die er an die Spitze seines Volkes gestellt hat, herauszustellen, sagte der Herr: „Wer ist denn der treue und kluge Verwalter, den der Herr einsetzen wird, damit er seinem Gesinde zur rechten Zeit die Nahrung zuteilt? Selig der Knecht, den der Herr damit beschäftigt findet, wenn er kommt“ (Lk 12,42–43). Wer ist dieser Herr des Hauses? Zweifellos Christus, da er seinen Jüngern sagte: „Ihr sagt zu mir Meister und Herr, und ihr nennt mich mit Recht so; denn ich bin es“ (Joh 13,13). Und wer ist dieses Gesinde? Offenkundig jene, die der Herr selber erlöst hat \[…\] Dieses heilige Gesinde ist die katholische Kirche, die sich dank ihrer großen Fruchtbarkeit über die ganze Welt ausbreitet und die sich rühmt, durch das Lösegeld des Blutes ihres Herrn freigekauft worden zu sein. Da er selber gesagt hat: „Der Menschensohn ist nicht gekommen, um sich dienen zu lassen, sondern um zu dienen und sein Leben hinzugeben als Lösegeld für viele“ (Mk 10,45). Er ist auch der gute Hirte, „der sein Leben hingegeben hat für die Schafe“ (vgl. Joh 10,11) \[…\] Wer aber ist der besagte Verwalter, der zugleich treu und klug sein soll? Der Apostel Paulus verrät es uns, wenn er über sich selbst und seine Gefährten sagt: „Als Diener Christi soll man uns betrachten und als Verwalter von Geheimnissen Gottes. Von Verwaltern aber verlangt man, dass sie sich treu erweisen“ (1 Kor 4,1–2). Aber keiner von uns soll meinen, einzig den Aposteln sei das Amt des Verwalters übertragen worden \[…\]; auch die Bischöfe sind Verwalter, da Paulus sagt: „Ein Bischof muss unbescholten sein, weil er das Haus Gottes verwaltet“ (Tit 1,7). Wir Bischöfe sind also die Knechte des Hausherrn, wir sind die Verwalter des Herrn, wir haben den Weizen erhalten, den wir an euch austeilen müssen.

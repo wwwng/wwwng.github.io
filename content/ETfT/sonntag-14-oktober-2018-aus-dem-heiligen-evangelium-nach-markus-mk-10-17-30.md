@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 14 Oktober 2018 : Aus dem Heiligen Evangelium nach Markus - Mk 10,17-30.'
+date: 2018-10-13T17:48:00.001+02:00
+draft: false
+url: /2018/10/sonntag-14-oktober-2018-aus-dem.html
+tags: 
+- EVANGELIUM
+---
+
+In jener Zeit lief ein Mann auf Jesus zu, fiel vor ihm auf die Knie und fragte ihn: Guter Meister, was muss ich tun, um das ewige Leben zu gewinnen? Jesus antwortete: Warum nennst du mich gut? Niemand ist gut außer Gott, dem Einen. Du kennst doch die Gebote: Du sollst nicht töten, du sollst nicht die Ehe brechen, du sollst nicht stehlen, du sollst nicht falsch aussagen, du sollst keinen Raub begehen; ehre deinen Vater und deine Mutter! Er erwiderte ihm: Meister, alle diese Gebote habe ich von Jugend an befolgt. Da sah ihn Jesus an, und weil er ihn liebte, sagte er: Eines fehlt dir noch: Geh, verkaufe, was du hast, gib das Geld den Armen, und du wirst einen bleibenden Schatz im Himmel haben; dann komm und folge mir nach! Der Mann aber war betrübt, als er das hörte, und ging traurig weg; denn er hatte ein großes Vermögen. Da sah Jesus seine Jünger an und sagte zu ihnen: Wie schwer ist es für Menschen, die viel besitzen, in das Reich Gottes zu kommen! Die Jünger waren über seine Worte bestürzt. Jesus aber sagte noch einmal zu ihnen: Meine Kinder, wie schwer ist es, in das Reich Gottes zu kommen! Eher geht ein Kamel durch ein Nadelöhr, als dass ein Reicher in das Reich Gottes gelangt. Sie aber erschraken noch mehr und sagten zueinander: Wer kann dann noch gerettet werden? Jesus sah sie an und sagte: Für Menschen ist das unmöglich, aber nicht für Gott; denn für Gott ist alles möglich. Da sagte Petrus zu ihm: Du weißt, wir haben alles verlassen und sind dir nachgefolgt. Jesus antwortete: Amen, ich sage euch: Jeder, der um meinetwillen und um des Evangeliums willen Haus oder Brüder, Schwestern, Mutter, Vater, Kinder oder Äcker verlassen hat, wird das Hundertfache dafür empfangen: Jetzt in dieser Zeit wird er Häuser, Brüder, Schwestern, Mütter, Kinder und Äcker erhalten, wenn auch unter Verfolgungen, und in der kommenden Welt das ewige Leben.

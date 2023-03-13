@@ -1,0 +1,8 @@
+---
+title: 'Montag, 21 Juni 2021 : Buch Genesis 12,1-9.'
+date: 2021-06-21T07:27:00.001+02:00
+draft: false
+url: /2021/06/montag-21-juni-2021-buch-genesis-121-9.html
+---
+
+In jenen Tagen sprach der Herr zu Abram: Zieh weg aus deinem Land, von deiner Verwandtschaft und aus deinem Vaterhaus in das Land, das ich dir zeigen werde. Ich werde dich zu einem großen Volk machen, dich segnen und deinen Namen groß machen. Ein Segen sollst du sein. Ich will segnen, die dich segnen; wer dich verwünscht, den will ich verfluchen. Durch dich sollen alle Geschlechter der Erde Segen erlangen. Da zog Abram weg, wie der Herr ihm gesagt hatte, und mit ihm ging auch Lot. Abram war fünfundsiebzig Jahre alt, als er aus Haran fortzog. Da zog Abram weg, wie der Herr ihm gesagt hatte. Abram nahm seine Frau Sarai mit, seinen Neffen Lot und alle ihre Habe, die sie erworben hatten, und die Knechte und Mägde, die sie in Haran gewonnen hatten. Sie wanderten nach Kanaan aus und kamen dort an. Abram zog durch das Land bis zur Stätte von Sichem, bis zur Orakeleiche. Die Kanaaniter waren damals im Land. Der Herr erschien Abram und sprach: Deinen Nachkommen gebe ich dieses Land. Dort baute er dem Herrn, der ihm erschienen war, einen Altar. Von da brach er auf zum Bergland östlich von Bet-El und schlug sein Zelt so auf, dass er Bet-El im Westen und Ai im Osten hatte. Dort baute er dem Herrn einen Altar und rief den Namen des Herrn an. Dann zog Abram immer weiter, dem Negeb zu.

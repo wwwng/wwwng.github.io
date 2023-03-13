@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 30 Juli 2019 : Buch Exodus 33,7-11.34,4b.5-9.28.'
+date: 2019-07-29T17:47:00.003+02:00
+draft: false
+url: /2019/07/dienstag-30-juli-2019-buch-exodus-337.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen nahm Mose das Zelt und schlug es für sich außerhalb des Lagers auf, in einiger Entfernung vom Lager. Er nannte es Offenbarungszelt. Wenn einer den Herrn aufsuchen wollte, ging er zum Offenbarungszelt vor das Lager hinaus. Wenn Mose zum Zelt hinausging, erhob sich das ganze Volk. Jeder trat vor sein Zelt, und sie schauten Mose nach, bis er in das Zelt eintrat. Sobald Mose das Zelt betrat, ließ sich die Wolkensäule herab und blieb am Zelteingang stehen. Dann redete der Herr mit Mose. Wenn das ganze Volk die Wolkensäule am Zelteingang stehen sah, erhoben sich alle und warfen sich vor ihren Zelten zu Boden. Der Herr und Mose redeten miteinander Auge in Auge, wie Menschen miteinander reden. Wenn Mose aber dann ins Lager zurückging, wich sein Diener Josua, der Sohn Nuns, ein junger Mann, nicht vom Zelt. Da hieb Mose zwei Tafeln aus Stein zurecht wie die ersten. Am Morgen stand Mose zeitig auf und ging auf den Sinai hinauf, wie es ihm der Herr aufgetragen hatte. Die beiden steinernen Tafeln nahm er mit. Der Herr aber stieg in der Wolke herab und stellte sich dort neben ihn hin. Er rief den Namen Jahwe aus. Der Herr ging an ihm vorüber und rief: Jahwe ist ein barmherziger und gnädiger Gott, langmütig, reich an Huld und Treue: Er bewahrt Tausenden Huld, nimmt Schuld, Frevel und Sünde weg, lässt aber den Sünder nicht ungestraft; er verfolgt die Schuld der Väter an den Söhnen und Enkeln, an der dritten und vierten Generation. Sofort verneigte sich Mose bis zur Erde und warf sich zu Boden. Er sagte: Wenn ich deine Gnade gefunden habe, mein Herr, dann ziehe doch mein Herr mit uns. Es ist zwar ein störrisches Volk, doch vergib uns unsere Schuld und Sünde, und lass uns dein Eigentum sein! Mose blieb dort beim Herrn vierzig Tage und vierzig Nächte. Er aß kein Brot und trank kein Wasser. Er schrieb die Worte des Bundes, die zehn Worte, auf Tafeln.

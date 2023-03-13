@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 24 Februar 2019 : Aus dem Heiligen Evangelium nach Lukas - Lk 6,27-38.'
+date: 2019-02-23T17:42:00.001+01:00
+draft: false
+url: /2019/02/sonntag-24-februar-2019-aus-dem.html
+tags: 
+- EVANGELIUM
+---
+
+In jener Zeit sprach Jesus zu seinen Jüngern: Euch, die ihr mir zuhört, sage ich: Liebt eure Feinde; tut denen Gutes, die euch hassen. Segnet die, die euch verfluchen; betet für die, die euch misshandeln. Dem, der dich auf die eine Wange schlägt, halt auch die andere hin, und dem, der dir den Mantel wegnimmt, lass auch das Hemd. Gib jedem, der dich bittet; und wenn dir jemand etwas wegnimmt, verlang es nicht zurück. Was ihr von anderen erwartet, das tut ebenso auch ihnen. Wenn ihr nur die liebt, die euch lieben, welchen Dank erwartet ihr dafür? Auch die Sünder lieben die, von denen sie geliebt werden. Und wenn ihr nur denen Gutes tut, die euch Gutes tun, welchen Dank erwartet ihr dafür? Das tun auch die Sünder. Und wenn ihr nur denen etwas leiht, von denen ihr es zurückzubekommen hofft, welchen Dank erwartet ihr dafür? Auch die Sünder leihen Sündern in der Hoffnung, alles zurückzubekommen. Ihr aber sollt eure Feinde lieben und sollt Gutes tun und leihen, auch wo ihr nichts dafür erhoffen könnt. Dann wird euer Lohn groß sein, und ihr werdet Söhne des Höchsten sein; denn auch er ist gütig gegen die Undankbaren und Bösen. Seid barmherzig, wie es auch euer Vater ist! Richtet nicht, dann werdet auch ihr nicht gerichtet werden. Verurteilt nicht, dann werdet auch ihr nicht verurteilt werden. Erlasst einander die Schuld, dann wird auch euch die Schuld erlassen werden. Gebt, dann wird auch euch gegeben werden. In reichem, vollem, gehäuftem, überfließendem Maß wird man euch beschenken; denn nach dem Maß, mit dem ihr messt und zuteilt, wird auch euch zugeteilt werden.

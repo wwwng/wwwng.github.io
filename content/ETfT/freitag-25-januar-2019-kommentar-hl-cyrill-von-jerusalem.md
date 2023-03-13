@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 25 Januar 2019 : Kommentar Hl. Cyrill von Jerusalem'
+date: 2019-01-26T15:19:00.007+01:00
+draft: false
+url: /2019/01/freitag-25-januar-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Paulus verkündet Christus mit den Worten: „Wir verkünden nämlich nicht uns selbst, sondern Jesus Christus als den Herrn, uns aber als eure Knechte um Jesu willen“ (2 Kor 4,5). Wer war nun Paulus? Ehedem ein Verfolger (Christi). O großes Wunder! Er, der früher Christus verfolgt hat, verkündet Christus! Warum? Wurde er bestochen? Niemand hatte ihn bestochen. Oder war er vom persönlichen Verkehr mit Christus ergriffen? Christus war ja bereits in den Himmel aufgefahren. Paulus zog aus zur Verfolgung. Aber schon nach drei Tagen war der Verfolger (Christi) in Damaskus (Christi) Prediger. Welche Kraft hat da gewirkt? Sonst ruft man Freunde als Zeugen für Freunde an; ich aber habe dir einen ehemaligen Feind als Zeugen zitiert. Hast du noch Zweifel? Schwerwiegend wäre zwar auch das Zeugnis von Petrus und Johannes; doch manchem war es ungenügend, da Petrus und Johannes Freunde (Christi) waren. Wer sollte aber noch an der Wahrheit zweifeln, wenn einer zuerst Christi Feind war, später aber für ihn gestorben ist? Hier muss ich wahrlich das Walten des Heiligen Geistes bewundern. Die Briefe der übrigen Apostel beschränkte er nämlich auf eine kleine Zahl; Paulus aber, dem ehemaligen Verfolger, gewährte er die Gnade, vierzehn Briefe zu schreiben. \[...\] Er gewährte seinem früheren Feind und Verfolger, mehr zu schreiben, damit seine Lehre über allem Zweifel erhaben wäre und wir alle deshalb gläubig würden. „Alle staunten über Paulus und sagten: Ist das nicht der, welcher uns früher verfolgte? Ist er nicht hierhergekommen, um uns gefesselt nach Jerusalem zu führen?“ (vgl. Apg 9,21). „Staunt nicht“, entgegnet Paulus, „ich weiß, dass es für mich schwer ist, gegen den Stachel auszuschlagen (vgl. Apg 26,14). Ich weiß, dass ich nicht würdig bin, Apostel zu heißen, da ich die Kirche Gottes verfolgt habe (vgl. 1 Kor 15,9). Doch habe ich sie verfolgt aus Unwissenheit. \[...\] Übergroß war in mir die Gnade Gottes“ (vgl. 1 Tim 1,13–14).

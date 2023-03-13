@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 7 März 2021 : Buch Exodus 20,1-17.'
+date: 2021-03-06T18:02:00.001+01:00
+draft: false
+url: /2021/03/sonntag-7-marz-2021-buch-exodus-201-17.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen sprach Gott auf dem Berg Sinai alle diese Worte: Ich bin Jahwe, dein Gott, der dich aus Ägypten geführt hat, aus dem Sklavenhaus. Du sollst neben mir keine anderen Götter haben. Du sollst dir kein Gottesbild machen und keine Darstellung von irgendetwas am Himmel droben, auf der Erde unten oder im Wasser unter der Erde. Du sollst dich nicht vor anderen Göttern niederwerfen und dich nicht verpflichten, ihnen zu dienen. Denn ich, der Herr, dein Gott, bin ein eifersüchtiger Gott: Bei denen, die mir feind sind, verfolge ich die Schuld der Väter an den Söhnen, an der dritten und vierten Generation; bei denen, die mich lieben und auf meine Gebote achten, erweise ich Tausenden meine Huld. Du sollst den Namen des Herrn, deines Gottes, nicht missbrauchen; denn der Herr lässt den nicht ungestraft, der seinen Namen missbraucht. Gedenke des Sabbats: Halte ihn heilig! Sechs Tage darfst du schaffen und jede Arbeit tun. Der siebte Tag ist ein Ruhetag, dem Herrn, deinem Gott, geweiht. An ihm darfst du keine Arbeit tun: du, dein Sohn und deine Tochter, dein Sklave und deine Sklavin, dein Vieh und der Fremde, der in deinen Stadtbereichen Wohnrecht hat. Denn in sechs Tagen hat der Herr Himmel, Erde und Meer gemacht und alles, was dazugehört; am siebten Tag ruhte er. Darum hat der Herr den Sabbattag gesegnet und ihn für heilig erklärt. Ehre deinen Vater und deine Mutter, damit du lange lebst in dem Land, das der Herr, dein Gott, dir gibt. Du sollst nicht morden. Du sollst nicht die Ehe brechen. Du sollst nicht stehlen. Du sollst nicht falsch gegen deinen Nächsten aussagen. Du sollst nicht nach dem Haus deines Nächsten verlangen. Du sollst nicht nach der Frau deines Nächsten verlangen, nach seinem Sklaven oder seiner Sklavin, seinem Rind oder seinem Esel oder nach irgendetwas, das deinem Nächsten gehört.

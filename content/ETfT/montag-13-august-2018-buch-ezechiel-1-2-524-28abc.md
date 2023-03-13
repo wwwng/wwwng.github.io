@@ -1,0 +1,10 @@
+---
+title: 'Montag, 13 August 2018 : Buch Ezechiel 1,2-5.24-28abc.'
+date: 2018-08-12T17:46:00.003+02:00
+draft: false
+url: /2018/08/montag-13-august-2018-buch-ezechiel-12.html
+tags: 
+- LECTIO
+---
+
+Am fünften Tag des Monats - es war im fünften Jahr nach der Verschleppung des Königs Jojachin - erging das Wort des Herrn an Ezechiel, den Sohn Busis, den Priester, im Land der Chaldäer, am Fluß Kebar. Dort kam die Hand des Herrn über ihn. Ich sah: Ein Sturmwind kam von Norden, eine große Wolke mit flackerndem Feuer, umgeben von einem hellen Schein. Aus dem Feuer strahlte es wie glänzendes Gold. Mitten darin erschien etwas wie vier Lebewesen. Und das war ihre Gestalt: Sie sahen aus wie Menschen. Ich hörte das Rauschen ihrer Flügel; es war wie das Rauschen gewaltiger Wassermassen, wie die Stimme des Allmächtigen. Wenn sie gingen, glich das tosende Rauschen dem Lärm eines Heerlagers. Wenn sie standen, ließen sie ihre Flügel herabhängen. Ein Rauschen war auch oberhalb der Platte, die über ihren Köpfen war. Wenn sie standen, ließen sie ihre Flügel herabhängen. Oberhalb der Platte über ihren Köpfen war etwas, das wie Saphir aussah und einem Thron glich. Auf dem, was einem Thron glich, saß eine Gestalt, die wie ein Mensch aussah. Oberhalb von dem, was wie seine Hüften aussah, sah ich etwas wie glänzendes Gold in einem Feuerkranz. Unterhalb von dem, was wie seine Hüften aussah, sah ich etwas wie Feuer und ringsum einen hellen Schein. Wie der Anblick des Regenbogens, der sich an einem Regentag in den Wolken zeigt, so war der helle Schein ringsum. So etwa sah die Herrlichkeit des Herrn aus. Als ich diese Erscheinung sah, fiel ich nieder auf mein Gesicht. Und ich hörte, wie jemand redete.

@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 1 Januar 2021 : Kommentar Pius X.'
+date: 2020-12-31T18:13:00.001+01:00
+draft: false
+url: /2020/12/freitag-1-januar-2021-kommentar-pius-x.html
+tags: 
+- MEDITATIO
+---
+
+Oder ist Maria nicht die Mutter Christi? Dann ist sie aber auch unsere Mutter. – Gehen wir zunächst von jener Grundwahrheit aus, die jeder festhalten muss: Jesus, das menschgewordene Wort, ist der Erlöser des Menschengeschlechtes. Wenn er nun als Gottmensch, wie alle anderen Menschen, einen ganz bestimmten Leib angenommen hat, so verfügt er als Erlöser unseres Geschlechtes ebenso über einen geistigen oder mystischen Leib; dieser mystische Leib ist die Gemeinschaft derer, die an Christus glauben. „Wir, die vielen, sind ein Leib in Christus“ (Röm 12,5). Nun aber hat die Jungfrau den ewigen Sohn Gottes nicht bloß empfangen, damit er die menschliche Natur annehme und so nur Mensch sei, sondern dass er durch die Annahme dieser Menschennatur aus ihr auch der Erlöser der Menschen würde. Deshalb sagte der Engel den Hirten: „Heute ist euch geboren der Erlöser, welcher ist Christus der Herr“ (Lk 2,11). In einem und demselben Schoße der reinsten Mutter hat er Fleisch angenommen und sich zugleich einen geistigen Leib beigefügt, der aus denen besteht, „die an ihn glauben würden“. So kann man mit Recht sagen: Dadurch, dass Maria in ihrem Schoß den Erlöser umschloss, trug sie in demselben auch die, deren Leben in das Leben des Erlösers einbezogen war. Wir alle also, die wir mit Christus vereinigt und nach den Worten des Apostels „Glieder seines Leibes, von seinem Fleisch und seinem Gebein“ (Eph 5,30) sind, sind gleichsam aus dem Schoße Mariens hervorgegangen als ein Leib, der mit dem Haupte vereinigt ist. Somit heißen wir geistiger- und mystischerweise mit Recht Kinder Mariens, und sie ist unser aller Mutter \[…\]. Die allerseligste Jungfrau ist also zugleich Mutter Gottes und Mutter der Menschen. – Ohne Zweifel wird sie deshalb alles aufbieten, damit Christus, „das Haupt des Leibes, der Kirche“ (Kol 1,18), uns als seinen Gliedern alle seine Gnadenschätze mitteile, vor allem, damit wir ihn erkennen und „durch ihn leben“ (1 Joh 4,9).

@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 29 März 2020 : Kommentar Hl. Gregor von Nazianz'
+date: 2020-03-28T18:03:00.001+01:00
+draft: false
+url: /2020/03/sonntag-29-marz-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+„Lazarus, komm heraus!“ – Im Grabe ruhend, hörtest du diesen schallenden Ruf. Gibt es eine stärkere Stimme, als die des \[fleischgewordenen göttlichen\] Wortes? Also bist du herausgekommen, du, der du tot warst, und zwar nicht erst seit vier Tagen, sondern seit so langer Zeit. Du bist auferstanden mit Christus \[…\]; deine Binden sind gefallen. Falle nicht wieder zurück in den Tod. Schließe dich nicht wieder denen an, die in den Gräbern hausen. Lasse dich nicht ersticken durch die Binden deiner Sünden. Weißt du denn, ob du noch einmal wirst auferstehen können? Ob du aus dem Tod wirst kommen können, bei der Auferstehung aller am Ende der Zeiten? \[…\] Der Ruf des Herrn soll dir also in den Ohren klingen! Verschließe sie heute nicht vor der Lehre und dem Rat des Herrn. Wenn du in deinem Grab blind warst und ohne Licht, so öffne die Augen, um nicht in den Schlaf des Todes zu versinken. Im Licht des Herrn schaue das Licht; im Geist Gottes richte die Augen auf den Sohn. Wenn du das ganze Wort aufnimmst, dann richtest du die ganze Kraft Christi, der heilt und auferweckt, auf deine Seele. \[…\] Fürchte dich nicht vor der Mühe, die du auf dich nehmen musst, um die Reinheit deiner Taufe zu bewahren, und bahne in deinem Herzen die Wege, die zum Herrn aufsteigen. Bewahre sorgfältig den Freibrief, den du aus reiner Gnade erhalten hast \[…\] Lasst uns Licht sein, wie es die Jünger lernten von dem, der das große Licht ist: „Ihr seid das Licht der Welt“ (Mt 5,14). Lasst uns Leuchten in der Welt sein, indem wir das Wort des Lebens hochhalten, indem wir Lebenskraft für andere sind. Machen wir uns auf die Suche nach Gott, auf die Suche nach dem, der das erste und reinste Licht ist.

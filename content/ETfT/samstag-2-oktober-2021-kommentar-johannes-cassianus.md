@@ -1,0 +1,8 @@
+---
+title: 'Samstag, 2 Oktober 2021 : Kommentar Johannes Cassianus'
+date: 2021-10-02T10:11:00.001+02:00
+draft: false
+url: /2021/10/samstag-2-oktober-2021-kommentar.html
+---
+
+Nicht ohne Grund und Ursache werden auf die heiligen Engel Bezeichnungen angewandt, die ihren Rang ausdrücken, darunter auch Namen, die ihr Amt beschreiben, ihren Verdienst oder ihre Würde: Daran zweifelt niemand. Zunächst einmal ist es offensichtlich, dass der Name „Engel“ oder „Bote“ sich von ihrem Amt herleitet, den göttlichen Willen zu verkünden, und der Name „Erzengel“ von der Tatsache, dass sie, wie der Name schon sagt, den Engeln selbst Befehle erteilen. Andere werden „Herrschaften“ genannt, weil sie über viele herrschen; andere „Fürsten“, weil sie Untertanen haben, die ihnen wie Fürsten gehorchen; wieder andere „Throne“ wegen der innigen Verbindung und Vertrautheit, die sie mit Gott haben, so dass seine göttliche Majestät in ihnen wie auf einem Thron zu ruhen scheint und sich gleichsam fester auf sie stützt \[…\] Was die heiligen Engel betrifft, so sagt uns der Heiland: „Hütet euch davor, einen von diesen Kleinen zu verachten! Denn ich sage euch: Ihre Engel im Himmel sehen stets das Angesicht meines himmlischen Vaters“ (Mt 18,10). Auf sie bezieht sich auch dieses Wort: „Der Engel des Herrn umschirmt alle, die ihn fürchten und ehren, und er befreit sie“ (Ps 34(33),8), oder dieses Wort aus der Apostelgeschichte über Petrus: „Es ist sein Engel“ (Apg 12,15).

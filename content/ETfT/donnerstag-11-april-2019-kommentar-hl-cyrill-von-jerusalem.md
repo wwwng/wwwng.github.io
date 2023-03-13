@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 11 April 2019 : Kommentar Hl. Cyrill von Jerusalem'
+date: 2019-04-10T17:45:00.003+02:00
+draft: false
+url: /2019/04/donnerstag-11-april-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Viel wäre über den Glauben zu sagen. \[...\] Vorerst möge es genügen, wenn wir aus den Vorbildern des Alten Testamentes die eine Person Abrahams herausgreifen, zumal wir durch den Glauben seine Kinder geworden sind. Abraham ist nicht nur aufgrund von Werken, sondern auch aufgrund des Glaubens gerechtfertigt worden. Viel hat er geleistet, doch Freund Gottes wurde er immer erst genannt, als er seinen Glauben bekannte. Und alles, was er tat, hat er im Glauben vollendet. Im Glauben verließ er seine Eltern, im Glauben verließ er Vaterland, Haus und Hof. Auf demselben Weg nun, auf dem jener gerechtfertigt wurde, sollst auch du gerecht werden. Sein Körper konnte nicht mehr Kinder zeugen; denn Abraham war ein Greis. Auch seine Frau \[Sara\] war schon bejahrt und hatte keine Hoffnung mehr, Kinder zu gebären. Gott verspricht dem Greis Nachkommenschaft, und „Abraham war nicht schwach im Glauben“, obwohl er erkannte, dass sein Leib bereits erstorben war. Er sah nicht auf die Schwäche seines Körpers, sondern auf die Kraft dessen, der die Verheißung gab, und hielt ihn für treu, und so empfing er aus erstorbenen Leibern wider Erwarten einen Sohn. \[...\] \[...\] durch den Glauben ist er \[Abraham\] unser Vorbild, durch ihn werden wir alle Abrahams Söhne. Inwiefern und auf welche Weise? Menschen ist es unglaublich, dass jemand von den Toten aufersteht, wie es ihnen auch unglaublich ist, dass abgestorbene alte Leute Nachkommenschaft erhalten. Doch wenn verkündet wird, dass Christus gekreuzigt worden ist und nach seinem Tode wieder auferstanden ist, glauben wir es. Die Ähnlichkeit des Glaubens ist es, durch welche wir also zur Kindschaft Abrahams gelangen. Sind wir gläubig geworden, dann werden wir Abraham auch ähnlich, sofern wir das geistige Siegel erhalten, vom Heiligen Geist in der Taufe beschnitten werden \[...\].

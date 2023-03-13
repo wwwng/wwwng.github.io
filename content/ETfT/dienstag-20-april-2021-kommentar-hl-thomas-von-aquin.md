@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 20 April 2021 : Kommentar Hl. Thomas von Aquin'
+date: 2021-04-19T18:13:00.001+02:00
+draft: false
+url: /2021/04/dienstag-20-april-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Deinem Heiland, deinem Lehrer, deinem Hirten und Ernährer, Sion, stimm ein Loblied an! Preis nach Kräften seine Würde, da kein Lobspruch, keine Zierde seinem Ruhm genügen kann. Dieses Brot sollst du erheben, welches lebt und gibt das Leben, das man heut’ den Christen weist. Dieses Brot, mit dem im Saale Christus bei dem Abendmahle die zwölf Jünger hat gespeist. Laut soll unser Lob erschallen und das Herz in Freude wallen, denn der Tag hat sich genaht \[…\] Neuer König, neue Zeiten, neue Ostern, neue Freuden, neues Opfer allzumal! Vor der Wahrheit muss das Zeichen, vor dem Licht der Schatten weichen, hell erglänzt des Tages Strahl. Was von Christus dort geschehen, sollen wir fortan begehen, seiner eingedenk zu sein. Treu dem heiligen Befehle wandeln wir zum Heil der Seele in sein Opfer Brot und Wein. \[…\] Blut ist Trank, und Fleisch ist Speise, doch der Herr bleibt gleicherweise ungeteilt in beider Bild. Wer ihm nahet voll Verlangen, darf ihn unversehrt empfangen, ungemindert, wunderbar. Einer kommt, und tausend kommen, doch so viele ihn genommen, er bleibt immer, der er war. \[…\] Seht das Brot, die Engelspeise! Auf des Lebens Pilgerreise nehmt es nach der Kinder Weise, nicht den Hunden werft es hin! Lang im Bild war‘s vorbereitet: Isaak, der zum Opfer schreitet; Osterlamm, zum Mahl bereitet; Manna nach der Väter Sinn. Guter Hirt, du wahre Speise, Jesus, gnädig dich erweise! Nähre uns auf deinen Auen, lass uns deine Wonnen schauen in des Lebens ewigem Reich! Du, der alles weiß und leitet, uns im Tal des Todes weidet, lass an deinem Tisch uns weilen, deine Herrlichkeit uns teilen. Deinen Seligen mach uns gleich!

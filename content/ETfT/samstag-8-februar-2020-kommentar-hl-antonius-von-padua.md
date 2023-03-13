@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 8 Februar 2020 : Kommentar Hl. Antonius von Padua'
+date: 2020-02-07T17:51:00.001+01:00
+draft: false
+url: /2020/02/samstag-8-februar-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wenn du zu mir kommen und mich finden willst, dann folge mir und suche mich in der Abgeschiedenheit. Markus sagt nämlich: „Kommt mit an einen einsamen Ort, und ruht ein wenig aus!“ Denn sie fanden nicht einmal Zeit zum Essen, so zahlreich waren die Leute, die kamen und gingen (vgl. Mk 6,31). Ach, die Leidenschaften des Fleisches, der Tumult der Gedanken, die in unserem Herzen kommen und gehen, ist derart, dass wir keine Zeit haben, die ewig süße Speise zu verkosten, auf den Geschmack der inneren Betrachtung zu kommen. Deshalb sagt unser Meister: „Kommt mit“, weg vom lärmenden Gedränge; „an einen einsamen Ort“, in die Einsamkeit des Geistes und des Herzens, „und ruht ein wenig aus“. Wirklich nur ein ganz klein wenig, denn so spricht er in der Offenbarung: „Es trat im Himmel Stille ein, etwa eine halbe Stunde lang“ (vgl. Offb 8,1); und im Psalm: „Wer wird mir Flügel geben wie die einer Taube, und ich würde fortfliegen und ausruhen?“ (vgl. Ps 54(55),7 LXX). Hören wir aber, was der Prophet Hosea sagt: „Ich will sie locken“, sagt er, „und sie in die Wüste führen, und ihr zu Herzen reden“ (vgl. Hos 2,14 Vulg.). Die drei Ausdrücke: locken, in die Wüste führen, zu Herzen reden, stehen für die drei Etappen des geistlichen Lebens: den Anfang, den Fortschritt, die Vollendung. Der Herr lockt den Anfänger, indem er ihn durch seine Gnade erleuchtet, damit er wachse und von Tugend zu Tugend fortschreite. Dann führt er ihn weg vom Getöse der Laster und dem Gewirr der Gedanken in die Ruhe des Geistes. Endlich zur Vollkommenheit gebracht, spricht er zu seinem Herzen. Die Seele erfährt dann die Süße der göttlichen Inspiration und kann sich ganz der Freude des Geistes hingeben. Was für eine Tiefe der Hingabe, des Staunens und des Glücks in seinem Herzen! Durch die Hingabe erhebt er sich über sich selbst; durch das Staunen wird er über sich hinausgeführt; durch das Glück wird er seiner selbst enthoben.

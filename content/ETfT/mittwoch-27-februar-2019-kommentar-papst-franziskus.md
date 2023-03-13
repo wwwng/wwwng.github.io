@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 27 Februar 2019 : Kommentar Papst Franziskus'
+date: 2019-02-26T17:46:00.001+01:00
+draft: false
+url: /2019/02/mittwoch-27-februar-2019-kommentar.html
+tags: 
+- EVANGELIUM
+---
+
+Heute möchte ich kurz bei einem weiteren Begriff verweilen, mit dem das Zweite Vatikanische Konzil die Kirche beschreibt: bei dem Begriff „Volk Gottes“ \[...\] Was bedeutet es, „Volk Gottes“ zu sein? Zunächst bedeutet es, dass Gott keinem Volk in eigener Weise gehört; denn er ist es, der uns ruft, uns beruft, uns einlädt, zu seinem Volk zu gehören, und diese Einladung ist an alle gerichtet, ohne Unterschied, denn Gottes Barmherzigkeit „will, dass alle Menschen gerettet werden“ (1 Tim 2,4). Jesus sagt nicht zu den Aposteln und zu uns, dass wir eine exklusive Gruppe, eine Elite bilden sollen. Jesus sagt: Macht alle Völker zu meinen Jüngern (vgl. Mt 28,19). Der hl. Paulus sagt: Im Volk Gottes, in der Kirche, gibt es „nicht mehr Juden und Griechen ... denn ihr seid alle ‚einer‘ in Christus Jesus“ (Gal 3,28). Auch dem, der sich fern von Gott und von der Kirche fühlt, der ängstlich oder gleichgültig ist, der meint, sich nicht mehr ändern zu können, möchte ich sagen: Der Herr ruft auch dich, zu seinem Volk zu gehören, und er tut dies mit großer Achtung und Liebe! Er lädt uns ein, zu diesem Volk, zum Volk Gottes zu gehören. Wie wird man zu Gliedern dieses Volkes? Nicht durch die physische Geburt, sondern durch eine neue Geburt. Im Evangelium sagt Jesus zu Nikodemus, dass man neu geboren werden muss, aus Wasser und aus Geist, um in das Reich Gottes zu kommen (vgl. Joh 3,35). Durch die Taufe werden wir in dieses Volk eingegliedert, durch den Glauben an Christus: ein Geschenk Gottes, das genährt werden und dass in unserem ganzen Leben zum Wachsen gebracht werden muss. Wir wollen uns fragen: Wie lasse ich den Glauben wachsen, den ich in meiner Taufe empfangen habe? Wie lasse ich diesen Glauben wachsen, den ich empfangen habe und den das Volk Gottes besitzt?

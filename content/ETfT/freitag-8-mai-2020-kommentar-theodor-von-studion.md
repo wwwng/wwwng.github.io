@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 8 Mai 2020 : Kommentar Theodor von Studion'
+date: 2020-05-07T17:46:00.001+02:00
+draft: false
+url: /2020/05/freitag-8-mai-2020-kommentar-theodor.html
+tags: 
+- MEDITATIO
+---
+
+Folgt Tag für Tag dem Weg Gottes, haltet euch eng an ihn, um seiner Verheißung willen. In der Tat, er selbst hat allen, die seinen Willen und seine Zeichen suchen (vgl. Ps 118,31 LXX), durch die Vermittlung seiner Apostel gesagt, dass er bis zum Ende der Welt bei ihnen sein werde (Mt 28,20), dort, wo niemand seine Wege und Spuren sieht (vgl. Ps 77(76),20), wie es der Gottesmann David in seinen Liedern besang. Auf unsichtbare Weise zwar, ist er den Augen des Geistes gegenwärtig und lässt sich von denen schauen, die ein reines Herz haben, und spricht mit ihnen. Folgt also eurem Weg \[…\]. Nehmt die Flügel der Gottesliebe, um wie die Wolken zu fliegen (vgl. Jes 60,8), hoch erhoben über den Fallstricken dieser Erde. Salbt eure Füße mit dem Öl der Freude (vgl. Ps 45(44),8) und der Mäßigkeit. Belästigt nicht mit euren trägen Schritten den schmalen Pfad des Herrn. Wenn ihr in eurem Kleinmut Durst habt, so trinkt das Wasser der Geduld (vgl. Sir 15,3); wenn ihr in eurer geistlichen Erschlaffung Hunger habt, esst Brot, das das Menschenherz nährt und stärkt (vgl. Ps 104(103),15): ein Wort der Weisheit und der Ermutigung. Krempelt die Ärmel hoch und seid bereit zu handeln, schaut hinauf zur Höhe und beladet euch nicht mit der überwältigenden Last eurer bösen Begehrlichkeiten; denn für den, der die Reise von der Erde zum Himmel unternimmt, genügt es, eifrig seinem Weg zu folgen, ohne sich zusätzliche Lasten aufzuladen. \[…\] Seid stark im Herrn, zieht hinauf zum Berg des Herrn, zu seinem heiligen Haus (vgl. Jes 2,3), zusammen mit dem Sänger Jesaja, dem Propheten mit einer so mächtigen Stimme. Keiner bleibe zurück, keiner ruhe sich aus; helft einander, seid alle verwurzelt in beständiger Nächstenliebe.

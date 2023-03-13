@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 8 Juni 2021 : Kommentar II. Vatikanisches Konzil'
+date: 2021-06-08T10:15:00.001+02:00
+draft: false
+url: /2021/06/dienstag-8-juni-2021-kommentar-ii.html
+---
+
+Da die ganze Kirche missionarisch und das Werk der Evangelisation eine Grundpflicht des Gottesvolkes ist, lädt die Heilige Synode alle zu einer tiefgreifenden, inneren Erneuerung ein, damit sie im lebendigen Bewusstsein der eigenen Verantwortung um die Ausbreitung des Evangeliums ihren Anteil am Missionswerk \[…\] übernehmen. Als Glieder des lebendigen Christus, durch Taufe, Firmung und Eucharistie ihm eingegliedert und gleichgestaltet, ist allen Gläubigen die Pflicht auferlegt, an der Entfaltung und an dem Wachstum seines Leibes mitzuwirken, damit dieser so bald wie möglich zur Vollgestalt gelange (vgl. Eph 4,13). Deshalb mögen alle Kinder der Kirche ein lebendiges Verantwortungsbewusstsein gegenüber der Welt besitzen, eine wahrhaft katholische Gesinnung in sich hegen und ihre Kräfte für das Werk der Evangelisierung einsetzen. Doch seien alle eingedenk, dass die erste und wichtigste Verpflichtung bei der Ausbreitung des Glaubens darin besteht, ein tiefchristliches Leben zu führen. Ihr Eifer im Dienste Gottes und ihre Liebe zum Nächsten werden der ganzen Kirche neuen geistlichen Antrieb verleihen, so dass sie als Zeichen erscheint, aufgerichtet unter den Völkern (vgl. Jes 11,12), als „Licht der Welt“ (Mt 5,14) und als „Salz der Erde“ (Mt 5,13). Dieses Zeugnis des Lebens wird eher seine Wirkung hervorbringen, wenn es – nach den Richtlinien des Dekrets über den Ökumenismus – zusammen mit anderen christlichen Gruppen abgelegt wird.

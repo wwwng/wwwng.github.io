@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 26. Mai : Brief an die Hebräer 9,24-28.10,19-23.'
+date: 2022-05-26T08:22:00.001+02:00
+draft: false
+url: /2022/05/donnerstag-26-mai-brief-die-hebraer-924.html
+---
+
+Christus ist nicht in ein von Menschenhand errichtetes Heiligtum hineingegangen, in ein Abbild des wirklichen, sondern in den Himmel selbst, um jetzt für uns vor Gottes Angesicht zu erscheinen; auch nicht, um sich selbst viele Male zu opfern, wie der Hohepriester jedes Jahr mit fremdem Blut in das Heiligtum hineingeht; sonst hätte er viele Male seit der Erschaffung der Welt leiden müssen. Jetzt aber ist er am Ende der Zeiten ein einziges Mal erschienen, um durch sein Opfer die Sünde zu tilgen. Und wie es dem Menschen bestimmt ist, ein einziges Mal zu sterben, worauf dann das Gericht folgt, so wurde auch Christus ein einziges Mal geopfert, um die Sünden vieler hinwegzunehmen; beim zweiten Mal wird er nicht wegen der Sünde erscheinen, sondern um die zu retten, die ihn erwarten. So haben wir die Zuversicht, Brüder und Schwestern, durch das Blut Jesu in das Heiligtum einzutreten. Er hat uns den neuen und lebendigen Weg erschlossen durch den Vorhang hindurch, das heißt durch sein Fleisch. Und da wir einen Hohepriester haben, der über das Haus Gottes gestellt ist, lasst uns mit aufrichtigem Herzen und in voller Gewissheit des Glaubens hinzutreten, die Herzen durch Besprengung gereinigt vom schlechten Gewissen und den Leib gewaschen mit reinem Wasser! Lasst uns an dem unwandelbaren Bekenntnis der Hoffnung festhalten, denn er, der die Verheißung gegeben hat, ist treu!

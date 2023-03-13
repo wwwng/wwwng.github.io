@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 23 Februar 2021 : Kommentar Hl. Johannes vom Kreuz'
+date: 2021-02-22T18:13:00.001+01:00
+draft: false
+url: /2021/02/dienstag-23-februar-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+In allem, was unsere Gebetsweise und Andachtsübungen betrifft, sollen wir uns nach dem Beispiele Jesu Christi und der Lehre der Kirche richten (Lk 11,1–2). Als die Jünger des Herrn baten: „Herr, lehre uns beten“, da belehrte er sie gewiss über alles, was notwendig ist, um vom ewigen Vater erhört zu werden, da ihm ja sein Wille genau bekannt war. Er lehrte sie nur die sieben Bitten des Vaterunsers, in denen all unsere geistigen und leiblichen Bedürfnisse enthalten sind, und sprach weiter nichts von verschiedenen anderen Gebetsformeln und Zeremonien. Im Gegenteil, er legte ihnen ans Herz, beim Gebete nicht viele Worte zu machen, da unser Vater im Himmel selbst wisse, was wir bedürfen (Mt 6,7–8). Nur eines schärfte er uns mit besonderem Nachdruck ein, dass wir beharrlich sein sollen beim Gebet durch häufige Wiederholung des Vaterunsers; und anderswo sagte er, dass wir allezeit beten und nicht nachlassen sollen (Lk 18,1). Er lehrte uns nicht verschiedene Gebetsformeln, sondern will nur, dass wir das Vaterunser recht oft, inbrünstig und sorgfältig wiederholen. Denn in diesen Bitten ist, wie bereits erwähnt, alles enthalten, was der Wille Gottes und uns zum Heile ist. Als darum der Gottessohn zum ewigen Vater flehte, bediente er sich dreimal derselben Worte des Vaterunsers. Er sprach, wie die Evangelisten bemerken: „Vater, wenn es möglich ist, so gehe dieser Kelch an mir vorüber, doch nicht wie ich, sondern wie du willst“ (Mt 26,39). Was nun die äußeren Übungen betrifft, deren wir uns nach seiner Anweisung bedienen sollen, so finden sich nur zwei angegeben. Entweder sollen wir uns zurückziehen in unser Kämmerlein, wo wir ohne Störung und ohne von jemand bemerkt zu werden mit ganz reinem Herzen beten können \[…\] Oder wir können uns auch nach seinem Beispiele an einen einsamen Ort zurückziehen, am besten zur Nachtzeit, wo mehr Ruhe herrscht.

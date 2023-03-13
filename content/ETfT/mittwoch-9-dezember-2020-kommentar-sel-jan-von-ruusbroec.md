@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 9 Dezember 2020 : Kommentar Sel. Jan von Ruusbroec'
+date: 2020-12-08T18:13:00.001+01:00
+draft: false
+url: /2020/12/mittwoch-9-dezember-2020-kommentar-sel.html
+tags: 
+- MEDITATIO
+---
+
+Von der dritten Ankunft Christi. Die dritte, noch in der Zukunft verborgene, Ankunft Christi findet beim Gerichte oder in der Stunde des Todes statt. \[…\] Die Gerechtigkeit des Richters – denn das Urteil und der Urteilsspruch kommt Christus zu. Er ist der Menschen Sohn und die Weisheit des Vaters. Dieser Weisheit steht alles Urteil zu, denn vor ihr sind alle Herzen im Himmel, auf Erden und in der Hölle offenkundig und offenbar. \[…\] Christus unser Bräutigam und Richter wird bei diesem Gerichte lohnen und strafen nach Gerechtigkeit, denn er vergilt jedem nach Verdienst. Er schenkt dem Gerechten für jedes Werk, das Gott aufgeopfert wurde, einen unermesslichen Lohn, den kein Geschöpf verdienen kann, nämlich sich selbst. Denn indem Gott das Werk mitwirkt in der Kreatur, so verdient das Geschöpf in der Kraft Gottes, Gott selbst zum Lohn. \[…\] Der ersten Ankunft, in der Gott Mensch wurde, in Demut lebte und in Liebe für uns starb, sollen wir entsprechen: äußerlich durch vollkommene, sittliche Tugenden und innerlich durch Liebe und wahrhafte Demut. Die zweite Ankunft, die sich in der Gegenwart vollzieht, indem Gott mit Gnade jedes minnende Herz heimsucht, soll unsere Sehnsucht sein, und wir sollen täglich bitten, dass wir standhaft bleiben und zunehmen in neuen Tugenden. Die dritte Ankunft zum Gerichte oder in unserer Todesstunde, sollen wir mit Verlangen, Vertrauen und mit Ehrfurcht erwarten, auf dass wir aus diesem Elende erlöst werden und eintreten mögen in den Saal der ewigen Herrlichkeit.

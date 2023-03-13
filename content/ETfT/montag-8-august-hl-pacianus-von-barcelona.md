@@ -1,0 +1,8 @@
+---
+title: 'Montag, 8. August : Hl. Pacianus von Barcelona'
+date: 2022-08-08T09:23:00.001+02:00
+draft: false
+url: /2022/08/montag-8-august-hl-pacianus-von.html
+---
+
+Alle Völker wurden durch unseren Herrn Jesus Christus von den Mächten befreit, die sie gefangen hielten. Er ist es, ja, er ist es, der uns losgekauft hat. Wie der Apostel Paulus sagt: „Gott aber hat \[…\] uns alle Sünden vergeben. Er hat den Schuldschein, der gegen uns sprach, durchgestrichen und seine Forderungen, die uns anklagten, aufgehoben. Er hat ihn dadurch getilgt, dass er ihn an das Kreuz geheftet hat. Die \[…\] Gewalten hat er entwaffnet \[…\]; durch Christus hat er über sie triumphiert“ (Kol 2,13−15). Er hat die Gefesselten befreit und unsere Ketten gesprengt, wie David gesagt hatte: „Recht verschafft er den Unterdrückten \[…\]; der Herr befreit die Gefangenen. Der Herr öffnet den Blinden die Augen \[…\].“ Und weiter: „Du hast meine Fesseln gelöst. Ich will dir ein Opfer des Dankes bringen“ (Ps 146(145),7−8; Ps 116,16−17(115,7–8)). Ja, wir wurden befreit von unseren Fesseln, wir, die wir auf den Ruf des Herrn hin durch das Sakrament der Taufe zusammengeführt wurden; \[…\] wir wurden befreit durch das Blut Christi und die Anrufung seines Namens. Also, meine Geliebten, ein für alle Mal wurden wir getauft, ein für alle Mal wurden wir befreit, ein für alle Mal wurden wir aufgenommen in das unsterbliche Reich. Ein für alle Mal sind „selig, deren Frevel vergeben und deren Sünden bedeckt sind“ (vgl. Röm 4,7; vgl. Ps 32(31),1). Haltet entschlossen fest an dem, was ihr empfangen habt, bewahrt es zu eurer Glückseligkeit, sündigt nicht mehr. Von nun an bewahrt euch rein und untadelig für den Tag des Herrn.

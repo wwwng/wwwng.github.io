@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 27. September : Hl. Bernhard von Clairvaux'
+date: 2022-09-27T09:23:00.001+02:00
+draft: false
+url: /2022/09/dienstag-27-september-hl-bernhard-von.html
+---
+
+Brüder, gewiss habt ihr euch bereits auf den Weg gemacht, um der Stadt entgegenzugehen, in der ihr wohnen werdet; nicht im Dickicht, sondern auf der Straße schreitet ihr voran. Ich fürchte aber, dass dieses Leben euch die Illusion vermittelt, lange zu dauern, und euch so nicht Trost, sondern vielmehr Traurigkeit bringt. Ja, ich fürchte, dass manche bei dem Gedanken, dass sie noch einen langen Weg vor sich haben, von geistlichen Mutlosigkeit befallen werden und die Hoffnung aufgeben, so viel Mühsal so lange ertragen können. Als wenn Gottes Tröstungen die Seelen der Auserwählten nicht mit viel größerer Freude ausfüllen, als es die Mühsale in ihren Herzen können! Gegenwärtig erhalten sie diese Tröstungen zwar nur in dem Maß, wie sie Mühsal ertragen; wenn sie jedoch erst einmal die Glückseligkeit erreicht haben, werden sie nicht mehr Tröstungen, sondern unendliche Wonnen zur Rechten Gottes finden (vgl. Ps 16(15),11). Lasst uns diese Rechte \[= rechte Hand Gottes\] ersehnen, Brüder, die uns in unserem ganzen Sein umfasst. Wünschen wir uns sehnlichst dieses Glück, damit uns die gegenwärtige Zeit im Vergleich zur Größe der Liebe Gottes kurz erscheint (was sie ja in Wirklichkeit auch ist). „Die Leiden der gegenwärtigen Zeit bedeuten nichts im Vergleich zu der Herrlichkeit, die an uns offenbar werden soll“ (vgl. Röm 8,18). Welch wunderbare Verheißung, die wir mit unserem ganzen Wollen und Wünschen umfangen sollten.

@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 30 Januar 2021 : Kommentar Hl. Alphons-Maria von Liguori'
+date: 2021-01-29T18:13:00.001+01:00
+draft: false
+url: /2021/01/samstag-30-januar-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Es missfällt Gott keinesfalls, wenn du dich manchmal sachte bei ihm beklagst. Hab keine Angst, ihm zu sagen: „Warum, Herr, hast du dich so weit entfernt? (vgl. Ps 9,22 LXX). Du weißt sehr wohl, dass ich dich liebe und dass ich nach nichts anderem verlange als nach deiner Liebe. Um der Liebe willen rette mich, verlass mich nicht.“ Wenn die Trostlosigkeit lange andauert und du sehr große Angst hast, dann vereine deine Stimme mit der Stimme Jesu, als er ohnmächtig am Kreuz hing. Flehe um das göttliche Mitleid und sage: „Mein Gott, mein Gott, warum hast du mich verlassen?“ (Mt 27,46). Mache dir aber diese Prüfung zunutze: zunächst um dich noch mehr zu demütigen, indem du dir selbst immer wieder vorsagst, dass man keinerlei Trost verdient, wenn man Gott beleidigt hat; dann rufe dir, um dein Vertrauen zu stärken, ins Gedächtnis, dass Gott, was immer er auch tut oder zulässt, nur dein Wohl im Sinn hat, dass also deiner Seele „alles zum Guten gereicht“ (vgl. Röm 8,28). Je mehr dich Ärger und Mutlosigkeit heimsuchen, desto unerschrockener musst du dich mit großem Mut wappnen und ausrufen: „Der Herr ist mein Licht und mein Heil: Vor wem sollte ich mich fürchten?“ (Ps 27,1). Ja, Herr, du bist es, der mich erleuchten wird, du bist es, der mich retten wird. Ich vertraue auf dich, „auf dich habe ich meine Hoffnung gesetzt: ich soll nicht zuschanden werden (bis) in Ewigkeit“ (vgl. Ps 30,2 LXX). Bleibe also unerschütterlich im Frieden, und sei gewiss, dass „keiner, der seine Hoffnung auf den Herrn gesetzt hat, zuschanden wurde“ (vgl. Sir 2,11 Vulg.); keiner ging verloren, wenn er sein Vertrauen auf Gott gesetzt hatte.

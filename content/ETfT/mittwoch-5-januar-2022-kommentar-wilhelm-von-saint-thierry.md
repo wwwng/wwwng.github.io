@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 5 Januar 2022 : Kommentar Wilhelm von Saint-Thierry'
+date: 2022-01-05T09:11:00.001+01:00
+draft: false
+url: /2022/01/mittwoch-5-januar-2022-kommentar.html
+---
+
+Wenn es schon genügt, dass auf Erden zwei oder drei in deinem Namen versammelt sind, um dich selbst mitten unter ihnen zu wissen (vgl. Mt 18,20) \[…\], was soll man dann erst von dem Ort sagen, an dem du alle Heiligen versammelt hast, die „den Bund mit dir schlossen beim Opfer“ und die geworden sind wie „die Himmel, die deine Gerechtigkeit künden“? (vgl. Ps 50(49),5–6). Der Jünger, den du liebtest, war nicht der einzige, der den Weg zum Himmel gefunden hat; nicht für ihn allein „war eine Tür geöffnet am Himmel“ (vgl. Offb 4,1). Du selbst hast ja allen erklärt: „Ich bin die Tür; wer durch mich hineingeht, wird gerettet werden“ (Joh 10,9). Du bist also die Tür, und nach dem, was du hinzufügst, öffnest du sie allen, die hineingehen wollen. Aber was nützt es uns, die wir hier auf Erden sind, eine offene Tür im Himmel zu sehen, wenn wir keine Möglichkeit haben, hinaufzusteigen? Der hl. Paulus gibt uns die Antwort: „Wenn er aber hinaufstieg, was bedeutet dies anderes, als dass er auch zur Erde herabstieg?“ (Eph 4,9). Wer ist er? Die Liebe. Es ist tatsächlich die Liebe, die aus unseren Herzen zu dir hinaufsteigt, weil es auch die Liebe ist, die von dir zu uns herabgestiegen ist. Du bist zu uns herabgestiegen, weil du uns geliebt hast; wenn wir dich lieben, können wir zu dir hinaufsteigen. Du, der du gesagt hast: „Ich bin die Tür“: In deinem Namen bitte ich dich, öffne dich vor uns! Dann werden wir klarer sehen, zu welcher Wohnung du die Tür bist, und wann und wem du sie öffnest.

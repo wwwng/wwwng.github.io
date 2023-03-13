@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 21 Oktober 2018 : Kommentar Hl. Johannes Chrysostomus'
+date: 2018-10-20T17:43:00.001+02:00
+draft: false
+url: /2018/10/sonntag-21-oktober-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Meiner Meinung nach wollten die beiden Brüder Jakobus und Johannes, als sie nach den ersten Plätzen, den höchsten Ämtern und größten Ehren strebten, Macht über die anderen bekommen. Deshalb widersetzt sich Jesus ihrem Anspruch, legt ihre geheimen Gedanken bloß und sagt zu ihnen: „wer bei euch der Erste sein will, soll der Sklave aller sein“. Mit anderen Worten: „Wenn ihr die ersten Plätze und die höchsten Ehren anstrebt, dann bemüht euch um den letzten Platz, verwendet eure Anstrengung darauf, die Einfachsten, Bescheidensten und Kleinsten von allen zu werden. Stellt euch hinter die anderen. Diese Tugend wird euch die Ehre verschaffen, die ihr anstrebt. Dafür habt ihr ein leuchtendes Beispiel unter euch; denn auch „der Menschensohn ist nicht gekommen, um sich dienen zu lassen, sondern um zu dienen und sein Leben hinzugeben als Lösegeld für viele“ (Mk 10,45). So werden euch Ehre und Ruhm zuteil. Seht doch, wie es bei mir ist: ich strebe nicht nach Ruhm und Ehre, und doch ist das Gute, das ich auf diese Weise bewirke, unendlich groß. Wir wissen es: vor der Menschwerdung Christi, vor seiner Verdemütigung war alles verloren und zersetzt; als er sich aber verdemütigte, richtete er alles wieder auf. Er hat Flüche außer Kraft gesetzt, den Tod vernichtet, das Paradies aufgeschlossen, die Sünde getötet, die Riegel der Himmelspforten gelöst, um den Erstlingen unserer Menschheit wieder Zugang zu verschaffen. Er hat den Glauben auf der ganzen Welt verbreitet, den Irrtum vertrieben und die Wahrheit wieder eingesetzt. Die Erstlinge unserer Menschheit hat er auf einen königlichen Thron gesetzt. Christus ist der Urheber unendlich vieler Wohltaten, die weder ich noch irgendein anderer Mensch recht darstellen könnte. Vor seiner Erniedrigung kannten ihn nur die Engel, aber nach seiner Selbstverdemütigung hat ihn die ganze Menschheit erkannt.

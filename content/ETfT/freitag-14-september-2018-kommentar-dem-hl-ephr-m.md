@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 14 September 2018 : Kommentar Dem hl. Ephräm'
+date: 2018-09-13T17:45:00.001+02:00
+draft: false
+url: /2018/09/freitag-14-september-2018-kommentar-dem.html
+tags: 
+- MEDITATIO
+---
+
+Nunmehr sind durch das Kreuz die Schatten zerstreut worden und die Wahrheit erhebt sich, wie uns der Apostel Johannes sagt: „Denn was früher war, ist vergangen. \[...\] Seht, ich mache alles neu“ (Offb 21,4-5). Der Tod wurde entblößt, die Hölle gibt ihre Gefangenen preis, der Mensch ist frei, der Herr herrscht, die Schöpfung ist von Freude erfüllt. Das Kreuz triumphiert und alle Nationen, Stämme, Sprachen und Völker (vgl. Offb 7,9) kommen, um es zu verehren. Mit dem seligen Paulus, der ausruft: „Ich aber will mich allein des Kreuzes Jesu Christi, unseres Herrn, rühmen“ (Gal 6,14), finden wir in ihm unsere Freude. Das Kreuz erleuchtet das gesamte Universum, es vertreibt die Finsternis und versammelt die Völker des Westens und des Ostens, des Nordens und des Meeres in einer einzigen Kirche, in dem einen Glauben, der einen Taufe in der Liebe. Es erhebt sich im Mittelpunkt der Welt, aufgerichtet auf Kalvaria. Mit dem Kreuz als Waffe ziehen die Apostel aus, um zu predigen und das ganze Universum zu seiner Anbetung zusammenzuführen, alle feindlichen Mächte zu Füßen. Im Kreuz haben die Martyrer den Glauben freimütig bekannt und die Verschlagenheit der Tyrannen nicht gefürchtet. Die Mönche haben es auf sich genommen und mit unermesslicher Freude die Einsamkeit zur Wohnstatt erwählt. Wenn Christus wiederkommt, wird dieses Kreuz zuerst am Himmel erscheinen als kostbares, lebenspendendes, wahrhaftiges und heiliges Zepter des großen Königs: „Danach“, so sagt der Herr, „wird das Zeichen des Menschensohnes am Himmel erscheinen“ (Mt 24,30). Wir werden es sehen, von Engeln begleitet, die Erde erleuchtend von einem Ende des Universums bis zum anderen, heller als die Sonne den Tag des Herrn ankündigend.

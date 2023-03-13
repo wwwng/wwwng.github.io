@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 24 November 2020 : Kommentar Hl. Cyrill von Jerusalem'
+date: 2020-11-23T17:47:00.001+01:00
+draft: false
+url: /2020/11/dienstag-24-november-2020-kommentar-hl.html
+tags: 
+- EVANGELIUM
+---
+
+Unser Herr Jesus Christus wird vom Himmel kommen. Am Ende dieser Welt, am Jüngsten Tage, wird er mit Herrlichkeit kommen. Diese Welt nimmt ein Ende; erneuert wird diese erschaffene Welt. Da nämlich Verderben, Diebstahl, Ehebruch, Sünden aller Art sich über die Erde ergossen haben und Blut über Blut die Welt getränkt hat, vergeht unsere Welt, damit dieses wunderbare Gebäude nicht mit Sünden erfüllt bleibe und damit die Welt schöner wieder erstehe. Willst du dafür Schriftbeweise haben? Höre das Wort des Jesaja: „Wie eine Buchrolle wird der Himmel zusammengerollt werden, und alle Sterne werden herabfallen wie die Blätter vom Weinstock, wie Blätter fallen vom Feigenbaum“ (vgl. Jes 34,4). Das Evangelium sagt: „Die Sonne wird sich verfinstern, und der Mond wird seinen Schein nicht geben, und die Sterne werden vom Himmel fallen“ (vgl. Mt 24,29). Betrüben wir uns nicht, als müssten wir allein sterben! Auch Sterne sterben; doch erstehen sie wieder. Der Herr rollt die Himmel zusammen, nicht um sie zu vernichten, sondern um sie noch schöner erstehen zu lassen. Höre das Wort des Propheten David: „Im Anfang hast du, o Herr, die Erde gegründet, und das Werk deiner Hände sind die Himmel. Sie werden vergehen, du aber bleibst“ (vgl. Ps 101(102),26). Man wird einwenden: „Siehe, deutlich sagt er: sie vergehen!“ Inwiefern er sagt „sie werden vergehen“, soll dir der folgende Vers erklären: „Alle werden altern wie ein Kleid, und wie ein Gewand wirst du sie zusammenlegen. Verändert werden sie werden (vgl. Ps 101(102),27). \[…\] Höre das andere Wort des Herrn: „Himmel und Erde werden vergehen, aber meine Worte werden nicht vergehen“ (Mt 24,35). Was erschaffen ist, kommt nämlich den Worten des Herrn nicht gleich.

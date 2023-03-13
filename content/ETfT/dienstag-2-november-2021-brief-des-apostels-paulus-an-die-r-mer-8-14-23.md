@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 2 November 2021 : Brief des Apostels Paulus an die Römer 8,14-23.'
+date: 2021-11-02T06:27:00.003+01:00
+draft: false
+url: /2021/11/dienstag-2-november-2021-brief-des.html
+---
+
+Brüder! Alle, die sich vom Geist Gottes leiten lassen, sind Söhne Gottes. Denn ihr habt nicht einen Geist empfangen, der euch zu Sklaven macht, so dass ihr euch immer noch fürchten müsstet, sondern ihr habt den Geist empfangen, der euch zu Söhnen macht, den Geist, in dem wir rufen: Abba, Vater! So bezeugt der Geist selber unserem Geist, dass wir Kinder Gottes sind. Sind wir aber Kinder, dann auch Erben; wir sind Erben Gottes und sind Miterben Christi, wenn wir mit ihm leiden, um mit ihm auch verherrlicht zu werden. Ich bin überzeugt, dass die Leiden der gegenwärtigen Zeit nichts bedeuten im Vergleich zu der Herrlichkeit, die an uns offenbar werden soll. Denn die ganze Schöpfung wartet sehnsüchtig auf das Offenbarwerden der Söhne Gottes. Die Schöpfung ist der Vergänglichkeit unterworfen, nicht aus eigenem Willen, sondern durch den, der sie unterworfen hat; aber zugleich gab er ihr Hoffnung: Auch die Schöpfung soll von der Sklaverei und Verlorenheit befreit werden zur Freiheit und Herrlichkeit der Kinder Gottes. Denn wir wissen, dass die gesamte Schöpfung bis zum heutigen Tag seufzt und in Geburtswehen liegt. Aber auch wir, obwohl wir als Erstlingsgabe den Geist haben, seufzen in unserem Herzen und warten darauf, dass wir mit der Erlösung unseres Leibes als Söhne offenbar werden.

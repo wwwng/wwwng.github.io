@@ -1,0 +1,8 @@
+---
+title: 'Sonntag, 18. Dezember : Hl. Aelred von Rievaulx'
+date: 2022-12-18T08:23:00.001+01:00
+draft: false
+url: /2022/12/sonntag-18-dezember-hl-aelred-von.html
+---
+
+„Immanuel – das heißt übersetzt: Gott mit uns.“ Ja, Gott mit uns! Bis dahin war er „Gott über uns“, „Gott, uns gegenüber“, doch heute ist er der „Immanuel“. Heute ist er der Gott mit uns in unserer Natur, mit uns in seiner Gnade. Er ist mit uns in unserer Schwachheit, mit uns in seiner Güte. Er ist mit uns in unserem Elend, mit uns in seiner Barmherzigkeit. Er ist mit uns durch die Liebe, mit uns durch Familienbande, mit uns durch Zärtlichkeit, mit uns durch sein Mitleiden. Gott mit uns! Ihr Kinder Adams, ihr konntet nicht in den Himmel hinaufsteigen, um mit Gott zu sein (vgl. Dtn 30,12). Gott steigt vom Himmel herab, um der Immanuel, Gott mit uns, zu sein. Er kommt zu uns, um der Immanuel, Gott mit uns, zu sein –, und wir, wir vernachlässigen es, zu Gott zu kommen, um mit ihm zu sein! „Ihr Mächtigen, wie lange noch schmäht ihr meine Ehre, warum liebt ihr den Schein und sinnt auf Lügen?“ (Ps 4,3). Seht, hier kommt die Wahrheit: „Warum liebt ihr den Schein?“ Seht, hier kommt das wahre und unveränderliche Wort: „Warum sinnt ihr auf Lügen“? Seht, Gott mit uns. Könnte er denn noch mehr mit mir sein? Klein wie ich, schwach wie ich, nackt wie ich, arm wie ich; in allem wurde er mir gleich, nahm, was mein war, und gab, was sein war. Ich lag da wie tot, ohne Stimme, ohne Sinne; selbst das Licht meiner Augen war mir genommen. Heute ist dieser so große Mensch herabgestiegen, „dieser Prophet, mächtig in Wort und Tat“ (vgl. Lk 24,19). „Er legte seinen Mund auf meinen Mund, seine Hände auf meine Hände“ (vgl. 2 Kön 4,34) und wurde Immanuel, Gott mit uns!

@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 17. November : Hl. Paul VI.'
+date: 2022-11-17T08:23:00.001+01:00
+draft: false
+url: /2022/11/donnerstag-17-november-hl-paul-vi.html
+---
+
+Es ist aber nur allzu deutlich, dass Rom nicht das Ziel unserer Pilgerfahrt in der Zeit darstellt. Keine irdische Heilige Stadt kann ein solches Ziel sein. Dieses liegt jenseits dieser Welt, in der Tiefe des Geheimnisses Gottes verborgen, das für uns noch nicht sichtbar ist. Denn wir wandeln noch im Glauben, nicht im klaren Schauen, und was wir sein werden, ist noch nicht offenbar. Das neue Jerusalem, von dem wir schon jetzt Bürger und Kinder sind (vgl. Gal 4,26), ist jenes in der Höhe, das von Gott herniedersteigt. Von dieser einzigen endgültigen Stadt haben wir noch nicht den Glanz geschaut, es sei denn nur wie in einem Spiegel auf undeutliche Weise, indem wir am prophetischen Wort festhalten. Wir sind aber schon jetzt deren Bürger oder sind dazu eingeladen, es zu werden. Jede geistliche Pilgerfahrt erhält von dieser letzten Bestimmung her ihren inneren Sinn. In solcher Weise ist das Jerusalem von den Psalmisten gepriesen worden. Jesus selbst und Maria, seine Mutter, haben auf Erden, als sie nach Jerusalem hinaufgingen, die Gesänge von Sion gesungen als der „Krone der Schönheit, Wonne der ganzen Erde“ (vgl. Ps 50,2; 48,3). Es ist aber nunmehr Christus, von dem das himmlische Jerusalem seine Anziehungskraft erhält. Er ist es, zu dem wir auf unserem inneren Weg unterwegs sind.

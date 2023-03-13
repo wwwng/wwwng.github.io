@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 3. November : Aus dem Heiligen Evangelium nach Lukas - Lk 15,1-10.'
+date: 2022-11-03T07:43:00.001+01:00
+draft: false
+url: /2022/11/donnerstag-3-november-aus-dem-heiligen.html
+---
+
+In jener Zeit kamen alle Zöllner und Sünder zu Jesus, um ihn zu hören. Die Pharisäer und die Schriftgelehrten empörten sich darüber und sagten: Er gibt sich mit Sündern ab und isst sogar mit ihnen. Da erzählte er ihnen ein Gleichnis und sagte: Wenn einer von euch hundert Schafe hat und eins davon verliert, lässt er dann nicht die neunundneunzig in der Wüste zurück und geht dem verlorenen nach, bis er es findet? Und wenn er es gefunden hat, nimmt er es voll Freude auf die Schultern, und wenn er nach Hause kommt, ruft er die Freunde und Nachbarn zusammen und sagt zu ihnen: Freut euch mit mir, denn ich habe mein Schaf wiedergefunden, das verloren war! Ich sage euch: Ebenso wird im Himmel mehr Freude herrschen über einen einzigen Sünder, der umkehrt, als über neunundneunzig Gerechte, die keine Umkehr nötig haben. Oder wenn eine Frau zehn Drachmen hat und eine davon verliert, zündet sie dann nicht eine Lampe an, fegt das ganze Haus und sucht unermüdlich, bis sie das Geldstück findet? Und wenn sie es gefunden hat, ruft sie ihre Freundinnen und Nachbarinnen zusammen und sagt: Freut euch mit mir; ich habe die Drachme wiedergefunden, die ich verloren hatte. Ich sage euch: Ebenso herrscht auch bei den Engeln Gottes Freude über einen einzigen Sünder, der umkehrt.

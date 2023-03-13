@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 24. November : Nachfolge Christi'
+date: 2022-11-24T08:23:00.001+01:00
+draft: false
+url: /2022/11/donnerstag-24-november-nachfolge-christi.html
+---
+
+„Das Reich Gottes ist in euch“, spricht der Herr (Lk 17,20 f.). Kehre dich aus ganzem Herzen zum Herrn, lasse diese elende Welt, und deine Seele wird Ruhe finden. Verschmähe, was äußerlich ist, gib dich dem Inneren hin, und du wirst sehen, das Reich Gottes wächst in dir. „Das Reich Gottes ist Friede und Freude im Heiligen Geiste“ (Röm 14,17) und kein Geschenk an die Gottlosen. Christus kommt zu dir und reicht dir seinen Trost, wenn du ihm dein Inneres zu einer würdigen Wohnung bereitest. All sein Ruhm und Glanz stammt von innen, das Innere ist seine Lust. Er weilt gern bei unserem inneren Menschen, Zwiesprache zu pflegen, zu trösten, zu befriedigen und wundersam vertraut zu sein. Eia, gläubige Seele, richte diesem Gemahl dein Herz, so oft er zu dir kommen und in dir wohnen will. Er spricht: „Wenn einer mich liebt, wird er mein Wort halten. Wir werden zu ihm kommen und Wohnung bei ihm nehmen“ (Joh 14,23). \[…\] Ein innerlicher Mensch sammelt sich schnell, denn er vergibt sich nie ganz an Äußeres. Körperliche Mühe oder die augenblicklich notwendige Arbeit schaden ihm nicht, er schickt sich in die Dinge, wie sie kommen. Wer sein Inneres wohl in Ordnung hält, den kümmert das wunderliche und verdrehte Gehabe der Menschen nicht. \[…\] Wenn du dem äußeren Trost Abschied gäbest, könntest du das Himmlische schauen und häufig innerlich frohlocken.

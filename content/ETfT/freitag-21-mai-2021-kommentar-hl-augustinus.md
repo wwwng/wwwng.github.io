@@ -1,0 +1,8 @@
+---
+title: 'Freitag, 21 Mai 2021 : Kommentar Hl. Augustinus'
+date: 2021-05-21T10:15:00.001+02:00
+draft: false
+url: /2021/05/freitag-21-mai-2021-kommentar-hl.html
+---
+
+Nun erscheint der Herr nach seiner Auferstehung wiederum den Jüngern. Er befragt den Apostel Petrus und drängt diesen, seine Liebe zu bekennen, nachdem er ihn dreimal aus Angst verleugnet hatte. Christus ist auferstanden dem Fleische nach und Petrus dem Geiste nach. Wie Christus im Leiden gestorben ist, so ist Petrus in der Verleugnung gestorben. Christus, der Herr, ist auferstanden von den Toten, und er hat Petrus auferweckt durch die Liebe, die dieser ihm entgegenbrachte. Er hinterfragte die Liebe dessen, der sich nun offen \[zu ihm\] bekannte, und er vertraute ihm seine Herde an. Was hat Petrus denn Christus eingebracht, dadurch dass er Christus liebte? Wenn Christus dich liebt, ist das Gewinn für dich, nicht für Christus. Wenn du Christus liebst, dann ist das wiederum Gewinn für dich, nicht für ihn. Doch der Herr Christus, der uns zeigen will, wie die Menschen ihre Liebe zu ihm unter Beweis stellen sollen, offenbart es uns deutlich: indem sie seine Schafe lieben. „Simon, Sohn des Johannes, liebst du mich?“ – „Ich liebe dich.“ – „Weide meine Schafe.“ Und das geschieht einmal, zweimal, dreimal. Petrus spricht von nichts anderem als von seiner Liebe. Der Herr bittet ihn um nichts anderes, als ihn zu lieben; er vertraut ihm nichts anderes an, als seine Schafe. Lasst uns also einander lieben, und wir werden Christus lieben.

@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 21 Oktober 2020 : Kommentar Hl. Johannes Chrysostomus'
+date: 2020-10-20T18:13:00.001+02:00
+draft: false
+url: /2020/10/mittwoch-21-oktober-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+„Denn der Menschensohn kommt zu einer Stunde, in der ihr es nicht erwartet“ (Mt 24,44). Darum befiehlt Jesus seinen Jüngern zu wachen und stets bereit zu sein, deshalb sagt er, wenn ihr es nicht erwartet, wird er kommen, weil er will, dass sie allezeit kampfbereit und um Tugend bemüht seien. Er will sagen: Wüssten die Leute, wann sie sterben müssen, dann würden sie sicher zu jener Stunde Eifer zeigen. Damit sie nun nicht bloß an jenem Tag eifrig wären, sondern jederzeit, so offenbart er ihnen weder im Allgemeinen noch im Besonderen den Tag, weil er will, dass sie denselben immer erwarten. Ebendarum hat er auch das Lebensende eines jeden einzelnen im Dunkel gelassen \[…\] Deshalb verlangt der Herr von den Knechten zwei Dinge: Klugheit und Treue. Die Sünde hat nämlich ihre Quelle in der Einsichtslosigkeit. Treu heißt er ihn, weil er vom Eigentum des Herrn nichts veruntreut oder zweck- und planlos verwendet hatte, und klug, weil er die anvertrauten Güter in gebührender Weise zu verwalten wusste. Beides ist ja auch notwendig \[…\] Siehst du, welche Folgen es hatte, dass jener Tag unbekannt blieb? „Der Herr lässt sich Zeit“, sagt der Knecht; dem möchte ich entgegnen: Nicht weil der Tag unbekannt war, handelte der Knecht so, sondern weil er selbst nichtsnutzig war. Warum kam denn der kluge und getreue Knecht nicht auf solche Gedanken? Wie, Elender, wenn der Herr auch säumt, erwartest du überhaupt, dass er kommt? Weshalb kümmerst du dich dann nicht darum? Wir lernen also daraus, dass der Herr auch nicht säumt. Der böse Knecht meinte es bloß so, aber der Herr hatte dies nicht gesagt \[…\].

@@ -1,0 +1,10 @@
+---
+title: 'Montag, 12 November 2018 : Kommentar Papst Franziskus'
+date: 2018-11-11T17:44:00.001+01:00
+draft: false
+url: /2018/11/montag-12-november-2018-kommentar-papst.html
+tags: 
+- MEDITATIO
+---
+
+Heute möchte ich einige Katechesen über das Geheimnis der Kirche beginnen, ein Geheimnis, das wir alle leben und dessen Teil wir sind. Ich möchte das mit Worten tun, die in den Texten des Zweiten Vatikanischen Ökumenischen Konzils enthalten sind. Heute das erste: die Kirche als Familie Gottes. \[...\] Schon das Wort »Kirche«, vom griechischen »ekklesia «, bedeutet »Versammlung«: Gott ruft uns zusammen, er spornt uns an, aus dem Individualismus heraus zu kommen, aus der Tendenz, sich in sich selbst zu verschließen, und ruft uns, Teil seiner Familie zu sein. \[...\] Auch heute noch sagen einige: »Christus ja, die Kirche nein.« Wie jene, die sagen: »Ich glaube an Gott, aber nicht an die Priester.« Aber eben gerade die Kirche ist es, die uns Christus bringt und uns zu Gott bringt; die Kirche ist die große Familie der Kinder Gottes. Gewiss hat sie auch menschliche Aspekte. Bei jenen, aus denen sie sich zusammensetzt, Hirten und Gläubigen, gibt es Fehler, Unvollkommenheiten, Sünden – auch der Papst hat sie, und zwar viele –, aber das Schöne ist: Wenn wir merken, dass wir Sünder sind, finden wir die Barmherzigkeit Gottes, der immer vergibt. Vergesst das nicht: Gott vergibt immer und nimmt uns in seiner verzeihenden und barmherzigen Liebe an. Einige sagen, die Sünde ist eine Beleidigung Gottes, aber auch eine Gelegenheit zur Demut, um wahrzunehmen, dass es noch etwas Anderes, etwas Schöneres gibt: die Barmherzigkeit Gottes. Denken wir daran. Wir wollen uns heute fragen: Wie sehr liebe ich die Kirche? Bete ich für sie? Fühle ich mich als Teil der Familie der Kirche? Was tue ich, damit sie eine Gemeinschaft ist, in der jeder sich angenommen und verstanden fühlt, die Barmherzigkeit und die Liebe Gottes spürt, die das Leben erneuert? Der Glaube ist ein Geschenk und ein Akt, der uns persönlich betrifft, aber Gott ruft uns auf, unseren Glauben gemeinsam zu leben, als Familie, als Kirche.

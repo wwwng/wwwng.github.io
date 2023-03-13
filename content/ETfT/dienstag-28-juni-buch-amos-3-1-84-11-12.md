@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 28. Juni : Buch Amos 3,1-8.4,11-12.'
+date: 2022-06-28T07:17:00.001+02:00
+draft: false
+url: /2022/06/dienstag-28-juni-buch-amos-31-8411-12.html
+---
+
+Hört dieses Wort, das der Herr gesprochen hat über euch, ihr Söhne Israels, über den ganzen Stamm, den ich aus Ägypten heraufgeführt habe. Nur euch habe ich erwählt aus allen Stämmen der Erde; darum ziehe ich euch zur Rechenschaft für alle eure Vergehen. Gehen zwei den gleichen Weg, ohne dass sie sich verabredet haben? Brüllt der Löwe im Wald und er hat keine Beute? Gibt der junge Löwe Laut in seinem Versteck, ohne dass er einen Fang getan hat? Fällt ein Vogel zur Erde, wenn niemand nach ihm geworfen hat? Springt die Klappfalle vom Boden auf, wenn sie nichts gefangen hat? Bläst in der Stadt jemand ins Horn, ohne dass das Volk erschrickt? Geschieht ein Unglück in einer Stadt, ohne dass der Herr es bewirkt hat? Nichts tut Gott, der Herr, ohne dass er seinen Knechten, den Propheten, zuvor seinen Ratschluss offenbart hat. Der Löwe brüllt - wer fürchtet sich nicht? Gott, der Herr, spricht - wer wird da nicht zum Propheten? Ich brachte über euch eine gewaltige Zerstörung wie die, die Gott einst über Sodom und Gomorra verhängte; ihr wart wie ein Holzscheit, das man aus dem Feuer herausholt. Und dennoch seid ihr nicht umgekehrt zu mir - Spruch des Herrn. Darum will ich dir all das antun, Israel, und weil ich dir all das antun werde, mach dich bereit, deinem Gott gegenüberzutreten.

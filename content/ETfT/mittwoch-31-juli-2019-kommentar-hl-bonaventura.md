@@ -1,0 +1,10 @@
+---
+title: 'Mittwoch, 31 Juli 2019 : Kommentar Hl. Bonaventura'
+date: 2019-07-30T17:46:00.001+02:00
+draft: false
+url: /2019/07/mittwoch-31-juli-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Christus ist der Schatz aller Gnade, denn er ist „voll Gnade und Wahrheit“ (Joh 1,14), und Engel und Menschen schöpfen aus seiner Fülle. Er besitzt die Quelle der Fülle selbst und „öffnet er seine Hand, so erfüllt er mit Segen jegliches Geschöpf“ (vgl. Ps 144(145),16), das mit Vernunft begabt ist. Aber dieser Gnadenschatz ist verborgen unter dem Schleier des Altarsakraments. „Ist es mit dem Himmelreich nicht wie mit einem Schatz, der in einem Acker vergraben ist“? (vgl. Mt 13,44). Und dieser Acker, ist das nicht hier das Sakrament des Leibes Christi \[…\]? In diesem Acker besitzen wir einen verborgenen Schatz, weil dort alle Arten von Gnaden verborgen sind. „Ein Mann entdeckte ihn \[…\]. Und in seiner Freude verkaufte er alles, was er besaß, und kaufte den Acker“ (Mt 13,44). Wer den Reichtum dieses Sakraments kennt, verzichtet bereitwillig auf jede andere Tätigkeit, um sich in aller Freiheit dem Sakrament hinzugeben in seinem Tun und in seiner Andacht. Er weiß, dass er damit den Besitz des ewigen Lebens gewinnt, gemäß dem Wort des Herrn: „Wer mein Fleisch isst und mein Blut trinkt, hat das ewige Leben“ (vgl. Joh 6,55). Und der Schatz aller Herrlichkeit ist in Christus. Alle Herrlichkeit der Engel und der Menschen, die gerettet werden, bis zum Tag des Gerichts, ziehen diese – sei es die Herrlichkeit des Leibes oder der Seele –, aus diesem Schatz. Er \[Christus\] ist es ja, dessen Schätze unermesslich groß sind, und der die unbegreiflichen Grenzen seiner Herrlichkeit festgesetzt hat. Daher gebietet er uns, hinzueilen zu diesem Schatz: „Sammelt euch Schätze im Himmel“ (vgl. Mt 6,20). Dieser Schatz liegt unter dem Schleier von Brot und Wein verborgen, damit du das Verdienst des Glaubens hast. Gelobt sei der Herr für seine Erbarmungen, weil er uns im Voraus seinen Leib unter dem Bild des himmlischen Schatzes dargestellt hat.

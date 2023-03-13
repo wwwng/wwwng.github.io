@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 27 Dezember 2019 : Kommentar Hl. Theresia Benedicta a Cruce [Edith Stein]'
+date: 2019-12-26T17:46:00.001+01:00
+draft: false
+url: /2019/12/freitag-27-dezember-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+An seiner Krippe will der Heiland auch den nicht vermissen, der ihm im Leben besonders teuer war: den Jünger, den Jesus liebhatte (vgl. Joh 13,23). Er ist uns vertraut als Bild jungfräulicher Reinheit. Weil er rein war, hat er dem Herrn wohlgefallen. Er durfte am Herzen Jesu vorher ruhen und dort eingeweiht werden in die Geheimnisse des göttlichen Herzens (vgl. Joh 13,25). Wie der himmlische Vater für seinen Sohn Zeugnis ablegte, als er rief: „Dieser ist mein geliebter Sohn. Ihn sollt ihr hören!“ (vgl. Mk 9,7), so scheint auch das göttliche Kind uns auf den Lieblingsjünger hinzuweisen und zu sagen: kein Weihrauchist mir angenehmer als die liebende Hingabe eines reinen Herzens. Höret auf ihn, der Gott schauen durfte, weil er reinen Herzens war (vgl. Mt 5,8). Niemand hat tiefer hineingeschaut in die verborgenen Abgründe des göttlichen Lebens als er. Darum verkündet er das Geheimnis von der ewigen Geburt des göttlichen Wortes \[…\] Er hat die Kämpfe seines Herrn mitgelebt, wie nur eine bräutlich liebende Seele es vermag. \[…\] Er hat uns die Selbstzeugnisse sorgfältig verwahrt und übermittelt, in denen der Heiland vor Freunden und Feinden seine Gottheit bekannte. \[…\] Durch ihn wissen wir, welcher Anteil am Leben Christi – als den Reben am göttlichen Weinstock – und am Leben des dreifaltigen Gottes uns zugedacht ist. \[…\] Johannes an der Krippe des Herrn – das sagt uns: sehet, was denen beschieden ist, die sich mit reinem Herzen Gott schenken. Die ganze unausschöpfliche Fülle des gott-menschlichen Lebens Jesu wird ihnen als königliche Gegengabe zuteil. Kommet und trinket aus den Quellen lebendigen Wassers, die der Heiland den Dürstenden öffnet und die fortströmen ins ewige Leben (vgl. Joh 7,37; 4,14). Das Wort ist Fleisch geworden und liegt vor uns in der Gestalt eines neugeborenen Kindleins.

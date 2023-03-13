@@ -1,0 +1,10 @@
+---
+title: 'Montag, 17 September 2018 : Kommentar Hl. Augustinus'
+date: 2018-09-16T17:47:00.003+02:00
+draft: false
+url: /2018/09/montag-17-september-2018-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Wie hat der Hauptmann die Gnade erlangt, dass sein Diener gesund wird? „Denn auch ich muss Befehlen gehorchen und ich habe selbst Soldaten unter mir; sage ich nun zu einem: Geh!, so geht er, und zu einem andern: Komm!, so kommt er, und zu meinem Diener: Tu das!, so tut er es. Ich habe Macht über meine Untergebenen, doch bin selbst Untergebener. Wenn also schon ich, der ich gehorchen muss, die Macht habe zu befehlen, was kannst dann Du, dem alle Mächte gehorchen müssen?“ Dieser Mann gehört zu einem heidnischen Volk, denn die jüdische Nation war damals von den Armeen des römischen Reichs besetzt. In Judäa also hat er den Soldaten als Hauptmann Befehle erteilt \[...\] Unser Herr aber, obwohl er mitten im Volk von Judäa stand, tut kund, dass die Kirche sich über die ganze Erde ausbreiten wird, wohin auch immer er seine Apostel senden würde (vgl. Mt 8,11). Und tatsächlich haben die Heiden geglaubt, ohne ihn gesehen zu haben. \[...\] Der Herr ist nicht dem Leibe nach ins Haus des Hauptmanns eingetreten - und obwohl er dem Körper nach abwesend, seiner Königsmacht nach jedoch anwesend war, hat er dieses Haus und seinen Glauben \[den des Hauptmanns nämlich\] geheilt. Und so war der Herr dem Leibe nach nur inmitten des Volkes von Judäa gegenwärtig; die anderen Völker haben nicht gesehen, wie er aus einer Jungfrau geboren wurde, wie er litt, wie er wanderte, wie er den menschlichen Gegebenheiten unterworfen war, noch haben sie gesehen, wie er göttliche Wunder tat. Nichts dergleichen hat er unter den Heiden getan, und doch hat sich in ihrer Mitte erfüllt, was gesagt wurde auf sie hin: „Ein Volk, das ich früher nicht kannte, wird mir dienen.“ Wie konnte es ihm dienen, wenn es ihn nicht kannte? Der Psalm fährt fort: „Sobald ihr Ohr hört, sind sie mir gehorsam“ (vgl. Ps 17(18),44-45).

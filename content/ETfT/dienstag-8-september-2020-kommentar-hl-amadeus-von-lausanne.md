@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 8 September 2020 : Kommentar Hl. Amadeus von Lausanne'
+date: 2020-09-07T18:13:00.001+02:00
+draft: false
+url: /2020/09/dienstag-8-september-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Sie wurde nach einem Plan der göttlichen Vorsehung Maria, d. h. Stern des Meeres genannt, um schon durch ihren Namen zu verkünden, was sie in der Realität noch viel deutlicher offenbart. \[…\] Ebenso wie in Schönheit, ist sie auch in Kraft gekleidet und hat sich umgürtet, um mit einer Handbewegung die gewaltigen Strudel des Meeres zu besänftigen. Jene, die auf dem Meer der gegenwärtigen Welt unterwegs sind und voll Vertrauen zu ihr rufen, entreißt sie dem Toben des Sturmes und dem Wüten der Orkane und führt sie im Triumphzug an das Ufer der seligen Heimat. Es ist unmöglich zu sagen, meine Teuersten, wie oft die einen an die schroffsten Felsen angeschlagen und in Gefahr gewesen wären, unterzugehen, und die anderen auf den schlimmsten Riffen auf Grund gelaufen und nie mehr zurückgekehrt wären, \[…\] wenn nicht der Stern des Meeres, Maria, die immerwährende Jungfrau, mit ihrer überaus mächtigen Hilfe dem entgegengewirkt und sich der Ihren angenommen hätte – die Ruder waren bereits gebrochen und das Boot zerschlagen, aller menschlichen Hilfe beraubt –, um sie unter ihrer himmlischen Führung in den Hafen des inneren Friedens zu führen. So freut sie sich über immer neue Triumphe, über die neue Befreiung der Verurteilten und über das neue Wachstum der Völker und jubelt sich im Herrn. \[…\] Sie strahlt und ragt heraus durch ihre zweifache Liebe: Einerseits ist sie überaus glühend in Gott verankert, dem sie, eines Geistes mit ihm, anhängt; andererseits zieht sie sanft die Herzen der Erwählten an, tröstet sie und teilt ihnen die vorzüglichen Gaben zu, die aus der freigebigen Fülle ihres Sohnes kommen.

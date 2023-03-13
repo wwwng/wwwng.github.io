@@ -1,0 +1,8 @@
+---
+title: 'Donnerstag, 16. Februar : Römische Liturgie'
+date: 2023-02-16T08:23:00.001+01:00
+draft: false
+url: /2023/02/donnerstag-16-februar-romische-liturgie.html
+---
+
+Preise, Zunge, und verkünde den erhabnen Waffengang; auf das Kreuz, das Siegeszeichen, singe den Triumphgesang. Singe, wie der Welt Erlöser starb und dennoch Sieg errang. Denn verblendet aß sich Adam einst vom Baume das Gericht; doch der Schöpfer voll Erbarmen wollte sein Verderben nicht und hat selbst den Baum erkoren, der den Fluch des Baumes bricht. Gottes Plan, uns zu erlösen, hat verlangt die Opfertat, und des Vaters ew’ge Weisheit macht’ zuschanden den Verrat und verlieh barmherzig Heilung, wo der Feind verwundet hat. So ward in der Zeiten Fülle uns gesandt des Vaters Sohn, er, der Schöpfer aller Welten, stieg herab vom Himmelsthron und ward Fleisch und ward geboren und ward einer Jungfrau Sohn. Als nach dreißig Erdenjahren für den Herrn die Stunde kam, dass er unsres Heiles wegen Tod und Leiden auf sich nahm, wurde er erhöht am Kreuze, dargebracht als Gotteslamm. Seht den Essig, seht die Galle. Dornen, Nägel, Speer voll Wut seinen zarten Leib durchbohren, Wasser strömt hervor und Blut; Erde, Meere, Sterne, Welten werden rein durch solche Flut. Lob und Ruhm sei ohne Ende Gott, dem höchsten Herrn, geweiht. Preis dem Vater und dem Sohne und dem Geist der Heiligkeit. Einen Gott in drei Personen lobe alle Welt und Zeit. Amen.

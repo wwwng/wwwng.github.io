@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 6 Mai 2021 : Kommentar Hl. Alphons-Maria von Liguori'
+date: 2021-05-05T18:13:00.001+02:00
+draft: false
+url: /2021/05/donnerstag-6-mai-2021-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Glauben Sie fest daran, dass es auf der Welt niemanden gibt, weder Freund noch Bruder, weder Vater noch Mutter, weder Ehegatte noch Verlobter, der Sie mehr liebt als dein Gott dich liebt. Die göttliche Gnade ist dieser kostbare Schatz, dieser unerschöpfliche Schatz, von dem der Weise spricht, der uns, sobald wir davon Gebrauch machen, zu Teilhabern an der Freundschaft mit Gott macht (vgl. Weish 7,14). Vor diesem Gott waren wir nur mickrige Geschöpfe, arme Diener; und siehe da, nun werden wir zu Freunden, zu liebsten Freunden unseres Schöpfers selbst. Damit wir mehr Zutrauen zu ihm haben, hat er sich selbst entäußert (vgl. Phil 2,7), er hat sich sozusagen erniedrigt bis zur Menschwerdung, um vertraulich mit den Menschen sprechen zu können (vgl. Bar 3,38). Doch nicht genug damit: Er wurde ein Kind; er wurde arm; er ließ sich sogar vor einem ganzen Volk durch ein Gerichtsurteil töten, an einem Kreuz. Mehr noch, er ging so weit, selbst die Gestalt des Brotes anzunehmen, um sich zu unserem täglichen Begleiter zu machen und sich in inniger Einheit mit jedem von uns zu verbinden. So sagt er: „Wer mein Fleisch isst und mein Blut trinkt, der bleibt in mir, und ich bleibe in ihm“ (Joh 6,56). Kurzum, es scheint, als ob er niemanden außer Ihnen liebt, so sehr liebt er Sie. Er ist es also, den Sie lieben müssen und keinen anderen. Von ihm können und sollen Sie sagen: „Der Geliebte ist mein, und ich bin sein“ (Hld 2,16); mein Gott hat sich vorbehaltlos hingegeben, und vorbehaltlos gebe ich mich ihm hin; ich wurde von ihm erwählt als Objekt seiner Zärtlichkeit; und er, ausgezeichnet unter Tausenden, unter allen, er ist weiß und rot (vgl. Hld 5,10), so liebenswert und so liebevoll, er ist der Erwählte meines Herzens, der einzige, den ich lieben will.

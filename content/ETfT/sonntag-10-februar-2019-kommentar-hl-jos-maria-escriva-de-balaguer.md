@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 10 Februar 2019 : Kommentar Hl. Josémaria Escriva de Balaguer'
+date: 2019-02-09T17:47:00.001+01:00
+draft: false
+url: /2019/02/sonntag-10-februar-2019-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Als Jesus mit seinen Jüngern auf das Meer hinausfuhr, dachte er nicht nur an dieses Fischen. Deshalb \[...\] antwortet er Petrus: „Fürchte dich nicht; von nun an wirst du Menschen fischen.“ Und auch bei diesem neuen Fischfang wird die göttliche Großzügigkeit nicht fehlen: Die Apostel werden zu Instrumenten für große Wunder, ihrer persönlichen Schwäche zum Trotz. Wenn wir jeden Tag kämpfen, um zur Heiligkeit zu gelangen in unserem gewöhnlichen Leben, ein jeder an seinem Platz inmitten der Welt und in seinem Beruf, dann wage ich zu behaupten, dass der Herr auch aus uns Instrumente machen wird, die fähig sind, Wunder zu wirken, und zwar noch außergewöhnlichere, wenn nötig. Wir werden den Blinden das Augenlicht geben. Wer könnte nicht tausend Beispiele dafür aufzählen, wie ein fast von Geburt an Blinder wieder sehen kann und den vollen Glanz des Lichtes Christi empfängt? Ein anderer war taub und ein anderer stumm, sie konnten kein einziges Wort als Kinder Gottes hören oder reden \[...\]: nun hören und reden sie als wahre Menschen \[...\] „Im Namen Jesu“ geben die Apostel einem Kranken, der keiner nützlichen Handlung fähig ist, seine Kräfte wieder \[...\] „Im Namen des Herrn, steh auf und geh!“ (vgl. Apg 3,6). Ein anderer Mensch, der gestorben war und schon Verwesungsgeruch verbreitete, hörte die Stimme Gottes, wie beim Wunder an dem Sohn der Witwe von Naim: „Junger Mann, ich sage dir, steh auf“ (vgl. Lk 7,14; vgl. Apg 9,40). Wir werden Wunder wirken wie Christus, Wunder, wie die ersten Apostel. Diese Wunder sind vielleicht Wirklichkeit geworden in dir, in mir: vielleicht waren wir blind oder taub oder lahm oder rochen nach Tod, als das Wort Gottes uns unserer Niedergebeugtheit entriss. Wenn wir Christus lieben, wenn wir ihm im Guten folgen, wenn er allein es ist, den wir suchen und nicht uns selbst, können wir in seinem Namen umsonst weitergeben, was wir umsonst empfangen haben.

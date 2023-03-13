@@ -1,0 +1,8 @@
+---
+title: 'Dienstag, 20. September : Isaak von Stella'
+date: 2022-09-20T09:23:00.001+02:00
+draft: false
+url: /2022/09/dienstag-20-september-isaak-von-stella.html
+---
+
+Die Jungfrau Maria nimmt zu Recht den ersten Platz in der Versammlung der Gerechten ein, sie, die den Ersten von allen wirklich geboren hat. Christus ist tatsächlich „der Erstgeborene von vielen Brüdern“ (Röm 8,29). \[…\] Was zu Recht in den göttlich inspirierten Schriften über diese jungfräuliche Mutter, nämlich die Kirche, im Allgemeinen gesagt wird, trifft im Besonderen auf die Jungfrau Maria zu; und was im Besonderen von der jungfräulichen Mutter, die Maria ist, gesagt wird, das wird im Allgemeinen von der jungfräulichen Mutter Kirche verstanden. Wenn ein Text von der einen oder der anderen spricht, kann das Gesagte fast unterschiedslos auf die eine wie auf die andere angewendet werden. Jede gläubige Seele ist auf ihre Weise auch Braut des Wortes Gottes, Mutter, Tochter und Schwester Christi, jungfräulich und fruchtbar zugleich. Die Weisheit Gottes selbst, das Wort des Vaters, bezeichnet gleichzeitig die Kirche im umfassenden Sinn, Maria in einem ganz besonderen Sinn, und jede gläubige Seele im Einzelnen. \[…\] Die Schrift sagt: „Ich fasse Wurzel im Erbbesitz des Herrn“ (vgl. Sir 24,12). Der Erbbesitz des Herrn ist die Kirche im Allgemeinen, Maria im Besonderen, und jede gläubige Seele im Einzelnen. \[…\] Im Schoße Mariens wohnte Christus neun Monate lang, im Glauben der Kirche wird er bis zum Ende dieser Welt wohnen und in der Erkenntnis und Liebe der Seele des Gläubigen bis in alle Ewigkeit.

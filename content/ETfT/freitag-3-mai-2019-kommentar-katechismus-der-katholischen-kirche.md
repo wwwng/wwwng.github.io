@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 3 Mai 2019 : Kommentar Katechismus der Katholischen Kirche'
+date: 2019-05-02T17:45:00.001+02:00
+draft: false
+url: /2019/05/freitag-3-mai-2019-kommentar.html
+tags: 
+- EVANGELIUM
+---
+
+Jesus ist der vom Vater Gesandte. Gleich zu Beginn seines Wirkens „rief er die zu sich, die er erwählt hatte …‚ und er setzte zwölf ein, die er bei sich haben und die er dann aussenden wollte, damit sie predigten“ (Mk 3,13–14). Folglich sind sie seine „Gesandten“ \[griechisch „apostoloi“\]. In ihnen setzt er seine eigene Sendung fort: „Wie mich der Vater gesandt hat, so sende ich euch“ (Joh 20,21; vgl. Joh 13,20; vgl. Joh 17,18). Der Dienst der Apostel führt die Sendung Christi weiter: „Wer euch aufnimmt, der nimmt mich auf“, sagt er zu den Zwölfen (Mt 10,40; vgl. Lk 10,16). Jesus bezieht die Apostel in die vom Vater erhaltene Sendung ein. Wie der Sohn „nichts von sich aus tun“ kann (Joh 5,19.30), sondern alles vom Vater erhält, der ihn gesandt hat, so können die von Jesus Gesandten nichts tun ohne ihn (vgl. Joh 15,5), von dem sie den Missionsauftrag erhalten und die Kraft, ihn zu erfüllen. Die Apostel Christi wissen somit, dass sie von Gott bevollmächtigt sind als „Diener des neuen Bundes“ (2 Kor 3,6), „Gottes Diener“ (2 Kor 6,4), „Gesandte an Christi Statt“ (2 Kor 5,20), „Diener Christi … und Verwalter von Geheimnissen Gottes“ (1 Kor 4,1). Im Auftrag der Apostel liegt eine unübertragbare Aufgabe: erwählte Zeugen der Auferstehung des Herrn und Fundamente der Kirche zu sein. Gleichzeitig liegt darin aber auch eine übertragbare Aufgabe. Christus hat ihnen versprochen, bis zum Ende der Zeiten bei ihnen zu bleiben (vgl. Mt 28,20). Deshalb wird „jene göttliche Sendung, die von Christus den Aposteln anvertraut worden ist, … bis zum Ende der Welt dauern, da das Evangelium, das von ihnen zu überliefern ist, für alle Zeit für die Kirche Grundlage ihres ganzen Lebens ist. Deshalb haben die Apostel … für die Einsetzung von Nachfolgern Sorge getragen“ (LG 20).

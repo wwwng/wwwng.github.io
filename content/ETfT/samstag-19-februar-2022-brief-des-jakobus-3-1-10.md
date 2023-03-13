@@ -1,0 +1,8 @@
+---
+title: 'Samstag, 19 Februar 2022 : Brief des Jakobus 3,1-10.'
+date: 2022-02-19T06:11:00.001+01:00
+draft: false
+url: /2022/02/samstag-19-februar-2022-brief-des.html
+---
+
+Nicht so viele von euch sollen Lehrer werden, meine Brüder. Ihr wisst, dass wir im Gericht strenger beurteilt werden. Denn wir alle verfehlen uns in vielen Dingen. Wer sich in seinen Worten nicht verfehlt, ist ein vollkommener Mann und kann auch seinen Körper völlig im Zaum halten. Wenn wir den Pferden den Zaum anlegen, damit sie uns gehorchen, lenken wir damit das ganze Tier. Oder denkt an die Schiffe: Sie sind groß und werden von starken Winden getrieben und doch lenkt sie der Steuermann mit einem ganz kleinen Steuer, wohin er will. So ist auch die Zunge nur ein kleines Körperglied und rühmt sich doch großer Dinge. Und wie klein kann ein Feuer sein, das einen großen Wald in Brand steckt. Auch die Zunge ist ein Feuer, eine Welt voll Ungerechtigkeit. Die Zunge ist der Teil, der den ganzen Menschen verdirbt und das Rad des Lebens in Brand setzt; sie selbst aber ist von der Hölle in Brand gesetzt. Denn jede Art von Tieren, auf dem Land und in der Luft, was am Boden kriecht und was im Meer schwimmt, lässt sich zähmen und ist vom Menschen auch gezähmt worden; doch die Zunge kann kein Mensch zähmen, dieses ruhelose Übel, voll von tödlichem Gift. Mit ihr preisen wir den Herrn und Vater und mit ihr verfluchen wir die Menschen, die als Abbild Gottes erschaffen sind. Aus ein und demselben Mund kommen Segen und Fluch. Meine Brüder, so darf es nicht sein.

@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 22 November 2018 : Kommentar Hl. Rafael Arnáiz Barón'
+date: 2018-11-21T17:44:00.003+01:00
+draft: false
+url: /2018/11/donnerstag-22-november-2018-kommentar.html
+tags: 
+- MEDITATIO
+---
+
+Ich schaute aus einem Fenster … Die Sonne ging gerade auf. Ein großer Friede herrschte in der Natur. Alles begann zu erwachen: die Erde, der Himmel, die Vögel. Alles - ganz allmählich - wachte auf, sanft dem Auftrag Gottes entsprechend. Alles gehorchte seinen göttlichen Gesetzen, ohne Klagen und ohne Überstürzung, sanft und friedlich, sowohl das Licht als auch die Finsternis, sowohl der blaue Himmel als auch die harte Erde, bedeckt mit dem Tau der Morgenfrühe. Wie gut ist Gott! – dachte ich. Überall ist Friede, außer im Herzen des Menschen! Behutsam und sanft lehrte mich Gott durch diesen wunderschönen und friedvollen Tagesanbruch den Gehorsam … Ein großer Friede erfüllte meine Seele. Ich dachte daran, dass nur Gott gut ist, dass alles von ihm geordnet ist und dass mir das, was die Menschen tun und sagen, gleichgültig sein soll. Für mich darf es auf der Welt nur eines geben: Gott! Gott, der alles zu meinem Wohl ordnet. Gott, der jeden Morgen die Sonne aufgehen, den Reif vergehen, die Vögel singen und die Wolken des Himmels in tausend sanften Farben erscheinen lässt; Gott, der mir ein Eckchen zum Gebet auf der Erde anbietet, der mir ein stilles Plätzchen schenkt, wo ich das erwarte, worauf ich hoffe. Gott, der so gut zu mir ist, dass er im Schweigen zu meinem Herzen spricht und mich allmählich lehrt - vielleicht unter Tränen, aber immer mit dem Kreuz -, mich von den Geschöpfen zu lösen, die Vollendung nirgendwo anders zu suchen als in ihm. Er zeigt mir Maria und sagt mir: „Sieh hier, das einzig vollkommene Geschöpf. In ihr findest du die Zuneigung und Liebe, die du bei den Menschen nicht antriffst. Worüber beklagst du dich, Bruder Rafael? Liebe mich, leide mit mir, ich bin Jesus!"

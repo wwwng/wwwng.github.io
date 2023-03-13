@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 25 Oktober 2020 : Kommentar Hl. Franziskus von Assisi'
+date: 2020-10-24T18:13:00.001+02:00
+draft: false
+url: /2020/10/sonntag-25-oktober-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+Lasst uns alle aus ganzem Herzen, aus ganzer Seele, aus ganzer Gesinnung, aus aller Kraft und Stärke, mit ganzem Verstand, mit allen Kräften, mit ganzer Anstrengung, mit ganzer Zuneigung, mit unserem ganzen Inneren, mit allen Wünschen und aller Willenskraft Gott den Herrn lieben, der uns allen den ganzen Leib, die ganze Seele und das ganze Leben geschenkt hat und schenkt; der uns erschaffen hat, erlöst hat und uns einzig durch sein Erbarmen retten wird, der uns Elenden und Armseligen, Üblen und Verweslichen, Undankbaren und Bösen alles Gute erwiesen hat und erweist. Nichts anderes wollen wir darum ersehnen, nichts anderes wollen, nichts anderes soll uns gefallen und erfreuen als unser Schöpfer und Erlöser und Retter, der allein wahre Gott, der ist die Fülle des Guten, alles Gute, das gesamte Gut, das wahre und höchste Gut, der allein gut ist, gnädig, milde, süß und freundlich, der allein heilig ist, gerecht, wahr und richtig, der allein gütig, uneigennützig, rein ist, von dem und durch den und in dem alle Vergebung, alle Gnade, alle Herrlichkeit für alle Büßenden und alle Gerechten herkommt, und das Glück für alle Seligen, die sich zusammen im Himmel erfreuen. Nichts also soll uns hindern, nichts trennen, nichts dazwischenkommen. Überall, an jedem Ort, zu jeder Stunde und zu jeder Zeit, täglich und unablässig wollen wir alle wahrhaft und demütig an ihn glauben und an ihm im Herzen festhalten und ihn lieben, ehren, anbeten, ihm dienen, ihn loben und benedeien, verherrlichen und hoch erheben, ihn preisen und ihm Dank erweisen, dem erhabensten und höchsten ewigen Gott, der Dreifaltigkeit und Einheit, dem Vater und dem Sohn und dem Heiligen Geist \[…\].

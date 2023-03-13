@@ -1,0 +1,10 @@
+---
+title: 'Dienstag, 15 Dezember 2020 : Kommentar Sel. Guerricus von Igny'
+date: 2020-12-14T18:13:00.001+01:00
+draft: false
+url: /2020/12/dienstag-15-dezember-2020-kommentar-sel.html
+tags: 
+- MEDITATIO
+---
+
+Es ist eine Freude für mich, Brüder, mit euch die Erinnerung an diesen Weg des Herrn wachzurufen \[…\], für den Jesaia so schöne Worte findet: „In der Wüste \[…\] wird es eine Straße geben; man nennt sie den Heiligen Weg“ (vgl. Jes 35,6–8), weil er die Heiligung der Sünder bedeutet und die Rettung der Verlorenen. \[…\] „Kein Unreiner darf ihn betreten.“ Lieber Jesaja, dann sollen die Unreinen also auf einem anderen Weg gehen? Oh, nein! Vielmehr sollen alle auf diesen Weg kommen, alle sollen auf ihm vorangehen. Vor allem für die Unreinen hat Christus ihn doch angelegt, er, der „gekommen ist, zu suchen und zu retten, was verloren war“ (vgl. Lk 19,10). \[…\] Dann wird also der Unreine den Heiligen Weg durchschreiten? Gott bewahre! Wie beschmutzt einer auch sein mag, wenn er ihn betritt, so wird er es nicht mehr sein, wenn er ihn durchschreitet! Denn sobald er den Fuß darauf setzt, wird sein Schmutz verschwinden. So steht der Heilige Weg tatsächlich dem unreinen Menschen offen; aber sobald er ihn einschlägt, reinigt der Weg ihn und löscht alles Böse aus, das er getan hat. \[…\] Er belässt ihn nicht in seinem Schmutz, denn es ist der „schmale Weg“, sozusagen das „Nadelöhr“ (vgl. Mt 7,14; 19,24). \[…\] Wenn du also bereits auf dem Weg bist, dann weiche nicht davon ab, sonst wird dich der Herr „dem Weg deines eigenen Herzens überlassen“ (vgl. Jes 57,17). \[…\] Wenn dir der Weg zu eng vorkommt, dann denke an das Ziel, zu dem er dich führt. \[…\] Sollte aber dein Blick nicht so weit reichen, dann vertraue Jesaja, dem Seher. Er, der sowohl die Enge als auch das Ziel des Weges sah, fügte hinzu: „Auf diesem Weg gehen die Befreiten, die Erlösten des Herrn; sie kommen voll Jubel nach Zion. Ewige Freude ruht auf ihren Häuptern. Wonne und Freude stellen sich ein, Kummer und Seufzen entfliehen“ (vgl. 35,9–10).

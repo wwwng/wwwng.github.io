@@ -1,0 +1,10 @@
+---
+title: 'Freitag, 31 Juli 2020 : Kommentar Benedikt XVI.'
+date: 2020-07-30T18:13:00.001+02:00
+draft: false
+url: /2020/07/freitag-31-juli-2020-kommentar-benedikt.html
+tags: 
+- MEDITATIO
+---
+
+Einige neuere Theologen sind der Meinung, dass das verbrennende und zugleich rettende Feuer Christus ist, der Richter und Retter. Das Begegnen mit ihm ist der entscheidende Akt des Gerichts. Vor seinem Anblick schmilzt alle Unwahrheit. Die Begegnung mit ihm ist es, die uns umbrennt und freibrennt zum Eigentlichen unserer selbst. Unsere Lebensbauten können sich dabei als leeres Stroh, als bloße Großtuerei erweisen und zusammenfallen. Aber in dem Schmerz dieser Begegnung, in der uns das Unreine und Kranke unseres Daseins offenbar wird, ist Rettung. Sein Blick, die Berührung seines Herzens heilt uns in einer gewiss schmerzlichen Verwandlung „wie durch Feuer hindurch“. Aber es ist ein seliger Schmerz, in dem die heilige Macht seiner Liebe uns brennend durchdringt, sodass wir endlich ganz wir selber und dadurch ganz Gottes werden. So wird auch das Ineinander von Gerechtigkeit und Gnade sichtbar: Unser Leben ist nicht gleichgültig, aber unser Schmutz befleckt uns nicht auf ewig, wenn wir wenigstens auf Christus, auf die Wahrheit und auf die Liebe hin ausgestreckt geblieben sind. Er ist im Leiden Christi letztlich schon verbrannt. Im Augenblick des Gerichts erfahren und empfangen wir dieses Übergewicht seiner Liebe über alles Böse in der Welt und in uns. Der Schmerz der Liebe wird unsere Rettung und unsere Freude.

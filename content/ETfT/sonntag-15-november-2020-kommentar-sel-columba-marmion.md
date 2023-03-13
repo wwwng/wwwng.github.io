@@ -1,0 +1,10 @@
+---
+title: 'Sonntag, 15 November 2020 : Kommentar Sel. Columba Marmion'
+date: 2020-11-14T18:13:00.001+01:00
+draft: false
+url: /2020/11/sonntag-15-november-2020-kommentar-sel.html
+tags: 
+- MEDITATIO
+---
+
+Um Gott zu zeigen, dass diese unsere Sehnsucht aufrichtig ist, müssen wir unaufhörlich auf das göttliche Ideal hinschauen und uns bemühen, die Vollkommenheit, zu der wir nach Gottes Willen gelangen sollen, in der Nachahmung seines göttlichen Sohnes zu verwirklichen. Dieser ist das Urbild unsrer Auserwählung, und für einen jeden von uns gibt es ein Maß, in dem die Gleichförmigkeit mit Christus uns zugeteilt wird (Eph 4,7). Hienieden kennen wir dieses Maß, das Gott für uns bestimmt hat, nicht, dürfen aber gewiss sein, dass es, seinem Zwecke entsprechend, hinreicht, Christus in uns zu bilden, die Züge dieses vom Vater selbst uns gegebenen Ideals in uns hervorzubringen \[…\]. Wenn wir trotz aller Versuchungen und Schwierigkeiten treu an diesem Werke arbeiten, so „wird uns jener Lohn zuteil, den der Herr selbst verheißen hat“. \[…\] Wenn wir uns beharrlich bemühen, die Wünsche unseres himmlischen Vaters aus Liebe möglichst vollkommen zu erfüllen, immer „das zu tun, was ihm wohlgefällt“ (Joh 8,29), dann wird uns sicherlich jener wunderbare Lohn zuteil, den die ewige Treue selbst verhieß mit den Worten: „Wohlan, du guter und getreuer Knecht, weil du über weniges getreu gewesen bist, will ich dich über vieles setzen; geh ein in die Freude deines Herrn!“ (Mt 25,21). Jedem Heiligen tönt dieses Wort bei seinem Einzug in den Himmel entgegen; es ist der Willkommgruß Jesu Christi. Welches aber sind die Güter, die der Herr der Seele mitteilt? Gott selbst in seiner Dreieinigkeit und Vollkommenheit und mit Gott alle geistlichen Güter. Die Seele wird Gott ähnlich sein, weil sie „ihn sieht, so wie er ist“ (1 Joh 3,2). In dieser unaussprechlichen Anschauung, die auf den Glauben folgt, wird die Seele ganz in Gott gefestigt, hat teil an der göttlichen Unveränderlichkeit; sie wird nun auf immer ganz und gar dem höchsten und unveränderlichen Gut anhangen, ohne Furcht, es jemals wieder zu verlieren.

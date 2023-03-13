@@ -1,0 +1,10 @@
+---
+title: 'Donnerstag, 18 Juli 2019 : Buch Exodus 3,13-20.'
+date: 2019-07-17T17:46:00.001+02:00
+draft: false
+url: /2019/07/donnerstag-18-juli-2019-buch-exodus-313.html
+tags: 
+- LECTIO
+---
+
+In jenen Tagen, als Gott dem Mose aus dem Dornbusch zurief, sagte Mose zu Gott: Gut, ich werde also zu den Israeliten kommen und ihnen sagen: Der Gott eurer Väter hat mich zu euch gesandt. Da werden sie mich fragen: Wie heißt er? Was soll ich ihnen darauf sagen? Da antwortete Gott dem Mose: Ich bin der "Ich-bin-da". Und er fuhr fort: So sollst du zu den Israeliten sagen: Der "Ich-bin-da" hat mich zu euch gesandt. Weiter sprach Gott zu Mose: So sag zu den Israeliten: Jahwe, der Gott eurer Väter, der Gott Abrahams, der Gott Isaaks und der Gott Jakobs, hat mich zu euch gesandt. Das ist mein Name für immer, und so wird man mich nennen in allen Generationen. Geh, versammle die Ältesten Israels, und sag ihnen: Jahwe, der Gott eurer Väter, der Gott Abrahams, Isaaks und Jakobs, ist mir erschienen und hat mir gesagt: Ich habe sorgsam auf euch geachtet und habe gesehen, was man euch in Ägypten antut. Darum habe ich beschlossen, euch aus dem Elend Ägyptens hinaufzuführen in das Land der Kanaaniter, Hetiter, Amoriter, Perisiter, Hiwiter und Jebusiter, in ein Land, in dem Milch und Honig fließen. Wenn sie auf dich hören, so geh mit den Ältesten Israels zum König von Ägypten; sagt ihm: Jahwe, der Gott der Hebräer, ist uns begegnet. Und jetzt wollen wir drei Tagesmärsche weit in die Wüste ziehen und Jahwe, unserem Gott, Schlachtopfer darbringen. Ich weiß, dass euch der König von Ägypten nicht ziehen lässt, es sei denn, er würde von starker Hand dazu gezwungen. Erst wenn ich meine Hand ausstrecke und Ägypten niederschlage mit allen meinen Wundern, die ich in seiner Mitte vollbringe, wird er euch ziehen lassen.

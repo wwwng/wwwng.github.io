@@ -1,0 +1,8 @@
+---
+title: 'Mittwoch, 28. Dezember : Hl. Gregor von Nyssa'
+date: 2022-12-28T08:23:00.001+01:00
+draft: false
+url: /2022/12/mittwoch-28-dezember-hl-gregor-von-nyssa.html
+---
+
+„Als König Herodes von der Geburt des Erlösers hörte, erschrak er und mit ihm ganz Jerusalem“ (vgl. Mt 2,3). \[…\] Das Geheimnis der Passion war es, das durch die Myrrhe der Magier schon angedeutet wurde; und erbarmungslos werden Neugeborene umgebracht. \[…\] Was bedeutet dieses Abschlachten von Kindern? Wie kann man es wagen, ein so schreckliches Verbrechen zu begehen? „Aus dem Grund“, so sagen Herodes und seine Ratgeber, „weil ein seltsames Zeichen am Himmel erschienen ist, das den Weisen das Kommen eines anderen Königs ankündigt.“ Verstehst du, was diese Vorzeichen bedeuten, Herodes? \[…\] Wenn Jesus der Herr der Gestirne ist, ist er dann nicht vor deinen Angriffen gefeit? Du glaubst, Macht zu haben über Leben und Tod; aber von einem so sanften Wesen hast du nichts zu befürchten! Gott gibt ihn in deine Hand; warum also eine Verschwörung gegen ihn anzetteln? \[…\] Doch lassen wir die Trauer, „das bittere Klagen der Rahel, die um ihre Kinder weint“ (vgl. Mt 2,18); denn heute vertreibt die Sonne der Gerechtigkeit (vgl. Mal 3,20) die Finsternis des Bösen und ergießt ihr Licht über die ganze Natur: er, der unsere Menschennatur angenommen hat \[…\]. An diesem Fest der Geburt des Herrn werden „die ehernen Tore zerbrochen, die eisernen Riegel zerschlagen“ (Ps 107,16); heute „öffnen sich die Tore zur Gerechtigkeit“ (vgl. Ps 118,19), \[…\] denn durch einen Menschen – Adam – kam der Tod, und heute kommt durch einen Menschen das Heil (vgl. Röm 5,18). \[…\] Nach dem Baum der Sünde erhebt sich der Baum der Güte, das Kreuz. \[…\] Heute beginnt das Geheimnis der Passion.

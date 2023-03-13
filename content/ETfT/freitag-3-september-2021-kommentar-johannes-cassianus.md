@@ -1,0 +1,8 @@
+---
+title: 'Freitag, 3 September 2021 : Kommentar Johannes Cassianus'
+date: 2021-09-03T10:11:00.001+02:00
+draft: false
+url: /2021/09/freitag-3-september-2021-kommentar.html
+---
+
+Wir waren von Syrien in die Provinz Ägypten aufgebrochen, um die Regeln der alten Mönche kennenzulernen, und wir staunten über die große Herzlichkeit, mit der wir dort empfangen wurden. Im Gegensatz zu dem, was man uns in den Klöstern Palästinas gelehrt hatte, hielten sie sich nicht an die Regel, die festgesetzte Stunde für die Mahlzeit abzuwarten, sondern wo immer wir hinkamen, wurde – außer mittwochs und freitags – das Fasten gebrochen. Als wir einen der Ältesten fragten, warum bei ihnen das tägliche Fasten so leicht unterlassen werde, antwortete er: „Das Fasten ist immer bei mir, euch aber, die ich bald verabschieden muss, kann ich nicht immer bei mir behalten. Das Fasten ist zwar nützlich und notwendig, aber dennoch eine freiwillige Gabe, während die tätige Nächstenliebe eine absolute Forderung der Gebote ist. Wenn ich also in eurer Person Christus aufnehme, muss ich ihn auch bewirten; wenn ich euch dann verabschiedet habe, kann ich die Menschenfreundlichkeit, die ich euch um Christi willen erwiesen habe, durch strengeres Fasten wieder ausgleichen. In der Tat: ‚Die Hochzeitsgäste können nicht fasten, solange der Bräutigam bei ihnen ist‘ (vgl. Lk 5,34), wenn er aber weggegangen ist, dann können sie es tun.“

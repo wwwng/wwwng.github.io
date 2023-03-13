@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 9 Februar 2019 : Kommentar Isaak der Syrer '
+date: 2019-02-08T17:47:00.001+01:00
+draft: false
+url: /2019/02/samstag-9-februar-2019-kommentar-isaak.html
+tags: 
+- MEDITATIO
+---
+
+Wenn David Gott gerecht und beständig nennt, so hat ihn sein Sohn uns als gut und sanft offenbart. \[…\] Fern sei uns der unbillige Gedanke, Gott sei nicht mitfühlend! O erstaunliches Mitleid Gottes! O Wunder der Huld Gottes, unseres Schöpfers! O alles vermögende Macht! O unermessliche Güte, die er unserer Natur erweist, um sie neu zu schaffen! Wer kann seine Herrlichkeit in Worte fassen? Er richtet den wieder auf, der ihn beleidigt und geschmäht hat; er erweckt seelenlose Asche zu neuem Leben \[...\] und aus unserem zerstreuten Geist und unseren verwirrten Sinnen schafft er eine vernunftbegabte und zum Denken befähigte Natur. Der Sünder ist nicht im Stande, die Gnade seiner Auferstehung zu begreifen \[...\] Was bedeutet schon die Hölle angesichts der Gnade der Auferstehung, wenn uns Gott aus der Verdammnis heraushebt und diesem vergänglichen Leib das Geschenk macht, sich mit Unsterblichkeit zu bekleiden (1 Kor 15,53) \[...\] Ihr, die ihr die Gabe der Unterscheidung habt: kommt und staunt. Welcher mit Weisheit und wunderbarer Intelligenz ausgestattete Mensch könnte die Gnade unseres Schöpfers so bewundern, wie sie es verdient? Mit dieser Gnade belohnt er die Sünder. Denn anstelle der vollen Gerechtigkeit, die sie verdienen, schenkt er ihnen die Auferstehung. Die Leiber, die sein Gesetz entweiht haben, bekleidet er mit der Herrlichkeit der Unverweslichkeit. Diese Gnade – die Auferstehung, die uns geschenkt wird, nachdem wir gesündigt haben – ist größer als die erste, als er uns schuf, da wir noch nicht waren. Ehre sei deiner unermesslichen Gnade, o Herr! Angesichts der Fluten deiner Gnade kann ich nur verstummen. Die Dankbarkeit, die ich dir schulde – ich kann sie nicht in Worte fassen.

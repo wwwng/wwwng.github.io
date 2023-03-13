@@ -1,0 +1,10 @@
+---
+title: 'Samstag, 25 Juli 2020 : Kommentar Hl. Basilius'
+date: 2020-07-24T18:13:00.001+02:00
+draft: false
+url: /2020/07/samstag-25-juli-2020-kommentar-hl.html
+tags: 
+- MEDITATIO
+---
+
+„Was soll ich dem Herrn vergelten?“ (Ps 115,3 LXX). Weder Opfer noch Brandopfer, noch die Befolgung des vorgeschriebenen Kultes, sondern mein Leben selbst, ganz und gar. Deshalb sagt der Psalmist „Ich werde den Kelch des Heils erheben“ (Ps 115,4 LXX). Als seinen Kelch bezeichnet der Psalmist die Mühsale, die er in den Kämpfen seiner kindlichen Hingabe an Gott ertrug, und die Beharrlichkeit, mit der er der Sünde Widerstand leistete bis in den Tod. Von diesem Kelch spricht der Herr selbst in den Evangelien: „Mein Vater, wenn es möglich ist, gehe dieser Kelch an mir vorüber“ (Mt 26,39). Und zu den Jüngern sagt er: „Könnt ihr den Kelch trinken, den ich trinken werde?“ Damit meinte er den Tod, den er für das Heil der Welt erleiden wollte. Deshalb sagt er: „Ich werde den Kelch des Heils erheben“, d. h. ich bin mit meinem ganzen Sein danach ausgestreckt, dürstend nach der Vollendung des Martyriums, dass ich sogar die Qualen, die ich in den Kämpfen meiner Sohnesliebe erduldete, für eine Erholung der Seele und des Leibes halte und nicht für Leiden. Ich selbst, sagt er, biete mich dem Herrn als Opfer und Opfergabe dar \[…\]. Und ich bin bereit, diese Verheißungen vor dem ganzen Volk zu bezeugen, denn „ich werde dem Herrn meine Gelübde erfüllen vor all seinem Volk!“ (Ps 115,9 LXX).
