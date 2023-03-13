@@ -73,7 +73,7 @@
             {{ end }}
             {{ if isset .Site.Params.footer.gnupg "key" }}
             <li>
-              <a href="/{{ .Site.Params.footer.gnupg.key }}" target="_blank">
+              <a href="/{{ .Site.Params.footer.gnupg.key }}.asc" target="_blank">
                 <span class="icon"><i class="fa fa-key"></i></span>
                 {{ if isset .Site.Params.footer.gnupg "title" }}
                   {{ .Site.Params.footer.gnupg.title }}
