@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 26. April : Hl. Hilarius'
-date: 2022-04-26T09:11:00.001+02:00
-draft: false
-url: /2022/04/dienstag-26-april-hl-hilarius.html
----
-
-Allmächtiger Gott, „dein Heiliger Geist“ – so der Apostel Paulus – „ergründet und kennt die Tiefen deines Wesens“ (vgl. 1 Kor 2,10–11) und tritt für mich ein und spricht statt meiner zu dir mit „Seufzen, das wir nicht in Worte fassen können“ (Röm 8,26). \[…\] Nichts, was außerhalb deiner ist, ergründet dein Mysterium; nichts, was dir fremd ist, ist mächtig genug, die Tiefe deiner unendlichen Majestät zu ermessen. Alles, was in dich eindringt, ist von dir; nichts, was außerhalb deiner ist, hat die Macht, dich zu ergründen. \[…\] Ich glaube fest, dass dein Heiliger Geist durch deinen einzigen Sohn von dir kommt; auch wenn ich dieses Mysterium nicht begreife, bin ich doch von seiner Wahrheit zutiefst überzeugt. Denn in den geistlichen Wirklichkeiten, die dein Bereich sind, ist mein Geist beschränkt. Dein einziger Sohn bezeugt ja: „Wundere dich nicht, dass ich dir sagte: Ihr müsst von neuem geboren werden. Denn der Heilige Geist weht, wo er will; du hörst seine Stimme, weißt aber nicht, woher er kommt und wohin er geht. So ist es mit jedem, der aus dem Wasser und dem Geist geboren ist“ (vgl. Joh 3,7–8). Ich glaube, dass ich von neuem geboren bin, ohne es zu verstehen, und im Glauben halte ich fest, was sich meinem Verstand entzieht. Ich weiß, dass ich die Macht habe, von neuem geboren zu werden, aber ich weiß nicht, wie das vor sich geht. Dem Geist sind keine Schranken gesetzt; er spricht, wann er will; er sagt, was er will und wo er will. Der Grund seines Gehens und Kommens bleibt mir unbekannt, aber ich bin zutiefst überzeugt von seiner Gegenwart.

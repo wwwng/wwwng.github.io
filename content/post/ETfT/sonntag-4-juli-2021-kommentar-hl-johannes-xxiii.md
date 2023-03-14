@@ -1,8 +1,0 @@
----
-title: 'Sonntag, 4 Juli 2021 : Kommentar Hl. Johannes XXIII.'
-date: 2021-07-04T10:11:00.001+02:00
-draft: false
-url: /2021/07/sonntag-4-juli-2021-kommentar-hl.html
----
-
-Jedes Mal, wenn ich an das große Geheimnis des verborgenen und demütigen Lebens Jesu während seiner ersten dreißig Jahre denke, ergreift dies meine Seele zutiefst und mir fehlen die Worte. Ja, es ist völlig einleuchtend: Angesichts einer so strahlenden Lektion verblassen nicht nur die Auffassungen der Welt und stehen völlig im Gegensatz dazu, sondern auch die Meinungen und Einstellungen sehr vieler Kleriker. Ich für meinen Teil muss gestehen, dass ich noch keine Vorstellung davon habe. Soweit ich mich kenne, scheine ich nur den Anschein von Demut zu besitzen, aber ihren wahren Geist, jenes „Liebe es, unbekannt zu sein“, das Jesus Christus in Nazareth übte, kenne ich nur dem Namen nach. Und wenn man bedenkt, dass Jesus dreißig Jahre seines Lebens im Verborgenen verbrachte, und dass er Gott war, dass er „der Abglanz der Herrlichkeit des Vaters“ (vgl. Hebr. 1,3) war, und dass er kam, um die Welt zu retten, und dass er all das nur tat, um uns zu lehren, wie notwendig wahre Demut ist und wie sie geübt werden muss! Und ich großer, elender Sünder, denke nur daran, mir selbst zu gefallen und Erfolge zu erzielen, die mir ein wenig irdische Ehre einbringen. Es gelingt mir nicht einmal, den heiligsten Gedanken zu fassen, ohne dass sich dabei die Sorge um mein Ansehen in den Augen der anderen einschleicht. \[…\] Letztlich kann ich mich nur mit großer Mühe an diese Idee der wahren Selbstentäußerung gewöhnen, so wie Jesus Christus sie geübt hat und wie er sie mich lehrt.

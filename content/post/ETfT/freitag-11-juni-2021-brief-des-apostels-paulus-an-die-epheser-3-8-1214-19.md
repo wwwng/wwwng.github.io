@@ -1,8 +1,0 @@
----
-title: 'Freitag, 11 Juni 2021 : Brief des Apostels Paulus an die Epheser 3,8-12.14-19.'
-date: 2021-06-11T07:27:00.005+02:00
-draft: false
-url: /2021/06/freitag-11-juni-2021-brief-des-apostels.html
----
-
-Brüder! Mir, dem Geringsten unter allen Heiligen, wurde diese Gnade geschenkt: Ich soll den Heiden als Evangelium den unergründlichen Reichtum Christi verkündigen und enthüllen, wie jenes Geheimnis Wirklichkeit geworden ist, das von Ewigkeit her in Gott, dem Schöpfer des Alls, verborgen war. So sollen jetzt die Fürsten und Gewalten des himmlischen Bereichs durch die Kirche Kenntnis erhalten von der vielfältigen Weisheit Gottes, nach seinem ewigen Plan, den er durch Christus Jesus, unseren Herrn, ausgeführt hat. In ihm haben wir den freien Zugang durch das Vertrauen, das der Glaube an ihn schenkt. Daher beuge ich meine Knie vor dem Vater, nach dessen Namen jedes Geschlecht im Himmel und auf der Erde benannt wird, und bitte, er möge euch aufgrund des Reichtums seiner Herrlichkeit schenken, dass ihr in eurem Innern durch seinen Geist an Kraft und Stärke zunehmt. Durch den Glauben wohne Christus in eurem Herzen. In der Liebe verwurzelt und auf sie gegründet, sollt ihr zusammen mit allen Heiligen dazu fähig sein, die Länge und Breite, die Höhe und Tiefe zu ermessen und die Liebe Christi zu verstehen, die alle Erkenntnis übersteigt. So werdet ihr mehr und mehr von der ganzen Fülle Gottes erfüllt.

@@ -1,8 +1,0 @@
----
-title: 'Montag, 21 Februar 2022 : Kommentar Hl. Teresa von Avila'
-date: 2022-02-21T09:11:00.001+01:00
-draft: false
-url: /2022/02/montag-21-februar-2022-kommentar-hl.html
----
-
-Selbst wenn sie \[die Seele\] den Glauben noch nicht hätte, der ihr sagt, wer Gott ist und welche Verpflichtungen sie hat, ihn als Gott anzuerkennen, so würde sie von diesem Augenblicke an ihn als Gott anbeten wie Jakob, als er die Leiter geschaut (vgl. Gen 28,12ff.). Ohne Zweifel hat er neben dieser Leiter noch andere Geheimnisse wahrgenommen, die er nicht auszusprechen wusste \[…\] Ich weiß nicht, ob es richtig ist, wie ich mich ausgedrückt; denn obwohl ich es gehört, weiß ich doch nicht, ob ich mich jetzt auch recht daran erinnere. So konnte auch Moses nicht alles wiedergeben, was er im Dornbusche geschaut (vgl. Ex 3), sondern nur, was Gott ihn sagen lassen wollte. Hätte der Herr seiner Seele nicht Geheimnisse geoffenbart, durch die er gewiss erkennen und glauben musste, Gott rede selbst mit ihm, so würde er so viele und große Beschwerden nicht auf sich genommen haben. Gewiss aber hat er im Dornbusch so große Dinge geschaut, dass er sich dadurch ermutigt fühlte, das zu unternehmen, was er für das Volk Israel getan. Wir dürfen, meine Schwestern, bei den verborgenen Geheimnissen Gottes nicht nach Gründen fragen, um sie zu begreifen; denn wie wir glauben, dass er der Allmächtige ist, so müssen wir selbstverständlich auch glauben, dass ein Wurm von so beschränktem Vermögen, wie es uns eigen ist, seine großen Wunder nicht begreifen kann. Preisen wir ihn aus Herzensgrund dafür, dass er uns nach seinem Wohlgefallen doch einige davon erkennen lässt!

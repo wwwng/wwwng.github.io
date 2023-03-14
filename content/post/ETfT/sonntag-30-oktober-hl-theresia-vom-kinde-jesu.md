@@ -1,8 +1,0 @@
----
-title: 'Sonntag, 30. Oktober : Hl. Theresia vom Kinde Jesu'
-date: 2022-10-30T08:23:00.001+01:00
-draft: false
-url: /2022/10/sonntag-30-oktober-hl-theresia-vom.html
----
-
-Jesus zog uns gemeinsam an sich, wenn auch auf verschiedenen Wegen. Gemeinsam erhob Er uns über alle vergänglichen Dinge dieser Welt, deren Gestalt vergeht. Er hat uns sozusagen alle Dinge unter die Füße gelegt. Wie Zachäus sind wir auf einen Baum gestiegen, um Jesus zu sehen … Dann konnten wir mit Johannes vom Kreuz sagen: „Alles ist mein, alles ist für mich. Mein ist die Erde, mein ist der Himmel, Gott ist mein, und die Mutter meines Gottes ist mein“. \[…\] Céline, welches Geheimnis: unserer Größe in Jesus … Dies alles hat Jesus uns gezeigt, als er uns den symbolischen Baum ersteigen ließ, von dem ich eben sprach. Und welche Wissenschaft wird Er uns nunmehr lehren? Hat Er uns nicht alles gelehrt? … Hören wir, was Er uns sagt: „Steigt schnell herab, ich muss heute in eurem Hause bleiben. Wie, Jesus sagt, wir sollen hinabsteigen … Wohin sollen wir denn herabsteigen? Céline, Du weißt es besser als ich, und dennoch: lass mich es Dir sagen, wohin wir jetzt Jesus folgen müssen. Einst fragten die Juden unseren göttlichen Erlöser: „Meister, wo wohnst du? – und Er antwortete ihnen: „Die Füchse haben ihre Höhle und die Vögel des Himmels ihre Nester, und ich habe nicht, wohin ich mein Haupt legen kann. Das ist es, wohin wir hinabsteigen müssen, um Jesus als Wohnung dienen zu können. So arm sein, dass wir nichts haben, wohin wir unser Haupt legen.

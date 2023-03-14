@@ -1,8 +1,0 @@
----
-title: 'Montag, 17. Oktober : Isaak der Syrer '
-date: 2022-10-17T09:23:00.001+02:00
-draft: false
-url: /2022/10/montag-17-oktober-isaak-der-syrer.html
----
-
-Herr, mach mich würdig, mein Leben geringzuschätzen um des Lebens willen, das in dir ist. Das Leben in dieser Welt gleicht Leuten, die Buchstaben benutzen, um Wörter zu bilden: Nach Belieben fügt man Buchstaben hinzu, streicht welche weg oder wechselt sie aus. Das Leben in der zukünftigen Welt aber gleicht dem, was ohne den geringsten Fehler in Büchern geschrieben steht, die mit dem königlichen Siegel versiegelt sind, wo nichts hinzuzufügen und nichts wegzustreichen ist. Achten wir also auf uns selbst, solange wir uns inmitten des Veränderbaren befinden. Solange wir über das Manuskript unseres Lebens verfügen können, über das, was wir eigenhändig geschrieben haben, sollten wir uns doch Mühe geben, gute Werke hinzuzufügen und die Fehler, die wir früher gemacht haben, zu tilgen. Solange wir in dieser Welt sind, drückt Gott weder dem Guten noch dem Bösen sein Siegel auf. Er tut dies erst in der Stunde unseres Exodus, wenn unser Werk vollendet ist, im Augenblick unseres Scheidens. Wie der heilige Ephräm sagte, müssen wir bedenken, dass unsere Seele einem Schiff gleicht, das abfahrbereit ist, aber nicht weiß, wann der Wind aufkommt, oder einem Heer, das nicht weiß, wann die Trompete erschallt, die zum Kampf ruft. Wenn er das von einem Schiff und einem Heer sagt, die beide auf etwas warten, was vielleicht nicht eintreffen wird: Wie sehr müssen wir uns dann vorbereiten, ehe jener Tag plötzlich hereinbricht, die Brücke geschlagen und das Tor zur neuen Welt geöffnet wird? Möge Christus, der Mittler unseres Lebens, uns diese Bereitschaft schenken.

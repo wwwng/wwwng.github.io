@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 3 Juni 2021 : Aus dem Heiligen Evangelium nach Markus - Mk 14,12-16.22-26.'
-date: 2021-06-03T09:16:00.001+02:00
-draft: false
-url: /2021/06/donnerstag-3-juni-2021-aus-dem-heiligen.html
----
-
-Am ersten Tag des Festes der Ungesäuerten Brote, an dem man das Paschalamm schlachtete, sagten die Jünger zu Jesus: Wo sollen wir das Paschamahl für dich vorbereiten? Da schickte er zwei seiner Jünger voraus und sagte zu ihnen: Geht in die Stadt; dort wird euch ein Mann begegnen, der einen Wasserkrug trägt. Folgt ihm, bis er in ein Haus hineingeht; dann sagt zu dem Herrn des Hauses: Der Meister lässt dich fragen: Wo ist der Raum, in dem ich mit meinen Jüngern das Paschalamm essen kann? Und der Hausherr wird euch einen großen Raum im Obergeschoss zeigen, der schon für das Festmahl hergerichtet und mit Polstern ausgestattet ist. Dort bereitet alles für uns vor! Die Jünger machten sich auf den Weg und kamen in die Stadt. Sie fanden alles so, wie er es ihnen gesagt hatte, und bereiteten das Paschamahl vor. Während des Mahls nahm er das Brot und sprach den Lobpreis; dann brach er das Brot, reichte es ihnen und sagte: Nehmt, das ist mein Leib. Dann nahm er den Kelch, sprach das Dankgebet, reichte ihn den Jüngern, und sie tranken alle daraus. Und er sagte zu ihnen: Das ist mein Blut, das Blut des Bundes, das für viele vergossen wird. Amen, ich sage euch: Ich werde nicht mehr von der Frucht des Weinstocks trinken bis zu dem Tag, an dem ich von neuem davon trinke im Reich Gottes. Nach dem Lobgesang gingen sie zum Ölberg hinaus.

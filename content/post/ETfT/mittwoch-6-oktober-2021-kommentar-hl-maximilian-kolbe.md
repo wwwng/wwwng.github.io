@@ -1,8 +1,0 @@
----
-title: 'Mittwoch, 6 Oktober 2021 : Kommentar Hl. Maximilian Kolbe'
-date: 2021-10-06T10:11:00.001+02:00
-draft: false
-url: /2021/10/mittwoch-6-oktober-2021-kommentar-hl.html
----
-
-Das Gebet und nur das Gebet ist eine wirksame Waffe im Kampf für die Freiheit und das Heil der Seelen. Und warum? Weil einem übernatürlichen Ziel nur übernatürliche Mittel entsprechen. Das Paradies oder – wenn man es so ausdrücken will – die Vergöttlichung der Seele ist eine übernatürliche Wirklichkeit im wahrsten Sinne des Wortes. Mit unseren rein natürlichen Kräften allein können wir daher dieses Ziel nicht erreichen. Wir brauchen ein übernatürliches Mittel: die Gnade Gottes. Und diese erhält man nur durch Demut und vertrauensvolles Gebet. Die Gnade und nur die Gnade erleuchtet unseren Verstand und stärkt unseren Willen; sie ist ein Mittel zur Bekehrung, das heißt zur Befreiung der Seele von den Fesseln des Bösen \[…\] Die Bekehrung und Heiligung der Seele ist und wird immer das Werk der göttlichen Gnade sein. Ohne die Gnade Gottes kann man in diesem Bereich nichts ausrichten, weder durch das gesprochene noch durch das gedruckte Wort, noch durch irgendein anderes äußeres Mittel. Bitten wir also für uns selbst und für die anderen um Gnade durch demütiges Gebet, durch Abtötung und durch Treue bei der Verrichtung unserer Aufgaben, und seien sie noch so einfach und gewöhnlich. Je näher die Seele bei Gott ist, desto kostbarer ist sie für Gott, und je mehr sie ihn liebt, umso mehr wird sie von Gott geliebt; darum kann sie auch den anderen effektiver helfen, nicht zuletzt deshalb, weil ihr Gebet leichter und umfassender erhört wird.

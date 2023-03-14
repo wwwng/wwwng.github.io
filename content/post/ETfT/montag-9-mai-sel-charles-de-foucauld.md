@@ -1,8 +1,0 @@
----
-title: 'Montag, 9. Mai : Sel. Charles de Foucauld'
-date: 2022-05-09T09:33:00.001+02:00
-draft: false
-url: /2022/05/montag-9-mai-sel-charles-de-foucauld.html
----
-
-Die eine Seele führe ich hin zum Schmerz meiner Schmerzen, die andere zur Freude meiner Freuden, diese zur Nachahmung meiner Armut und Schmach, jene zur Nachahmung meines Eifers für die Seelen; ich bin der Hirte, und auf der Weide meiner Liebe wachsen unendlich viele Kräuter. Ich nähre jede Seele mit dem Kraut, von dem ich sehe, dass sie es braucht \[…\]. So sollt auch ihr nicht danach trachten, in eurer Seele oder in den Seelen anderer die Empfindung hervorzubringen, die euch sehr vollkommen erscheint und die es auch wirklich ist, wenn sie ganz echt ist: die Liebe; bemüht euch vielmehr, den Empfindungen treu zu sein und die Seelen anderer zur Treue anzuleiten, die ich in euch und in ihnen hervorbringe. Wählt die Kräuter, die auf dem Feld meiner Liebe wachsen, nicht selber aus, weder für euch noch für die anderen, sondern strebt vielmehr danach – für euch und für sie –, gut zu essen und die Kräuter, die ich selbst für euch oder für sie auswähle, gut zu verdauen. Zieht Nutzen daraus, nicht um die einen oder die anderen so zu formen, wie es euch gefällt, sondern wie es mir gefällt; das besondere Gut, das ich euch und sie tun sehen möchte, und wozu ich euch dieses oder jenes Kraut vorlege: Mir kommt es zu, aus den Seelen das zu machen, was ich für gut halte, ich, der sie gemacht hat, der sie allein kennt, der allein weiß, wozu ich sie bestimmt habe \[…\]. Eure Arbeit besteht überhaupt nicht darin, sie für diese oder jene Sache zu bestimmen, sondern jederzeit darauf zu achten, mit welchem Kraut ich sie nähre.

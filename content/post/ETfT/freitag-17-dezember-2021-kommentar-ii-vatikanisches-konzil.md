@@ -1,8 +1,0 @@
----
-title: 'Freitag, 17 Dezember 2021 : Kommentar II. Vatikanisches Konzil'
-date: 2021-12-17T09:11:00.001+01:00
-draft: false
-url: /2021/12/freitag-17-dezember-2021-kommentar-ii.html
----
-
-Die Heilige Schrift des Alten und Neuen Testamentes und die verehrungswürdige Überlieferung zeigen die Aufgabe der Mutter des Erlösers in der Heilsökonomie immer klarer und legen sie anschaulich vor. Die Bücher des Alten Testamentes beschreiben die Heilsgeschichte, durch die die Ankunft Christi in der Welt in langsamem Voranschreiten vorbereitet wird. Diese ersten Dokumente, so wie sie in der Kirche gelesen und im Licht der weiteren und vollen Offenbarung verstanden werden, bieten Schritt für Schritt deutlicher die Gestalt der Frau dar, der Mutter des Erlösers. Sie ist in diesem Licht schon prophetisch in der Verheißung vom Sieg über die Schlange, die den in die Sünde gefallenen Stammeltern gegeben wurde (vgl. Gen 3,15), schattenhaft angedeutet. Ähnlich bedeutet sie die Jungfrau, die empfangen und einen Sohn gebären wird, dessen Namen Emmanuel heißen wird (vgl. Jes 7,14; vgl. Mich 5,2–3; Mt 1,22–23). Sie ragt unter den Demütigen und Armen des Herrn hervor, die das Heil mit Vertrauen von ihm erhoffen und empfangen. Mit ihr als der erhabenen Tochter Sion ist schließlich nach langer Erwartung der Verheißung die Zeit erfüllt und die neue HeiIsökonomie begonnen, als der Sohn Gottes die Menschennatur aus ihr annahm, um durch die Mysterien seines Fleisches den Menschen von der Sünde zu befreien.

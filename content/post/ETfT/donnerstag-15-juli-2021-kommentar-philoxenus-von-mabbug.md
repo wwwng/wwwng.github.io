@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 15 Juli 2021 : Kommentar Philoxenus von Mabbug'
-date: 2021-07-15T10:11:00.001+02:00
-draft: false
-url: /2021/07/donnerstag-15-juli-2021-kommentar.html
----
-
-Kommt zu mir und ich werde euch Erleichterung verschaffen. \[…\] Ihr habt den Weg der Welt gekostet: Verkostet nun den meinen, und wenn er euch nicht gefällt, dann lauft wieder weg. Ihr habt die schweren Bürden der Welt getragen, und ihr habt gespürt, wie schwer sie sind: Lasst euch überzeugen und nehmt mein Joch auf euch; ihr werdet durch Erfahrung lernen, wie sanft und leicht es ist. Ich will euch nicht zu reichen Menschen machen, die viele Dinge benötigen, sondern zu wahrhaft Reichen, die nichts benötigen; denn reich ist nicht der, der viel hat, sondern der, dem es an nichts mangelt. Bei mir werdet ihr reich, wenn ihr allem entsagt. \[…\] Aber wenn ihr danach strebt, eure Habgier zu befriedigen, dann wird euer Hunger nur noch größer. Der Hunger kommt beim Essen: Je mehr sich der Reiche bereichert, desto ärmer ist er; je mehr Geld man anhäuft, desto mehr will man anhäufen; je mehr man erwirbt, desto mehr will man erwerben. \[…\] Kommt also alle zu mir, die ihr des Reichtums überdrüssig seid, und ruht euch aus in der Armut; kommt, ihr Besitzer von Hab und Gut, und freut euch am Verzicht. Kommt, ihr Freunde der Welt, die nur eine Zeit lang besteht, und entdeckt den Geschmack der ewigen Welt. Ihr habt eure Welt erlebt: Kommt und erlebt die meine. Ihr habt euren Reichtum ausprobiert: kommt und probiert meine Armut. Euer Reichtum ist eine Art Reichtum; meine Armut ist der wahre Reichtum. Es ist nichts Besonderes, dass der Reichtum Reichtum genannt wird; wunderbar und großartig ist es jedoch, dass Armut Reichtum und dass Demut Größe ist.

@@ -1,8 +1,0 @@
----
-title: 'Freitag, 18. November : Syrische Liturgie'
-date: 2022-11-18T08:23:00.001+01:00
-draft: false
-url: /2022/11/freitag-18-november-syrische-liturgie.html
----
-
-Wenn drei in deinem Namen versammelt sind (vgl. Mt 18,20), bilden sie bereits eine Kirche. Bewahre die Tausenden, die sich hier versammelt haben: Ihre Herzen hatten dir schon ein Heiligtum bereitet, noch ehe unsere Hände dieses hier zur Ehre deines Namens errichtet haben. Möge der innere Tempel ebenso schön sein wie der Tempel aus Steinen. Mögest du in dem einen wie in dem anderen wohnen; in unsere Herzen wie in diese Steine ist dein Name eingeprägt. Gottes Allmacht hätte sich ebenso leicht eine Wohnstätte errichten können, wie sie mit einer Geste das Universum ins Dasein gerufen hat. Aber Gott hat den Menschen „gebaut“, damit der Mensch für ihn Wohnungen baue. Gepriesen sei seine Gnade, die uns so sehr geliebt hat! Er ist unendlich; wir sind begrenzt. Er baute für uns die Welt; wir bauen ihm ein Haus. Es ist wunderbar, dass der Mensch der Allmacht, die überall gegenwärtig ist und der nichts entgeht, eine Wohnung bauen kann. Er wohnt mit zärtlicher Fürsorge in unserer Mitte; er zieht uns an sich mit Ketten der Liebe (vgl. Hos 11,4); er bleibt bei uns und ruft uns, damit wir den Weg zum Himmel einschlagen, um bei ihm zu wohnen. Er hat seine Wohnung verlassen und sich die Kirche erkoren, damit wir unsere Wohnung verlassen und das Paradies erwählen. Gott hat unter den Menschen gewohnt, damit die Menschen Gott begegnen können.

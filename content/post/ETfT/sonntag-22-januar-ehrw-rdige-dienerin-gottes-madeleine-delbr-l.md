@@ -1,8 +1,0 @@
----
-title: 'Sonntag, 22. Januar : Ehrwürdige Dienerin Gottes Madeleine Delbrêl'
-date: 2023-01-22T08:23:00.001+01:00
-draft: false
-url: /2023/01/sonntag-22-januar-ehrwurdige-dienerin.html
----
-
-Ein neuer Tag beginnt. Jesus in mir will ihn leben. Er hat sich nicht eingeschlossen. Er hielt sich unter den Menschen auf. Mit mir ist er unter den Menschen von heute. Er wird jedem begegnen, der das Haus betritt, jeden, den ich auf der Straße treffe, es sind andere Reiche als zu seiner Zeit, andere Arme, andere Gelehrte und andere Ungebildete, andere Junge und andere Alte, andere Heilige und andere Sünder, andere Gesunde und andere Kranke. Es sind all jene, die zu suchen er gekommen ist; jeder ist einer, den zu retten er gekommen ist. \[…\] Alles wird erlaubt sein an dem Tag, der gerade anbricht, alles wird erlaubt sein und verlangt, dass ich ja sage. Die Welt, in der er mich haben will, um mit mir zu sein, kann mich nicht davon abhalten, mit Gott zu sein; so wie ein Kind, das seine Mutter auf den Armen trägt, nicht weniger bei ihr ist, wenn diese durch eine Menschenmenge geht. Jesus hat nicht aufgehört, überall ausgesandt zu werden. Wir können nicht aufhören, das zu sein was wir in jedem Augenblick sind: Gottes Gesandte in der Welt. Jesus in uns hört nicht auf, ausgesandt zu werden, diesen ganzen Tag lang, der nun beginnt, zu allen Menschen unserer Zeit und aller Zeiten, in meiner Stadt und in der ganzen Welt. Er bewegt uns dazu, unseren Nächsten zu dienen, sie zu lieben und zu retten; dadurch werden sich Wellen seiner Liebe bis an die Enden der Erde ausbreiten, bis zum Ende der Zeiten.

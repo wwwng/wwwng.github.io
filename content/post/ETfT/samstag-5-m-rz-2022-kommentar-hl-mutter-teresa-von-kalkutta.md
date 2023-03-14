@@ -1,8 +1,0 @@
----
-title: 'Samstag, 5 März 2022 : Kommentar Hl. Mutter Teresa von Kalkutta'
-date: 2022-03-05T09:11:00.001+01:00
-draft: false
-url: /2022/03/samstag-5-marz-2022-kommentar-hl-mutter.html
----
-
-Was ist der vollkommene Wille Gottes für uns? Du sollst heilig werden. Die Heiligkeit ist das größte Geschenk, das Gott uns machen kann, denn dafür hat er uns geschaffen. Für jemanden, der liebt, ist der Gehorsam mehr als eine Pflicht, er ist das eigentliche Geheimnis der Heiligkeit. Der heilige Franziskus erinnert uns daran: Jeder von uns ist das, was er in Gottes Augen ist – nicht mehr und nicht weniger. Wir sind alle berufen, Heilige zu werden. An dieser Berufung ist nichts Außergewöhnliches. Wir sind alle nach Gottes Ebenbild geschaffen worden, um zu lieben und geliebt zu werden. Jesus wünscht sich unsere Vollkommenheit mit unaussprechlichem Verlangen. „Das ist es, was Gott will: eure Heiligung“ (1 Thess 4,3). Sein heiligstes Herz ist von einer unstillbaren Sehnsucht erfüllt, uns auf dem Weg zur Heiligkeit voranschreiten zu sehen. Wir sollten täglich unseren Entschluss erneuern, uns zu größerem Eifer anzuspornen, so wie am ersten Tag unserer Bekehrung. Sagen wir: „Herr, mein Gott, komm mir zu Hilfe bei meinen guten Vorsätzen in deinem heiligen Dienst, und gib mir die Gnade, noch heute ernsthaft zu beginnen, denn was ich bisher getan habe, ist nichts.“ Wir können nicht erneuert werden, wenn wir nicht die Demut haben, zu erkennen, was in uns der Erneuerung bedarf.

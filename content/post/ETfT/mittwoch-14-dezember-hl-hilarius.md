@@ -1,8 +1,0 @@
----
-title: 'Mittwoch, 14. Dezember : Hl. Hilarius'
-date: 2022-12-14T08:23:00.001+01:00
-draft: false
-url: /2022/12/mittwoch-14-dezember-hl-hilarius.html
----
-
-Als Johannes seine Jünger zu Jesus schickte, tat er es weniger aus Sorge um seine, als um deren Unwissenheit; denn er selbst hatte ja verkündet, dass einer kommen werde zur Vergebung der Sünden. Um sie aber erkennen zu lassen, dass er keinen anderen als diesen verkündet hatte, schickte er seine Jünger zu ihm, damit sie seine Werke sähen. Diese sollten seiner Verkündigung Gewicht verleihen und belegen, dass kein anderer Christus zu erwarten sei als dieser, von dem seine Werke Zeugnis ablegten. Und da sich der Herr durch seine Wundertaten voll und ganz offenbart hatte – Blinde sahen wieder, Lahme konnten wieder gehen, Aussätzige wurden geheilt, Taube konnten wieder hören und Stumme wieder sprechen, Tote wurden lebendig und den Armen wurde die frohe Botschaft verkündet –, sagte er: „Selig ist, wer an mir keinen Anstoß nimmt“. Gab es denn an dem, was Jesus tat, etwas, woran Johannes hätte Anstoß nehmen können? Gewiss nicht. Er blieb nämlich ganz auf seiner Linie des Lehrens und Handelns. Aber es gilt hier die Tragweite und den besonderen Charakter dessen zu beachten, was der Herr sagt: „Den Armen wird das Evangelium verkündet“. Es handelt sich hier um Menschen, die ihr Leben geringachten, ihr Kreuz tragen und ihm nachfolgen (vgl. Lk 14,27), die von Herzen demütig sind und für die das Reich bestimmt ist (vgl. Mt 11,29; 25,34). Weil all diese Leiden im Herrn zusammentreffen und sein Kreuz für viele ein Ärgernis sein würde, erklärte er diejenigen für selig, deren Glaube durch sein Kreuz, seinen Tod und sein Begräbnis nicht unterliegen würde.

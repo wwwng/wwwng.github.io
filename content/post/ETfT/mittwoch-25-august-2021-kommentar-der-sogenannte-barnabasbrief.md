@@ -1,8 +1,0 @@
----
-title: 'Mittwoch, 25 August 2021 : Kommentar Der sogenannte Barnabasbrief'
-date: 2021-08-25T10:11:00.001+02:00
-draft: false
-url: /2021/08/mittwoch-25-august-2021-kommentar-der.html
----
-
-Es gibt zwei Wege der Lehre und der Macht, nämlich den des Lichtes und den der Finsternis. Der Unterschied zwischen den beiden Wegen aber ist groß \[…\] Der Weg der Finsternis aber ist krumm und voll Fluch. Es ist nämlich der Weg zum ewigen Tode voll Strafe; auf diesem befindet sich das, was ihre Seelen zugrunde richtet: Götzendienst, Frechheit, Überhebung wegen der Macht, Heuchelei, Falschheit, Ehebruch, Mord, Raub, Stolz, Übertretung, List, Bosheit, Anmaßung, Giftmischerei, Zauberei, Habsucht, Vermessenheit gegen Gott. Leute, die die Guten verfolgen, die Wahrheit hassen, die Lüge lieben, den Lohn der Gerechtigkeit nicht kennen, dem Guten nicht nachstreben (vgl. Röm 12,9) und dem gerechten Urteil, sich nicht bemühen um Witwen und Waisen, \[…\] von denen gar weit entfernt ist Sanftmut und Geduld, die das Eitle lieben, nach Vergeltung haschen (vgl. Ps 4,3), kein Mitleid haben mit dem Bettler, sich nicht annehmen um den Niedergebeugten, die bereit sind zum Verleumden, die ihren Schöpfer nicht anerkennen \[…\] Daher ist es recht, dass der Mensch alle Satzungen des Herrn, die geschrieben stehen, kennen lerne, und in diesen wandle. Denn wer dieses tut, wird im Reich Gottes verherrlicht werden; wer dagegen jenes andere (den Weg der Finsternis) sich auswählt, wird zugleich mit seinen Werken verloren gehen. Darum gibt es eine Auferstehung, darum eine Wiedervergeltung. Ich bitte euch, die Vornehmen, wenn ihr von mir einen wohlgemeinten Rat annehmt: Ihr habt unter euch solche, denen ihr Gutes tun könnt; versäumt das nicht!

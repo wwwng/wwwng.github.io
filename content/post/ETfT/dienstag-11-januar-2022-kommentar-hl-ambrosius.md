@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 11 Januar 2022 : Kommentar Hl. Ambrosius'
-date: 2022-01-11T09:11:00.001+01:00
-draft: false
-url: /2022/01/dienstag-11-januar-2022-kommentar-hl.html
----
-
-Am Sabbat nahmen nach dem Bericht des Evangelisten die Heilungswerke des Herrn ihren Anfang. Die Neuschöpfung sollte dort anfangen, wo die Urschöpfung einst aufhörte. Auch wollte der Evangelist gleich zu Beginn zeigen, dass der Gottessohn nicht unter dem Gesetz, sondern über dem Gesetz stand, und dass das Gesetz nicht aufgehoben, sondern erfüllt wurde (vgl. Mt 5,17). Denn nicht durch das Gesetz, sondern kraft des Wortes ward die Welt erschaffen. Wir lesen nämlich: „Durch das Wort des Herrn wurden die Himmel geschaffen“ (vgl. Ps 33(32),6). Nicht also aufgehoben, sondern erfüllt wurde das Gesetz zum Zweck der Neuschöpfung des bereits dem Untergang verfallenden Menschen. Darum auch des Apostels Mahnung: „Zieht aus den alten Menschen und zieht den neuen an, der nach dem Bild Christi geschaffen ist!“ (vgl. Eph 4,22.24; vgl. Kol 3,9f. Vulg.). Und begründeterweise machte der Herr am Sabbat den Anfang, um sich als Schöpfer zu zeigen \[…\] und das (Gesamt-)Werk, das er bereits begonnen hatte, zu Ende zu führen: dem Baumeister gleich, der, wenn er zum Wiederaufbau eines Gebäudes den Plan entwirft, bei der Abtragung des alten nicht mit dem Fundament, sondern mit dem Giebel beginnt. Dort also legt er zuerst Hand an, wo er zuvor aufgehört hatte. \[…\] Mit den geringeren Werken sodann beginnt der Herr, um zu den größeren fortzuschreiten. Jemanden vom Teufel zu befreien, vermögen auch Menschen, freilich nur im Worte Gottes; Toten die Auferstehung zu gebieten, steht allein in Gottes Macht.

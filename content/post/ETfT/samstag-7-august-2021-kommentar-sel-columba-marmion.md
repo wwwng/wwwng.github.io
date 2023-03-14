@@ -1,8 +1,0 @@
----
-title: 'Samstag, 7 August 2021 : Kommentar Sel. Columba Marmion'
-date: 2021-08-07T10:11:00.001+02:00
-draft: false
-url: /2021/08/samstag-7-august-2021-kommentar-sel.html
----
-
-Bitten auch wir den Vater und Jesus Christus, sein ewiges Wort, um dieses Licht des Glaubens. Den Keim desselben haben wir in der heiligen Taufe empfangen; wir müssen aber diesen göttlichen Keim in uns bewahren und entwickeln. Welches ist nun die Mitwirkung, die Gott hier von uns erwartet? Zunächst unser Gebet. – Der Glaube ist eine Gabe Gottes, und der Glaubensgeist kommt vom Geiste Gottes: „Herr, vermehre unsern Glauben!“ (Lk 17,5). Wie der Vater des kranken Kindes im Evangelium, so sollen auch wir oft zu Christus sprechen: „Ich glaube, Herr, aber hilf meinem Unglauben!“ (Mk 9,24). Gott allein ist es, der als Wirkursache den Glauben in uns vermehren kann, und wir müssen uns bestreben, durch unsere Gebete und guten Werke eine Vermehrung unseres Glaubens zu verdienen. Das will besagen, dass wir, nachdem wir den Glauben erlangt haben, denselben auch betätigen müssen. – Gott gibt uns bei der Taufe den habitus, d. h. die eingegossene Tugend des Glaubens, der eine Kraft, ein Vermögen ist; diese Kraft darf aber nicht brachliegen, diese Anlage aus Mangel an Übung nicht verkümmern. Durch entsprechende Akte soll der Glaube mehr und mehr in uns erstarken. Wir dürfen nicht zu jenen Seelen gehören, in denen das Glaubensleben erstorben ist. Wir sollen häufig, nicht nur während unserer gottesdienstlichen Übungen, sondern auch bei all den vielen kleinen Einzelheiten unseres täglichen Lebens, Glaubensakte erwecken. \[…\] \[Wir werden ermahnt\], beständig, quotidie, in diesem Lichte des Glaubens zu wandeln.

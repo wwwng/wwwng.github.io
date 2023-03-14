@@ -1,8 +1,0 @@
----
-title: 'Samstag, 20 November 2021 : Kommentar Hl. Pacianus von Barcelona'
-date: 2021-11-20T09:11:00.001+01:00
-draft: false
-url: /2021/11/samstag-20-november-2021-kommentar-hl.html
----
-
-Wir werden nicht mehr sterben. Selbst wenn unsere Körper zerfallen, werden wir in Christus leben, so wie er selbst es gesagt hat: „Wer an mich glaubt, wird leben, auch wenn er stirbt“ (Joh 11,25). Dessen können wir gewiss sein; der Herr selbst bezeugt, dass Abraham, Isaak, Jakob und alle Heiligen Gottes am Leben sind. Von ihnen sagte der Herr: „Sie sind alle lebendig; denn Gott ist ein Gott der Lebenden und nicht der Toten“ (vgl. Lk 20,38). Und der Apostel Paulus sagt von sich selbst: „Denn für mich ist Christus das Leben und Sterben Gewinn. \[…\] Ich sehne mich danach, aufzubrechen und bei Christus zu sein“ (Phil 1,21.23). \[...\] Das ist es also, was wir glauben, meine Brüder, und „wenn wir unsere Hoffnung nur in diesem Leben auf Christus gesetzt haben, sind wir erbärmlicher daran als alle anderen Menschen“ (1 Kor 15,19). Das Leben auf dieser Erde, das der Haus- oder Wildtiere und der Vögel, ist, wie ihr feststellen könnt, länger oder kürzer als das unsere. Was jedoch allein dem Menschen zukommt, ist das, was Christus ihm durch seinen Geist gegeben hat: das ewige Leben, aber unter der Bedingung, dass wir fortan der Sünde entsagen. Denn der Tod ist die Folge der Sünde und wird durch die Tugend abgewendet; das Leben wird durch die Sünde zerstört und durch die Tugend bewahrt. „Denn der Lohn der Sünde ist der Tod, die Gabe Gottes aber ist das ewige Leben in Christus Jesus, unserem Herrn“ (Röm 6,23).

@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 3 August 2021 : Buch Numeri 12,1-13.'
-date: 2021-08-03T07:27:00.001+02:00
-draft: false
-url: /2021/08/dienstag-3-august-2021-buch-numeri-121.html
----
-
-In jenen Tagen redeten Mirjam und Aaron über Mose wegen der kuschitischen Frau, die er sich genommen hatte. Er hatte sich nämlich eine Kuschiterin zur Frau genommen. Sie sagten: Hat etwa der Herr nur mit Mose gesprochen? Hat er nicht auch mit uns gesprochen? Das hörte der Herr. Mose aber war ein sehr demütiger Mann, demütiger als alle Menschen auf der Erde. Kurz darauf sprach der Herr zu Mose, Aaron und Mirjam: Geht ihr drei hinaus zum Offenbarungszelt! Da gingen die drei hinaus. Der Herr kam in der Wolkensäule herab, blieb am Zelteingang stehen und rief Aaron und Mirjam. Beide traten vor, und der Herr sprach: Hört meine Worte! Wenn es bei euch einen Propheten gibt, so gebe ich mich ihm in Visionen zu erkennen und rede mit ihm im Traum. Anders bei meinem Knecht Mose. Mein ganzes Haus ist ihm anvertraut. Mit ihm rede ich von Mund zu Mund, von Angesicht zu Angesicht, nicht in Rätseln. Er darf die Gestalt des Herrn sehen. Warum habt ihr es gewagt, über meinen Knecht Mose zu reden? Der Herr wurde zornig auf sie und ging weg. Kaum hatte die Wolke das Zelt verlassen, da war Mirjam weiß wie Schnee vor Aussatz. Aaron wandte sich Mirjam zu und sah: Sie war aussätzig. Da sagte Aaron zu Mose: Mein Herr, ich bitte dich, lass uns nicht die Folgen der Sünde tragen, die wir leichtfertig begangen haben. Mirjam soll nicht wie eine Totgeburt sein, die schon halb verwest ist, wenn sie den Schoß der Mutter verlässt. Da schrie Mose zum Herrn: Ach, heile sie doch!

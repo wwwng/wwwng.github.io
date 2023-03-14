@@ -1,8 +1,0 @@
----
-title: 'Samstag, 5. November : Hl. Gregor von Nazianz'
-date: 2022-11-05T08:23:00.001+01:00
-draft: false
-url: /2022/11/samstag-5-november-hl-gregor-von-nazianz.html
----
-
-Meine Brüder und meine Freunde, wir wollen keine unehrlichen Verwalter der uns anvertrauten Güter sein (vgl. Lk 16,1f.), damit wir nicht etwa hören müssen, wie der hl. Petrus zu uns sagt: „Schämt euch, die ihr fremdes Eigentum zurückhaltet. Ahmt die Gerechtigkeit Gottes nach, dann wird es keinen Armen mehr geben.“ Mühen wir uns also nicht so sehr, Dinge anzuhäufen, während andere vor Armut darben; denn sonst müssen wir uns die strengen Vorhaltungen des Propheten Amos anhören: „Hütet euch, die ihr sagt: Wann ist das Neumondfest vorbei? Wir wollen Getreide verkaufen. Und wann ist der Sabbat vorbei? Wir wollen den Kornspeicher öffnen“ (vgl. Am 8,5). \[…\] Üben wir uns in der Umsetzung dieses erhabenen und vorrangigen Gesetzes Gottes, der es regnen lässt über Gerechte und Sünder und der die Sonne gleichermaßen aufgehen lässt über allen (vgl. Mt 5,45). Er breitet für alle die unermesslichen Weiten der unbebauten Erde aus, die Quellen, Flüsse und Wälder; den Vögeln gibt er die Luft und allen Wassertieren das Wasser. Er teilt an alle großzügig aus, was sie zum Leben brauchen: Nichts davon nehmen die Mächtigen in Beschlag, nichts davon wird durch ein Gesetz eingeschränkt oder rationiert. Alles Nötige ist gemeinsamer Besitz und in Fülle vorhanden. Und deshalb bietet Gott es an, ohne dass jemand enttäuscht zurückbleibt. Denn er möchte durch diese Gleichheit in seinen Gaben die gleiche Würde der Natur ehren und die ganze Großzügigkeit seiner Wohltätigkeit zeigen.

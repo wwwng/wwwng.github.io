@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 13 Mai 2021 : Apostelgeschichte 1,1-11.'
-date: 2021-05-13T07:14:00.001+02:00
-draft: false
-url: /2021/05/donnerstag-13-mai-2021.html
----
-
-Im ersten Buch, lieber Theophilus, habe ich über alles berichtet, was Jesus getan und gelehrt hat, bis zu dem Tag, an dem er in den Himmel aufgenommen wurde. Vorher hat er durch den Heiligen Geist den Aposteln, die er sich erwählt hatte, Anweisungen gegeben. Ihnen hat er nach seinem Leiden durch viele Beweise gezeigt, dass er lebt; vierzig Tage hindurch ist er ihnen erschienen und hat vom Reich Gottes gesprochen. Beim gemeinsamen Mahl gebot er ihnen: Geht nicht weg von Jerusalem, sondern wartet auf die Verheißung des Vaters, die ihr von mir vernommen habt. Johannes hat mit Wasser getauft, ihr aber werdet schon in wenigen Tagen mit dem Heiligen Geist getauft. Als sie nun beisammen waren, fragten sie ihn: Herr, stellst du in dieser Zeit das Reich für Israel wieder her? Er sagte zu ihnen: Euch steht es nicht zu, Zeiten und Fristen zu erfahren, die der Vater in seiner Macht festgesetzt hat. Aber ihr werdet die Kraft des Heiligen Geistes empfangen, der auf euch herabkommen wird; und ihr werdet meine Zeugen sein in Jerusalem und in ganz Judäa und Samarien und bis an die Grenzen der Erde. Als er das gesagt hatte, wurde er vor ihren Augen emporgehoben, und eine Wolke nahm ihn auf und entzog ihn ihren Blicken. Während sie unverwandt ihm nach zum Himmel emporschauten, standen plötzlich zwei Männer in weißen Gewändern bei ihnen und sagten: Ihr Männer von Galiläa, was steht ihr da und schaut zum Himmel empor? Dieser Jesus, der von euch ging und in den Himmel aufgenommen wurde, wird ebenso wiederkommen, wie ihr ihn habt zum Himmel hingehen sehen.

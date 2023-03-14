@@ -1,8 +1,0 @@
----
-title: 'Montag, 12 Juli 2021 : Kommentar Hl. Eusebius von Caesarea'
-date: 2021-07-12T10:11:00.001+02:00
-draft: false
-url: /2021/07/montag-12-juli-2021-kommentar-hl.html
----
-
-Jesus ist gekommen, um „alles zu versöhnen, alles im Himmel und auf Erden, indem er Frieden gestiftet hat“ (vgl. Kol 1,20). Wenn das stimmt – wie sollen wir dann verstehen, was der Heiland selbst im Evangelium sagt: „Denkt nicht, ich sei gekommen um Frieden auf die Erde zu bringen“? \[…\] Sollte der Friede etwas anderes als Frieden bewirken? \[…\] Als Gott seinen Sohn sandte, war es seine Absicht, die Menschen zu retten. Und die Mission, die er erfüllen sollte, bestand darin, Frieden im Himmel und auf Erden zu schaffen. Warum gibt es dann keinen Frieden? Aufgrund der Schwäche derer, die nicht in der Lage waren, den Glanz des wahren Lichtes in sich aufzunehmen (vgl. Joh 1,9–10). Christus verkündet Frieden; das sagt auch der Apostel Paulus: „Er ist unser Friede“ (Eph 2,14); dabei handelt es sich aber um den Frieden derer, die an ihn glauben und ihn aufnehmen. Da glaubte ein Mädchen, ihr Vater aber blieb ungläubig \[…\]: „Was hat ein Gläubiger mit einem Ungläubigen gemeinsam?“ (2 Kor 6,15). Der Sohn wird gläubig, der Vater bleibt ungläubig \[…\]: Wo Friede verkündet wird, stellt sich Spaltung ein. \[…\] „Ich verkünde den Frieden, ja – aber die Erde nimmt ihn nicht an.“ Das war nicht die Absicht des Sämanns, der von der Erde erwartete, dass sie Frucht hervorbringt.

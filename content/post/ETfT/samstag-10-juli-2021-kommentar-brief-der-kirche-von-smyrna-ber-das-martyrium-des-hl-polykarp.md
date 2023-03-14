@@ -1,8 +1,0 @@
----
-title: 'Samstag, 10 Juli 2021 : Kommentar Brief der Kirche von Smyrna über das Martyrium des hl. Polykarp'
-date: 2021-07-10T10:11:00.001+02:00
-draft: false
-url: /2021/07/samstag-10-juli-2021-kommentar-brief.html
----
-
-Sie nagelten ihn also nicht an, banden ihn aber fest. Er aber, die Hände auf dem Rücken festgebunden, wie ein ausgezeichneter Widder aus einer großen Herde zur Opfergabe, zum wohlgefälligen Brandopfer für Gott, auserlesen, blickte gen Himmel und sprach: „Herr, allmächtiger Gott, Vater deines geliebten und gebenedeiten Sohnes Jesus Christus, durch den wir Kenntnis von dir erlangt haben, Gott der Engel, der Mächte, der gesamten Schöpfung und der ganzen Schar der Gerechten, die vor deinem Angesichte leben! Ich preise dich, dass du mich dieses Tages und dieser Stunde gewürdigt hast, teilzunehmen in der Gemeinschaft deiner Märtyrer an dem Kelche deines Christus zur Auferstehung ins ewige Leben nach Leib und Seele in der Unvergänglichkeit des Heiligen Geistes. Unter diesen möchte ich heute vor dir aufgenommen werden als ein fettes und wohlgefälliges Opfer, sowie du, untrüglicher und wahrhafter Gott, mich dazu vorbereitet, wie du es mir vorherverkündet und wie du es jetzt erfüllt hast. Deswegen lobe ich dich auch für alles, ich preise dich und verherrliche dich durch deinen ewigen und himmlischen Hohenpriester Jesus Christus, deinen geliebten Sohn, durch den dir mit ihm und dem Heiligen Geiste Ehre sei jetzt und in alle Ewigkeit. Amen“.

@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 28. April : Sel. Columba Marmion'
-date: 2022-04-28T09:27:00.001+02:00
-draft: false
-url: /2022/04/donnerstag-28-april-sel-columba-marmion.html
----
-
-Jesus wurde als Haupt und König über das gesamte Erbe Gottes eingesetzt, weil er selbst uns durch sein Blut die Rechte auf dieses Erbe zurückgegeben hat: „Der Vater hat alles in seine Hand gegeben“ (vgl. Joh 3,35). Wir bleiben in ihm durch den Glauben und die Liebe; er bleibt in uns durch seine Gnade und seine Verdienste; er bringt uns seinem Vater dar, und sein Vater findet uns in ihm. \[…\] Gott lässt uns im Sohn seines Wohlgefallens die Quelle aller Gnade und Vollkommenheit finden: „Wie sollte er uns mit ihm nicht alles schenken?“ (Röm 8,32). Wie sollten wir uns daher nicht vertrauensvoll diesem allmächtigen Willen hingeben, der die Liebe selbst ist, und der nicht nur die Gebote unserer Vollkommenheit festgelegt hat, sondern auch ihr Ursprung und ihre Quelle ist? \[…\] Die Gnade wirkt unabhängig und führt zum höchsten Grad der Heiligkeit, aber nur dort, wo sie auf keine Hindernisse für ihr Wirken stößt und wo man sie handeln lässt; der Geist Gottes wirkt mächtig, aber nur dort, wo er nicht behindert, „betrübt“ wird – um in der Sprache des heiligen Paulus zu reden (vgl. Eph 4,30) –, und wo die geschaffenen Kräfte sich ihm ausliefern \[…\]. Denn so unabhängig der Wille Gottes, so weitreichend seine Macht und so unendlich seine Liebe auch sein mag: Gott erwartet von uns, dass wir alles entfernen, was seine Gnade behindert, und dass die Seele in jener Haltung der Demut und des Vertrauens bleibt, in der sie alles von Gott erhoffen darf.

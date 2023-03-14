@@ -1,8 +1,0 @@
----
-title: 'Montag, 6 Dezember 2021 : Kommentar Hl. Petrus Chrysologus'
-date: 2021-12-06T09:11:00.001+01:00
-draft: false
-url: /2021/12/montag-6-dezember-2021-kommentar-hl.html
----
-
-Dank des Glaubens anderer sollte die Seele des Gelähmten noch vor seinem Leib geheilt werden. „Als Jesus ihren Glauben sah“, heißt es im Evangelium. Beachtet hier, Brüder, dass Gott sich nicht um das kümmert, was unvernünftige Menschen wollen, dass er nicht erwartet, bei Unwissenden Glauben vorzufinden, \[…\] bei denen, die krank sind. Andererseits weigert er sich nicht, dem Glauben der Menschen zu Hilfe zu kommen. Dieser Glaube ist ein Geschenk der Gnade und stimmt mit dem Willen Gottes überein. \[…\] In seiner göttlichen Güte versucht dieser Arzt – Christus –, diejenigen, die an Krankheiten der Seele leiden, die von der Last ihrer Sünden und Verfehlungen bis zum Wahnsinn bedrückt sind, trotz ihres Widerstandes zum Heil zu führen. Sie aber sträuben sich dagegen. O meine Brüder, wollten wir doch, wollten wir doch nur alle der Lähmung unserer Seele bis auf den Grund gehen! Wir würden entdecken, dass die Seele, ihrer Kräfte beraubt, auf einem Bett aus Sünden liegt. Das Wirken Christi in uns würde zu einer Quelle des Lichts. Wir würden begreifen, dass er jeden Tag auf unseren so schädlichen Mangel an Glauben schaut, dass er uns zu heilsamen Arzneien führt und unserem widerspenstigen Willen entschieden Zügel anlegt. „Mein Kind“, sagt er, „deine Sünden sind dir vergeben!“ (vgl. Mk 2,5).

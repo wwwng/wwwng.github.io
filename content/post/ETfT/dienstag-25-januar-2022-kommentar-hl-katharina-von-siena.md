@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 25 Januar 2022 : Kommentar Hl. Katharina von Siena'
-date: 2022-01-25T09:11:00.001+01:00
-draft: false
-url: /2022/01/dienstag-25-januar-2022-kommentar-hl.html
----
-
-\[Die hl. Katharina hörte Gott zu ihr sagen:\] Paulus ließ sich, wie ein Tongefäß, ohne jeden Widerstand von meiner Güte bearbeiten und formen. Als ich ihn schlug, hatte er nichts anderes zu sagen als: „Herr, was soll ich tun? Sag mir, was dir gefällt, dass ich tun soll, und ich werde es tun!“ Ich lehrte ihn also, indem ich ihm den gekreuzigten Christus vor Augen stellte und ihn mit der Lehre meiner Wahrheit bekleidete; ich erleuchtete ihn vollständig mit dem Licht einer wahren Reue, die auf meine Liebe gegründet war, und seine Sünde auslöschte. Von da an kannte er keine andere Lehre mehr als die vom gekreuzigten Christus. Er hing so innig daran, dass ihn von nun an nichts mehr davon trennen konnte, weder die Angriffe des Teufels noch die Versuchungen des Fleisches, mit denen er durch eine Zulassung meiner Güte weiterhin im Kampf blieb; meine Güte wollte ihn durch diese Kämpfe noch mehr an Verdienst und Gnade wachsen lassen und ihn in der Demut bewahren, nachdem sie ihn die Erhabenheit meiner Dreifaltigkeit hatte genießen lassen. Nie wieder zog er dieses Gewand aus, nie wieder trennte er sich davon, auch nicht für einen Augenblick. Verfolgungen, Folterungen, Bedrängnisse: Alles ertrug er lieber, als die Lehre vom Kreuz aufzugeben. Er hatte sie so sehr in sich aufgenommen, dass er eher sein Leben opferte, als sie abzulegen, und in eben diesem Gewand kam er zu mir, dem ewigen Vater, zurück.

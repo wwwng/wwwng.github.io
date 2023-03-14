@@ -1,8 +1,0 @@
----
-title: 'Montag, 14. November : Hl. Rafael Arnáiz Barón'
-date: 2022-11-14T08:23:00.001+01:00
-draft: false
-url: /2022/11/montag-14-november-hl-rafael-arnaiz.html
----
-
-Ich besitze einen so großen Schatz, liebe Schwester! Ich möchte schreien vor Freude und der ganzen Schöpfung zurufen: Preist den Herrn! Liebt den Herrn! Er ist so gut, Er ist so groß, Er ist Gott! \[…\] Die Welt sieht das nicht; sie ist blind. Und Gott braucht Liebe, viel Liebe. Ich kann Ihm nicht alles geben; ich bin klein; ich werde wahnsinnig! Ich möchte, dass die Welt Ihn liebt, aber die Welt ist Sein Feind. Herr, welche Qual! Ich beobachte es und kann nichts daran ändern … Ich bin verschwindend klein und unbedeutend, und die Liebe in mir erdrückt mich. Ich habe den dringenden Wunsch, dass meine Brüder, meine Freunde, alle, Dich sehr liebten \[…\] Wie weh tut es, wenn man Menschen sieht, die unberührt bleiben, wenn sie Jesus mit Seinem Gefolge vorbeiziehen sehen! Wie sehr würden sich die Apostel und die Freunde Jesu freuen, wenn wieder einmal eine Seele klar sähe, sich von allem löste und sich ihnen anschlösse und dem Mann aus Nazareth folgte! Er bat einzig und allein um ein wenig Liebe. Folgen wir Ihm, liebe Schwester? Er sieht unsere Absicht und schaut uns an; Er lächelt und hilft uns … Da gibt es nichts zu fürchten. Wir gehen hin, um die Letzten im Gefolge zu sein, das das Land Judäa durchzieht. Ganz still sind wir, aber genährt durch eine ganz große, eine riesengroße Liebe zu Jesus … Er benötigt nicht einmal Worte, oder dass wir nahe zu Ihm hintreten, damit Er uns bemerkt; auch keine großartigen Taten oder irgendetwas Auffälliges … Wir wollen die Letzten in der Reihe der Freunde Jesu sein, aber die, die Ihn am meisten lieben.

@@ -1,8 +1,0 @@
----
-title: 'Samstag, 9 Oktober 2021 : Buch Joel 4,12-21.'
-date: 2021-10-09T07:27:00.001+02:00
-draft: false
-url: /2021/10/samstag-9-oktober-2021-buch-joel-412-21.html
----
-
-So spricht der Herr: Die Völker sollen aufbrechen und heraufziehen zum Tal Joschafat. Denn dort will ich zu Gericht sitzen über alle Völker ringsum. Schwingt die Sichel, denn die Ernte ist reif. Kommt, tretet die Kelter, denn sie ist voll, die Tröge fließen über. Denn ihre Bosheit ist groß. Getöse und Getümmel herrscht im Tal der Entscheidung; denn der Tag des Herrn ist nahe im Tal der Entscheidung. Sonne und Mond verfinstern sich, die Sterne halten ihr Licht zurück. Der Herr brüllt vom Zion her, aus Jerusalem dröhnt seine Stimme, so dass Himmel und Erde erbeben. Doch für sein Volk ist der Herr eine Zuflucht, er ist eine Burg für Israels Söhne. Dann werdet ihr erkennen, dass ich der Herr, euer Gott, bin und dass ich auf dem Zion wohne, meinem heiligen Berg. Jerusalem wird heilig sein, Fremde werden nie mehr hindurchziehen. An jenem Tag triefen die Berge von Wein, die Hügel fließen über von Milch und in allen Bächen Judas strömt Wasser. Eine Quelle entspringt im Haus des Herrn und tränkt das Schittim-Tal. Ägypten wird zur Wüste, Edom wird zur verödeten Steppe, wegen der Gewalttat an Judas Söhnen, in deren Land sie unschuldiges Blut vergossen. Juda aber bleibt für immer bewohnt und Jerusalem besteht von Geschlecht zu Geschlecht, ich erkläre ihr Blut für unschuldig, das ich vorher nicht für unschuldig erklärte, und der Herr wohnt auf dem Zion.

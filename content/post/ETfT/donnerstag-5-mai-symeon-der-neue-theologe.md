@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 5. Mai : Symeon der Neue Theologe'
-date: 2022-05-05T09:27:00.001+02:00
-draft: false
-url: /2022/05/donnerstag-5-mai-symeon-der-neue.html
----
-
-Wie der erste Mensch irdisch war, so sind auch seine Nachfahren irdisch; wie aber Christus, unser Meister, himmlisch ist, so sind auch alle himmlisch, die an ihn glauben, die von neuem geboren und auch im Heiligen Geist getauft wurden (vgl. 1 Kor 15,48; Joh 3,3; Apg 1,5). Wie der Geist, der sie hervorbringt, wahrhaft Gott ist, so sind die, die aus ihm geboren werden, Götter durch göttliche Annahme an Kindes statt und alle Söhne des Allerhöchsten, wie der göttliche Mund sagt. \[…\] Zögere nicht länger: Wenn du Christ bist wie Christus, nämlich himmlisch, sollst auch du so sein wie er; wenn du es aber nicht bist, wie kannst du dich dann Christ nennen? Denn wie der Meister himmlisch ist, so sind nach ihm auch die, die an ihn glauben, himmlisch. Alle dagegen, die weltlich denken, alle, die nach dem Fleisch leben, gehören nicht zu Gott, dem Wort, das von oben gekommen ist, sondern zu dem, der aus Erde gebildet wurde: zum irdischen Menschen. So sollst du denken, so urteilen, so glauben und danach streben, so zu werden: himmlisch, nach dem Wort dessen, der vom Himmel gekommen ist und der Welt das Leben gegeben hat (vgl. Joh 6,33). Er ist auch das Brot, das von oben herabkommt, so dass alle, die es essen, den Tod nie mehr schauen müssen (vgl. Joh 6,50); denn da sie himmlisch sind, werden sie zweifellos für immer der Vergänglichkeit entkleidet und mit Unvergänglichkeit bekleidet, befreit vom Tod und innig dem Leben vereint; denn sie werden unsterblich, unverweslich, und daher „himmlisch“ genannt!

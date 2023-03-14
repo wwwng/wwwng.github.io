@@ -1,8 +1,0 @@
----
-title: 'Montag, 23 August 2021 : Kommentar Hl. Augustinus'
-date: 2021-08-23T10:11:00.001+02:00
-draft: false
-url: /2021/08/montag-23-august-2021-kommentar-hl.html
----
-
-\[Durch meine Lektüre\] gemahnt, zu mir selbst zurückzukehren, kehrte ich unter deiner Führung in mein Inneres ein, und ich konnte es, da „du mein Helfer geworden“ (vgl. Ps 30(29),11). Ich kehrte ein und schaute, so blöde auch das Auge meiner Seele noch war, über eben diesem Auge meiner Seele, über meinem Geiste ein unveränderliches Licht, nicht dieses gewöhnliche, allem Fleische sichtbare Licht, auch keines, das gleicher Natur, nur größer gewesen wäre und heller geleuchtet und durch seine Größe alles erfüllt hätte. So war es nicht, sondern ein anderes war es, ganz anders als all dieses. Auch stand es nicht so über meinem Geiste, wie das Öl über dem Wasser oder der Himmel über der Erde, sondern höherer Natur war es, da es mich ja selbst erschaffen hat, und ich niederer, da ich von ihm geschaffen bin. Wer die Wahrheit kennt, kennt es, und wer es kennt, kennt die Ewigkeit. Die Liebe kennt es. O ewige Wahrheit und wahre Liebe und geliebte Ewigkeit! Du bist mein Gott, zu dir seufze ich Tag und Nacht. Und sobald ich dich erkannte, zogst du mich zu dir empor, damit ich sähe, es existiere wirklich, was ich sähe, ich sei aber noch nicht imstande zu sehen. Und da deine Strahlen mächtig auf mich eindrangen, prallte mein schwacher Blick von dir zurück, und ich erzitterte in Liebe und Schrecken; und ich fand. mich fern von dir, dir ganz unähnlich, und es war mir, als hörte ich deine Stimme aus der Höhe: „Ich bin die Speise der Starken; wachse, und du wirst mich genießen. Aber du wirst mich nicht in dich verwandeln wie die leibliche Speise, sondern du wirst in mich umgewandelt werden.“

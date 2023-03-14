@@ -1,8 +1,0 @@
----
-title: 'Samstag, 19 Februar 2022 : Kommentar Hl. Johannes Paul II.'
-date: 2022-02-19T09:11:00.001+01:00
-draft: false
-url: /2022/02/samstag-19-februar-2022-kommentar-hl.html
----
-
-Christus ruft unablässig neue Jünger, Männer und Frauen zu sich, um ihnen durch die Ausgießung des Geistes (vgl. Röm 5,5) die göttliche Agape, seine Art zu lieben mitzuteilen und sie so anzuspornen, in demütiger Selbsthingabe, fernab von eigennützigen Überlegungen, den anderen zu dienen. An Petrus, der in ekstatischer Begeisterung über den Glanz der Verklärung ausruft: „Herr, es ist gut, dass wir hier sind“ (Mt 17,4), ergeht die Einladung, auf die Straßen der Welt zurückzukehren, um weiterhin dem Reich Gottes zu dienen: „Steige hinab, Petrus; du wolltest auf dem Berge ausruhen: steige hinab; verkündige das Wort, greife bei jeder Gelegenheit ein, sei es gelegen oder ungelegen, tadle, ermahne und ermuntere mit aller Großmut und mit jeder Art von Unterweisung. Arbeite, strenge dich sehr an, nimm auch Leiden und Qualen auf dich, damit du mittels des Glanzes und der Schönheit der guten Werke in der Liebe das besitzen mögest, was im Glanz der Kleider des Herrn versinnbildlicht ist“ (hl. Augustinus, Sermon 78). Der auf das Angesicht des Herrn gerichtete Blick schwächt im Apostel den Einsatz für den Menschen nicht; im Gegenteil, er verstärkt ihn noch, weil er den Apostel mit einer neuen Fähigkeit zum Einwirken auf die Geschichte ausstattet, um sie von allem Entstellenden zu befreien.

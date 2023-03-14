@@ -1,8 +1,0 @@
----
-title: 'Freitag, 6. Mai : Hl. Katharina von Siena'
-date: 2022-05-06T09:27:00.001+02:00
-draft: false
-url: /2022/05/freitag-6-mai-hl-katharina-von-siena.html
----
-
-Ewige Dreifaltigkeit, ewige Dreifaltigkeit! O Feuer, o Abgrund der Liebe, verrückt nach deinem Geschöpf! Ewige Wahrheit, ewiges Feuer, o ewige Weisheit! War die Weisheit denn allein, als sie in die Welt kam? Nein, denn die Weisheit war nicht getrennt von der Macht, noch jene von der Gnade: O Weisheit, du bist also nicht einsam, sondern von der ganzen Gottheit begleitet. Ewige Dreifaltigkeit, du Narr der Liebe! Welchen Nutzen hast du denn von unserer Erlösung? Keinen, denn du brauchst uns nicht, du, unser Gott! Der Nutzen fiel also allein dem Menschen zu. O unbezahlbare Liebe! Du hast uns ein erstes Mal deine Gottheit und deine ganze Menschheit geschenkt. Dann hast du dich selbst ganz als Nahrung hinterlassen, und du beugst unserem Versagen vor, indem du uns auf unserer Pilgerreise hier auf Erden stärkst. O Mensch, was hat dir also dein Gott vermacht? Sein ganzes Selbst: seine Gottheit und seine ganze Menschheit, verhüllt unter dem weißen Schein dieses Brotes. O Feuer der Liebe, genügte es dir nicht, dass du uns nach deinem Bild und Gleichnis erschaffen und im Blut deines Sohnes auf übernatürliche Weise neu geschaffen hast? Musstest du uns auch noch dein göttliches Wesen zur Nahrung geben? Deine Liebe hat es so gewollt, du Narr der Liebe! Du hast nicht nur dein Wort in der Erlösung und in der Eucharistie hingegeben, sondern du hast dein Geschöpf bis zur Torheit geliebt und ihm dein ganzes Wesen geschenkt.

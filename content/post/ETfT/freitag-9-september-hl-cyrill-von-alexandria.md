@@ -1,8 +1,0 @@
----
-title: 'Freitag, 9. September : Hl. Cyrill von Alexandria'
-date: 2022-09-09T09:23:00.001+02:00
-draft: false
-url: /2022/09/freitag-9-september-hl-cyrill-von.html
----
-
-„Der Jünger steht nicht über seinem Meister“. \[…\] Warum richtest du, da doch der Herr nicht richtet? Denn er ist nicht gekommen, um die Welt zu richten, sondern um sie zu retten (vgl. Joh 12,47). In diesem Sinne kann das Wort Christi auch bedeuten: „Wenn ich nicht richte, dann richte auch du nicht, der du mein Jünger bist; vielleicht hast du dich schlimmerer Fehler schuldig gemacht als der, den du richtest. Wie groß wird deine Scham sein, wenn du das einmal erkennst!“ Das Gleiche lehrt uns der Herr, wenn er im Gleichnis fragt: „Warum siehst du den Splitter im Auge deines Bruders \[…\]?“ Durch unwiderlegbare Argumente überzeugt er uns davon, dass wir, anstatt über andere richten zu wollen, vielmehr das eigene Herz durchforschen sollen. Dann fordert er uns auf, uns von den zügellosen Begierden, die sich im Herzen eingenistet haben, zu befreien und dazu die Gnade Gottes zu erbitten. Er ist es ja, der die zerbrochene Herzen heilt und uns von den Krankheiten unserer Seele befreit. Denn wenn die Sünden, die auf dir lasten, größer und schwerer sind als die Sünden anderer: Warum machst du ihnen Vorwürfe und kümmerst dich nicht um deine eigenen? Alle, die gottergeben leben wollen, und vor allem diejenigen, die den Auftrag haben, zu lehren, werden notwendigerweise aus diesem Grundsatz Nutzen ziehen. Wenn sie tugendhaft und nüchtern sind und wenn ihre Taten beispielhaft sind für ein Leben nach dem Evangelium, dann werden sie diejenigen, die sich noch nicht entschlossen haben, ebenso zu handeln, mit Milde zurechtweisen.

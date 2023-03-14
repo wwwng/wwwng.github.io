@@ -1,8 +1,0 @@
----
-title: 'Freitag, 2. Dezember : Symeon der Neue Theologe'
-date: 2022-12-02T08:23:00.001+01:00
-draft: false
-url: /2022/12/freitag-2-dezember-symeon-der-neue.html
----
-
-\[Christus spricht:\] Als ich Adam schuf, gab ich mich ihm zu sehen, und so wurde er zur Würde der Engel erhoben. \[…\] Mit den Augen des Leibes sah er alles, was ich geschaffen hatte; aber mit den Augen des Geistes sah er mein Angesicht, das Angesicht seines Schöpfers. Er schaute meine Herrlichkeit, und allezeit war er im Gespräch mit mir. Doch als er mein Gebot übertrat und von der Frucht des Baumes aß, da wurde er blind und fiel in das Dunkel des Todes. \[…\] Aber ich erbarmte mich seiner und kam herab aus der Höhe. Ich, der ganz und gar Unsichtbare, nahm teil an der Undurchsichtigkeit des Fleisches. Vom Fleisch empfing ich den Beginn der Menschwerdung und wurde sichtbar für alle. Warum habe ich wohl zugestimmt, dies zu tun? Weil der eigentliche Grund, weshalb ich Adam geschaffen hatte, dieser ist: um mich zu sehen. Als er blind geworden war und nach ihm all seine Nachkommen, ertrug ich es nicht, selber in der göttlichen Herrlichkeit zu sein \[…\] und jene im Stich zu lassen, die ich mit meinen Händen geschaffen hatte; sondern ich bin in allem den Menschen gleichgeworden, leibhaftig mit den Leibhaftigen, und habe mich aus freiem Willen mit ihnen vereint. Du siehst, wie groß mein Verlangen ist, von den Menschen gesehen zu werden \[…\]! Wie kannst du da nur sagen, dass ich mich vor dir verberge, dass ich mich nicht sehen lasse? In Wirklichkeit leuchte ich hell, aber du schaust nicht nach mir.

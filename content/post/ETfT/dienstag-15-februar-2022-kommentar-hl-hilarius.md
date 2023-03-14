@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 15 Februar 2022 : Kommentar Hl. Hilarius'
-date: 2022-02-15T09:11:00.001+01:00
-draft: false
-url: /2022/02/dienstag-15-februar-2022-kommentar-hl.html
----
-
-Gott, allmächtiger Vater, dir will ich alles Sinnen und Trachten meines Lebens weihen. Alles in mir, meine Worte und meine Gedanken, sollen von dir handeln. \[…\] Wir sind uns unserer Armut bewusst und bitten dich daher um das, was uns fehlt. In unermüdlichem Eifer wollen wir den Worten deiner Propheten und Apostel nachspüren, wollen an alle Türen klopfen, die unserem Denken verschlossen sind. Doch an dir liegt es, die Bitte zu erfüllen, das Gesuchte zu gewähren, die verschlossene Tür zu öffnen (vgl. Lk 11,9); denn wir leben in einer Art Benommenheit aufgrund der Taubheit unserer Natur. Die Schwäche unseres Geistes hindert uns durch eine unausweichliche Unwissenheit daran, deine Geheimnisse zu begreifen. Glücklicherweise stärkt die Beschäftigung mit deiner Lehre unsere Einsicht in die göttliche Wahrheit, und der Glaubensgehorsam hebt uns über die Denkweise des gewöhnlichen Menschen hinaus. Wir hoffen also, dass du die Anfänge dieses schwierigen Unternehmens anregen, den Fortschritt unseres Vorhabens festigen und uns zur Teilhabe an dem Heiligen Geist berufst, der deine Propheten und Apostel geleitet hat. Wir möchten ihre Worte in dem Sinne verstehen, wie sie gemeint sind, und genaue Begriffe verwenden, um alles, was sie zum Ausdruck brachten, wahrheitsgetreu wiedergeben zu können. \[…\] Gewähre uns also die genaue Bedeutung der Worte zu erfassen, erleuchte unseren Verstand, lass uns die Schönheit des Ausdrucks finden; festige unseren Glauben in der Wahrheit. Gewähre uns, das zu sagen, was wir glauben.

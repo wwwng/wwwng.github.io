@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 14 Oktober 2021 : Kommentar Balduin von Ford'
-date: 2021-10-14T10:11:00.001+02:00
-draft: false
-url: /2021/10/donnerstag-14-oktober-2021-kommentar.html
----
-
-„Gott hat die Welt so sehr geliebt, dass er seinen einzigen Sohn hingab“ (Joh 3,16). Dieser einzige Sohn „wurde geopfert“, nicht, weil seine Feinde gesiegt hatten, sondern „weil er selbst es wollte“ (vgl. Jes 53,10–11). „Da er die Seinen liebte, erwies er ihnen seine Liebe bis zur Vollendung“ (vgl. Joh 13,1). Die Vollendung, das ist der Tod, den er auf sich nimmt für die, die er liebt; das ist die Vollendung aller Vollkommenheit, die Vollendung der vollkommenen Liebe, denn „es gibt keine größere Liebe, als wenn einer sein Leben für seine Freunde hingibt“ (Joh 15,13). Diese Liebe Christi war in seinem Tod stärker als der Hass seiner Feinde; der Hass konnte nur das tun, was die Liebe ihm gestattete. Judas oder die Feinde Christi haben ihn in hasserfüllter Bosheit dem Tod überliefert \[livré\]. Der Vater hat seinen Sohn hingegeben \[livré\], und der Sohn hat sich selbst aus Liebe hingegeben \[livré\] (vgl. Röm 8,32; Gal 2,20). Die Liebe macht sich jedoch nicht des Verrats schuldig; sie ist unschuldig, auch wenn Christus daran stirbt. Denn nur die Liebe kann ungestraft tun, was ihr gefällt. Nur die Liebe kann Gott zu etwas zwingen und ihm gleichsam befehlen. Sie war es, die ihn vom Himmel herabsteigen ließ und ihn ans Kreuz brachte; sie war es, die das Blut Christi zur Vergebung der Sünden vergossen hat, in einem ebenso unschuldigen wie heilswirksamen Akt. Unser ganzer Dank für das Heil der Welt ist also der Liebe geschuldet. Und sie drängt uns mit zwingender Logik dazu, Christus so sehr zu lieben, wie andere ihn zu hassen imstande waren.

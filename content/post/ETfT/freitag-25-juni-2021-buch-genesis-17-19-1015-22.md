@@ -1,8 +1,0 @@
----
-title: 'Freitag, 25 Juni 2021 : Buch Genesis 17,1.9-10.15-22.'
-date: 2021-06-25T07:27:00.001+02:00
-draft: false
-url: /2021/06/freitag-25-juni-2021-buch-genesis-1719.html
----
-
-Als Abram neunundneunzig Jahre alt war, erschien ihm der Herr und sprach zu ihm: Ich bin Gott, der Allmächtige. Geh deinen Weg vor mir, und sei rechtschaffen! Und Gott sprach zu Abraham: Du aber halte meinen Bund, du und deine Nachkommen, Generation um Generation. Das ist mein Bund zwischen mir und euch samt deinen Nachkommen, den ihr halten sollt: Alles, was männlich ist unter euch, muss beschnitten werden. Weiter sprach Gott zu Abraham: Deine Frau Sarai sollst du nicht mehr Sarai nennen, sondern Sara - Herrin - soll sie heißen. Ich will sie segnen und dir auch von ihr einen Sohn geben. Ich segne sie, so dass Völker aus ihr hervorgehen; Könige über Völker sollen ihr entstammen. Da fiel Abraham auf sein Gesicht nieder und lachte. Er dachte: Können einem Hundertjährigen noch Kinder geboren werden, und kann Sara als Neunzigjährige noch gebären? Dann sagte Abraham zu Gott: Wenn nur Ismael vor dir am Leben bleibt! Gott entgegnete: Nein, deine Frau Sara wird dir einen Sohn gebären, und du sollst ihn Isaak nennen. Ich werde meinen Bund mit ihm schließen als einen ewigen Bund für seine Nachkommen. Auch was Ismael angeht, erhöre ich dich. Ja, ich segne ihn, ich lasse ihn fruchtbar und sehr zahlreich werden. Zwölf Fürsten wird er zeugen, und ich mache ihn zu einem großen Volk. Meinen Bund aber schließe ich mit Isaak, den dir Sara im nächsten Jahr um diese Zeit gebären wird. Als Gott das Gespräch beendet hatte, verließ er Abraham und fuhr zur Höhe auf.

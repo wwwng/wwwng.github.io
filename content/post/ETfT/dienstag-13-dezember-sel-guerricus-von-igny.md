@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 13. Dezember : Sel. Guerricus von Igny'
-date: 2022-12-13T08:23:00.001+01:00
-draft: false
-url: /2022/12/dienstag-13-dezember-sel-guerricus-von.html
----
-
-Diese Lampe, die dazu bestimmt ist, die Welt zu erleuchten, bringt mir eine neue Freude, denn durch sie habe ich das wahre Licht erkannt, das in der Finsternis leuchtet, das aber von der Finsternis nicht erfasst wurde (vgl. Joh 1,5). \[…\] Wir können dich, Johannes, bewundern als den größten aller Heiligen; aber deine Heiligkeit nachzuahmen, das ist uns nicht möglich. Da du dich beeilst, aus Zöllnern und Sündern ein vollkommenes Volk für den Herrn vorzubereiten, ist es dringend notwendig, dass du zu ihnen in einer Weise sprichst, die ihnen eher zugänglich ist als durch dein Leben. Biete ihnen ein Modell der Vollkommenheit an, das nicht deiner Lebensweise entspricht, sondern der Schwäche der menschlichen Kräfte angepasst ist. „Bringt Frucht hervor, die eure Umkehr zeigt“ (Mt 3,8). Wir aber, Brüder, wir rühmen uns, dass wir besser reden als leben. Johannes freilich, dessen Lebensstil zu erhaben ist, als dass die Menschen dafür Verständnis aufbrächten, redet so, dass die Menschen verstehen, was er meint. „Bringt Frucht hervor, die eure Umkehr zeigt“! „Ich spreche zu euch auf menschliche Weise und nehme Rücksicht auf die Schwachheit des Fleisches. Wenn ihr das Gute noch nicht in vollem Umfang tun könnt, so sei doch wenigstens aufrichtige Reue in euch über das, was schlecht ist. Wenn ihr noch nicht die Früchte einer vollkommenen Gerechtigkeit hervorbringen könnt, so soll eure Vollkommenheit im Augenblick darin bestehen, Frucht hervorzubringen, die eure Umkehr zeigt.“

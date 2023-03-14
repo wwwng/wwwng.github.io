@@ -1,8 +1,0 @@
----
-title: 'Sonntag, 17. Juli : Hl. Teresa von Avila'
-date: 2022-07-17T09:23:00.001+02:00
-draft: false
-url: /2022/07/sonntag-17-juli-hl-teresa-von-avila.html
----
-
-Die heilige Marta war eine Heilige, auch wenn gesagt wird, sie sei nicht kontemplativ gewesen. Was wollt ihr mehr verlangen, als dieser glücklichen Frau zu gleichen, die würdig war, Christus, unseren Herrn, so oft in ihrem Haus zu beherbergen, ihm zu essen zu geben, ihn zu bedienen und mit ihm an einem Tisch zu essen? Wäre sie vertieft gewesen wie Magdalena, hätte niemand dem göttlichen Gast zu essen gegeben. Stellt euch also vor, dieses Kloster sei das Haus der heiligen Marta, in dem beides notwendig ist. Darum sollen diejenigen, die den Weg des aktiven Lebens geführt werden, nicht über jene murren, die sich ganz in Beschauung vertiefen \[…\] Sie \[…\] sollen sich glücklich schätzen, ihm mit Marta dienen zu dürfen. Sie dürfen nicht vergessen, dass echte Demut vor allem darin besteht, in voller Bereitwilligkeit und Freude das zu tun, was der Herr von uns will, und sich immer für unwürdig zu halten, seine Diener genannt zu werden. Wenn nun alles: Beschauung, inneres oder mündliches Gebet, die Pflege der Kranken, die häuslichen Dienste und die niedrigste Arbeit – wenn das alles nichts anderes als Dienst am göttlichen Gast ist, der bei uns verweilen, mit uns essen und sich bei uns erholen will, was bekümmert es uns da, ob wir ihm in der einen oder in der anderen Weise dienen? Damit will ich nicht sagen, dass wir nicht alles tun sollen, was an uns liegt, um zur Beschauung zu gelangen, sondern dass ihr euch in allen Diensten üben sollt. Denn nicht euch steht die Wahl zu, sondern dem Herrn. \[…\] Überlasst alles dem Herrn des Hauses!

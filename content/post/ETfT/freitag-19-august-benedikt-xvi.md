@@ -1,8 +1,0 @@
----
-title: 'Freitag, 19. August : Benedikt XVI.'
-date: 2022-08-19T09:23:00.001+02:00
-draft: false
-url: /2022/08/freitag-19-august-benedikt-xvi.html
----
-
-Hier zeigt sich die notwendige Wechselwirkung zwischen Gottes- und Nächstenliebe \[…\]. Wenn die Berührung mit Gott in meinem Leben ganz fehlt, dann kann ich im anderen immer nur den anderen sehen und kann das göttliche Bild in ihm nicht erkennen. Wenn ich aber die Zuwendung zum Nächsten aus meinem Leben ganz weglasse und nur „fromm“ sein möchte, nur meine „religiösen Pflichten“ tun, dann verdorrt auch die Gottesbeziehung. Dann ist sie nur noch „korrekt“, aber ohne Liebe. Nur meine Bereitschaft, auf den Nächsten zuzugehen, ihm Liebe zu erweisen, macht mich auch fühlsam Gott gegenüber. Nur der Dienst am Nächsten öffnet mir die Augen dafür, was Gott für mich tut und wie er mich liebt. Die Heiligen – denken wir zum Beispiel an die sel. Theresa von Kalkutta – haben ihre Liebesfähigkeit dem Nächsten gegenüber immer neu aus ihrer Begegnung mit dem eucharistischen Herrn geschöpft, und umgekehrt hat diese Begegnung ihren Realismus und ihre Tiefe eben von ihrem Dienst an den Nächsten her gewonnen. Gottes- und Nächstenliebe sind untrennbar: Es ist nur ein Gebot. Beides aber lebt von der uns zuvorkommenden Liebe Gottes, der uns zuerst geliebt hat. So ist es nicht mehr „Gebot“ von außen her, das uns Unmögliches vorschreibt, sondern geschenkte Erfahrung der Liebe von innen her, die ihrem Wesen nach sich weiter mitteilen muss. Liebe wächst durch Liebe. Sie ist „göttlich“, weil sie von Gott kommt und uns mit Gott eint, uns in diesem Einungsprozess zu einem Wir macht, das unsere Trennungen überwindet und uns eins werden lässt, so dass am Ende „Gott alles in allem“ ist (vgl. 1 Kor 15, 28).

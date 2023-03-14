@@ -1,8 +1,0 @@
----
-title: 'Montag, 5 Juli 2021 : Kommentar Hl. Franziskus von Assisi'
-date: 2021-07-05T10:11:00.001+02:00
-draft: false
-url: /2021/07/montag-5-juli-2021-kommentar-hl.html
----
-
-Hört, meine Brüder: Wenn die selige Jungfrau so geehrt wird, wie es sich geziemt, weil sie ihn in ihrem heiligsten Schoß getragen hat; wenn der selige \[Johannes der\] Täufer erzitterte und nicht wagte, den heiligen Scheitel Gottes zu berühren; wenn das Grab verehrt wird, in dem er eine Zeitlang gelegen hat, wie heilig, gerecht und würdig muss dann der sein, der den, der nicht mehr sterben, sondern ewig leben und verherrlicht sein wird, den zu schauen die Engel sich sehnen (1 Petr 1,12), mit den Händen berührt, mit dem Herzen und Munde empfängt und anderen zum Empfang darreicht! Seht eure Würde, ihr Brüder Priester, und seid heilig, weil er selbst heilig ist (vgl. Lev 19,2)! \[…\] Es ist ein großes Elend und eine beklagenswerte Schwäche, wenn ihr euch, während ihr ihn so gegenwärtig habt, noch um irgendetwas anderes in der ganzen Welt kümmert. Der ganze Mensch erschauere, die ganze Welt erbebe, und der Himmel juble, wenn auf dem Altar in der Hand des Priesters Christus, der Sohn des lebendigen Gottes, ist (Joh 11,27)! O wunderbare Hoheit und staunenswerte Herablassung! O erhabene Demut! O demütige Erhabenheit, dass der Herr des Alls, Gott und Gottes Sohn, sich so erniedrigt, dass er sich zu unserem Heil unter der anspruchslosen Gestalt des Brotes verbirgt! Seht, Brüder, die Demut Gottes und schüttet vor ihm eure Herzen aus (Ps 62(61),9)! Erniedrigt auch ihr euch, damit ihr von ihm erhöht werdet (vgl. 1 Petr 5,6; Jak 4,10)! Behaltet darum nichts von euch für euch zurück, damit euch ganz aufnehme, der sich euch ganz hingibt! .

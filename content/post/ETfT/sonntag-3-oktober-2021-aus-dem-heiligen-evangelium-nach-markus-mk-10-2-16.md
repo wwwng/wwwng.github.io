@@ -1,8 +1,0 @@
----
-title: 'Sonntag, 3 Oktober 2021 : Aus dem Heiligen Evangelium nach Markus - Mk 10,2-16.'
-date: 2021-10-03T09:27:00.001+02:00
-draft: false
-url: /2021/10/sonntag-3-oktober-2021-aus-dem-heiligen.html
----
-
-Da kamen Pharisäer zu ihm und fragten: Darf ein Mann seine Frau aus der Ehe entlassen? Damit wollten sie ihm eine Falle stellen. Er antwortete ihnen: Was hat euch Mose vorgeschrieben? Sie sagten: Mose hat erlaubt, eine Scheidungsurkunde auszustellen und die Frau aus der Ehe zu entlassen. Jesus entgegnete ihnen: Nur weil ihr so hartherzig seid, hat er euch dieses Gebot gegeben. Am Anfang der Schöpfung aber hat Gott sie als Mann und Frau geschaffen. Darum wird der Mann Vater und Mutter verlassen, und die zwei werden ein Fleisch sein. Sie sind also nicht mehr zwei, sondern eins. Was aber Gott verbunden hat, das darf der Mensch nicht trennen. Zu Hause befragten ihn die Jünger noch einmal darüber. Er antwortete ihnen: Wer seine Frau aus der Ehe entlässt und eine andere heiratet, begeht ihr gegenüber Ehebruch. Auch eine Frau begeht Ehebruch, wenn sie ihren Mann aus der Ehe entlässt und einen anderen heiratet. Da brachte man Kinder zu ihm, damit er ihnen die Hände auflegte. Die Jünger aber wiesen die Leute schroff ab. Als Jesus das sah, wurde er unwillig und sagte zu ihnen: Lasst die Kinder zu mir kommen; hindert sie nicht daran! Denn Menschen wie ihnen gehört das Reich Gottes. Amen, das sage ich euch: Wer das Reich Gottes nicht so annimmt, wie ein Kind, der wird nicht hineinkommen. Und er nahm die Kinder in seine Arme; dann legte er ihnen die Hände auf und segnete sie.

@@ -1,8 +1,0 @@
----
-title: 'Sonntag, 12 Dezember 2021 : Kommentar Hl. Johannes Paul II.'
-date: 2021-12-12T09:11:00.001+01:00
-draft: false
-url: /2021/12/sonntag-12-dezember-2021-kommentar-hl.html
----
-
-„Freut euch im Herrn zu jeder Zeit! \[…\] Der Herr ist nahe“ (Phil 4,4–5). Mit diesen Worten des Apostels Paulus lädt uns die Liturgie zur Freude ein. Der heutige dritte Sonntag in der Adventszeit wird aus diesem Grund auch „Gaudete“ genannt. \[…\] Der Advent ist eine Zeit der Freude, denn er lässt uns aufs neue die Erwartung des freudigsten Ereignisses der Geschichte erleben: die Geburt des Sohnes Gottes aus der Jungfrau Maria. Zu wissen, dass Gott nicht fern ist, sondern nahe, nicht gleichgültig, sondern mitleidsvoll, nicht ein Fremder, sondern ein barmherziger Vater, der sich unter Achtung unserer Freiheit liebevoll um uns kümmert: all dies ist Grund zu tiefer Freude, der selbst die Wechselfälle des alltäglichen Lebens nichts anhaben können. Es ist ein unverwechselbares Kennzeichen der christlichen Freude, dass sie sehr wohl auch neben dem Leid bestehen kann, denn sie gründet vollkommen auf der Liebe. In der Tat kommt der Herr – der uns so „nahe“ ist, dass er Mensch wurde –, um uns seine Freude, die Freude zu lieben, einzuflößen. Nur so lässt sich die unbeschwerte Freude der Märtyrer verstehen auch inmitten aller Prüfungen oder das Lächeln der Heiligen der Nächstenliebe angesichts der Menschen im Elend: ein Lächeln, das nicht verletzt, sondern tröstet. „Sei gegrüßt, du Begnadete, der Herr ist mit dir“ (Lk 1,28). Die Verkündigung des Engels an Maria ist eine Einladung zur Freude. Bitten wir die allerseligste Jungfrau um die Gabe der christlichen Freude.

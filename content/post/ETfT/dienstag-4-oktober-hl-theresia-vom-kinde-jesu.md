@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 4. Oktober : Hl. Theresia vom Kinde Jesu'
-date: 2022-10-04T09:23:00.001+02:00
-draft: false
-url: /2022/10/dienstag-4-oktober-hl-theresia-vom.html
----
-
-Eine von Liebe entflammte Seele kann nicht untätig bleiben; gewiss sitzt sie wie die Hl. Magdalena zu Füßen Jesu, sie lauscht seinem süßen, feurigen Wort. Sie scheint nichts zu geben und gibt doch viel mehr als Martha, die sich um viele Dinge plagt und möchte, dass ihre Schwester es ihr gleichtäte. Nicht die Arbeiten Marthas sind es, die Jesus tadelt, diesen Arbeiten hat sich seine göttliche Mutter ihr ganzes Leben lang demütig unterzogen, da sie die Mahlzeiten der Hl. Familie zubereiten musste. Einzig die Unrast seiner eifrigen Gastgeberin wollte Jesus zurechtweisen. Alle Heiligen haben das begriffen und eindringlicher noch vielleicht jene, die das Weltall mit der Erleuchtung der evangelischen Lehre erfüllten. Ein Paulus, Augustinus, Johannes vom Kreuz, Thomas von Aquin, Franziskus, Dominikus und so viele andere erlauchte Freunde Gottes, schöpften sie nicht alle ihre Göttliche Erkenntnis, welche die größten Geister entzückt, aus dem Gebet? Ein Gelehrter hat gesagt: „Gebt mir einen Hebel, einen Stützpunkt, und ich werde die Welt aus den Angeln heben.“ Was Archimedes nicht erreichen konnte, weil seine Forderung sich nicht an Gott richtete und nur das Stoffliche betraf, das erlangten die Heiligen in seiner ganzen Fülle. Der Allmächtige gab ihnen als Stützpunkt: GOTT SELBST und GOTT ALLEIN; als Hebel: Das Gebet, das mit einem Liebesfeuer entflammt, und auf diese Art haben sie die Welt aus den Angeln gehoben; und auf diese Art heben die heute streitenden Heiligen sie aus den Angeln, und bis zum Ende der Welt werden es die künftigen Heiligen ebenfalls tun.

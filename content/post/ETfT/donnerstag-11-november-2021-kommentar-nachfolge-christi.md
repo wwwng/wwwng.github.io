@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 11 November 2021 : Kommentar Nachfolge Christi'
-date: 2021-11-11T09:11:00.001+01:00
-draft: false
-url: /2021/11/donnerstag-11-november-2021-kommentar.html
----
-
-„Das Reich Gottes ist in euch“, spricht der Herr (Lk 17,20f.). \[…\] Eia, gläubige Seele, richte diesem Gemahl dein Herz, so oft er zu dir kommen und in dir wohnen will. Er spricht: „Wenn einer mich liebt, wird er mein Wort halten. Wir werden zu ihm kommen und Wohnung bei ihm nehmen“ (Joh 14,23). Schaffe also Raum für Christus und verwehre allem Übrigen den Eintritt. Ist Christus in dir, so bist du reich und hast genug. Er sorgt treu für dich in allem, dass du nicht nötig hast, auf Menschen zu rechnen. Die Menschen sind veränderlich und siechen schnell dahin. Christus bleibt in Ewigkeit, er stützt dich mächtig bis ans Ende. Auf einen Menschen, gebrechlich und sterblich wie er ist, sollst du kein großes Vertrauen setzen, wenn er auch lieb und von Nutzen ist. Du sollst auch nicht traurig werden, wenn man dir feind ist und dir zuweilen zusetzt. Wer heute zu dir steht, kann morgen dein Feind sein und ebenso umgekehrt. Die Menschen schlagen um wie der Wind. Baue dein ganzes Vertrauen auf Gott, er sei deine Furcht und deine Liebe. Er gibt die Antwort für dich und macht es so gut, wie es besser nicht sein könnte. „Du hast hier keine bleibende Stätte“ (Hebr 13,14). Wo du auch seist, bist du Fremdling und Pilger. Du wirst nirgends Ruhe finden, aber der innige Anschluss an Christus gewährt sie.

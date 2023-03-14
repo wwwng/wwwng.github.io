@@ -1,8 +1,0 @@
----
-title: 'Montag, 27. Juni : Buch Amos 2,6-10.13-16.'
-date: 2022-06-27T07:17:00.001+02:00
-draft: false
-url: /2022/06/montag-27-juni-buch-amos-26-1013-16.html
----
-
-So spricht der Herr: Wegen der drei Verbrechen, die Israel beging, wegen der vier nehme ich es nicht zurück: Weil sie den Unschuldigen für Geld verkaufen und den Armen für ein Paar Sandalen, weil sie die Kleinen in den Staub treten und das Recht der Schwachen beugen. Sohn und Vater gehen zum selben Mädchen, um meinen heiligen Namen zu entweihen. Sie strecken sich auf gepfändeten Kleidern aus neben jedem Altar, von Bußgeldern kaufen sie Wein und trinken ihn im Haus ihres Gottes. Dabei bin ich es gewesen, der vor ihren Augen die Amoriter vernichtete, die groß waren wie die Zedern und stark wie die Eichen; ich habe oben ihre Frucht vernichtet und unten ihre Wurzeln. Ich bin es gewesen, der euch aus Ägypten heraufgeführt und euch vierzig Jahre lang durch die Wüste geleitet hat, damit ihr das Land der Amoriter in Besitz nehmen konntet. Seht, ich lasse den Boden unter euch schwanken, wie ein Wagen schwankt, der voll ist von Garben. Dann gibt es auch für den Schnellsten keine Flucht mehr, dem Starken versagen die Kräfte, auch der Held kann sein Leben nicht retten. Kein Bogenschütze hält stand, dem schnellen Läufer helfen seine Beine nichts, noch rettet den Reiter sein Pferd. Selbst der Tapferste unter den Kämpfern, nackt muss er fliehen an jenem Tag.

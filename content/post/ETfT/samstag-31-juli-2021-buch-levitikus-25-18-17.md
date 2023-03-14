@@ -1,8 +1,0 @@
----
-title: 'Samstag, 31 Juli 2021 : Buch Levitikus 25,1.8-17.'
-date: 2021-07-31T07:27:00.001+02:00
-draft: false
-url: /2021/07/samstag-31-juli-2021-buch-levitikus.html
----
-
-Der Herr sprach zu Mose auf dem Berg Sinai: Du sollst sieben Jahreswochen, siebenmal sieben Jahre, zählen; die Zeit von sieben Jahreswochen ergibt für dich neunundvierzig Jahre. Im siebten Monat, am zehnten Tag des Monats, sollst du das Signalhorn ertönen lassen; am Versöhnungstag sollt ihr das Horn im ganzen Land ertönen lassen. Erklärt dieses fünfzigste Jahr für heilig, und ruft Freiheit für alle Bewohner des Landes aus! Es gelte euch als Jubeljahr. Jeder von euch soll zu seinem Grundbesitz zurückkehren, jeder soll zu seiner Sippe heimkehren. Dieses fünfzigste Jahr gelte euch als Jubeljahr. Ihr sollt nicht säen, den Nachwuchs nicht abernten, die unbeschnittenen Weinstöcke nicht lesen. Denn es ist ein Jubeljahr, es soll euch als heilig gelten. Vom Feld weg sollt ihr den Ertrag essen. In diesem Jubeljahr soll jeder von euch zu seinem Besitz zurückkehren. Wenn du deinem Stammesgenossen etwas verkaufst oder von ihm etwas kaufst, sollt ihr einander nicht übervorteilen. Kaufst du von deinem Stammesgenossen, so berücksichtige die Zahl der Jahre nach dem Jubeljahr; verkauft er dir, dann soll er die noch ausstehenden Ertragsjahre berücksichtigen. Je höher die Anzahl der Jahre, desto höher berechne den Kaufpreis; je geringer die Anzahl der Jahre, desto weniger verlang von ihm; denn es ist die Zahl von Ernteerträgen, die er dir verkauft. Ihr sollt einander nicht übervorteilen. Fürchte deinen Gott; denn ich bin der Herr, euer Gott.

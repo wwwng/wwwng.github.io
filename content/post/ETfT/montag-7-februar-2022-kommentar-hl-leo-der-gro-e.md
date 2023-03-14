@@ -1,8 +1,0 @@
----
-title: 'Montag, 7 Februar 2022 : Kommentar Hl. Leo der Große'
-date: 2022-02-07T09:11:00.001+01:00
-draft: false
-url: /2022/02/montag-7-februar-2022-kommentar-hl-leo.html
----
-
-Indem unser Herr Jesus Christus als wahrer Mensch geboren wurde, er, der nie aufgehört hat, wahrer Gott zu sein, hat er in sich den Anbruch der neuen Schöpfung verwirklicht, und in seiner Geburt hat er der Menschheit einen geistlichen Neubeginn geschenkt. Welcher Verstand könnte ein solches Geheimnis verstehen, wer könnte eine solche Gnade beschreiben? Ungerechtigkeit wird wieder zu Unschuld, Altes wird zu Neuem; Fremde werden an Kindes statt angenommen und Menschen, die von außerhalb kommen, treten den Besitz des Erbes an. Frevler werden zu Gerechten, Habgierige zu Großzügigen, Unzüchtige zu Keuschen; irdisch gesinnte zu geistlich gesinnten Menschen. Woher kommt eine solche Veränderung, wenn nicht von „der Rechten des Höchsten“ (vgl. Ps 77(76),11)? Das ist der Sohn Gottes, der gekommen ist, um die Werke des Teufels zu zerstören; er hat sich uns eingegliedert und uns sich, sodass der Herabstieg Gottes in die Welt des Menschen zu einer Erhebung des Menschen in die Welt Gottes wurde. \[…\] Lass deine Augen das sinnenhafte Licht empfangen, aber umfasse mit deinem ganzen Geist jenes wahre Licht, das „jeden Menschen erleuchtet und in die Welt kam“ (vgl. Joh 1,9), und von dem der Prophet sagt: „Blickt auf zu ihm, so wird euer Gesicht leuchten, und ihr braucht nicht zu erröten“ (Ps 34(33),6). Wenn wir wirklich der Tempel Gottes sind und der Geist Gottes in uns wohnt (vgl. 1 Kor 3,16), dann ist das, was jeder Gläubige in seiner Seele trägt, wertvoller als das, was man im Himmel bewundern kann.

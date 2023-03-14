@@ -1,8 +1,0 @@
----
-title: 'Montag, 14 Februar 2022 : Kommentar Hl. Johannes Paul II.'
-date: 2022-02-14T09:11:00.001+01:00
-draft: false
-url: /2022/02/montag-14-februar-2022-kommentar-hl.html
----
-
-Dieser intensive Wunsch nach geistlicher Einheit zwischen allen Christgläubigen inspirierte die beiden heiligen Brüder Kyrill und Methodius in ihrer Mission, die darauf abzielte, die von ihnen evangelisierten Völker im entstehenden Europa zu einem Band der Einheit zwischen Ost und West zu machen. Zu diesem Zweck beschlossen Kyrill und Methodius, die heiligen Bücher in die slawische Sprache zu übersetzen. Sie „haben auf diese Weise die Grundlagen für die gesamte Literatur in den Sprachen dieser Völker gelegt.“ \[…\] Gott in der Muttersprache preisen, sich der eigenen nationalen und kulturellen Identität bewusst zu sein und gleichzeitig die tiefste Einheit aller Christen in Ost und West herbeizuführen: Ist das nicht das Missionsprogramm, das erst vor kurzem vom II. Vatikanischen Konzil bestätigt und empfohlen wurde? Die Tatsache, dass ein solches Programm schon vor elf Jahrhunderten vom Römischen Stuhl gutgeheißen und gefördert wurde, war sicherlich eines der großen „Zeichen der Zeit“, die ein neues Gesicht für das entstehende Europa ankündigten. Trotz der Höhen und Tiefen und der großen Schwierigkeiten, die sich im Lauf der Geschichte ergeben haben, können wir anerkennen, dass die slawische Liturgie und die Kultur, die auf den von den beiden heiligen Brüdern gelegten Fundamenten aufgebaut sind, auch heute noch ein unbestreitbares Zeugnis geben für die lebendige Kontinuität des Erbes dieser beiden Heiligen. Auch war der Wunsch nach der vollen Einheit der Christen unter den slawischen Völkern oft zu spüren, vor allem in Zeiten des Unglücks.

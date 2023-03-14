@@ -1,8 +1,0 @@
----
-title: 'Montag, 31 Mai 2021 : Buch Tobias 1,3.2,1b-8.'
-date: 2021-05-31T07:14:00.001+02:00
-draft: false
-url: /2021/05/montag-31-mai-2021-buch-tobias-1321b-8.html
----
-
-Anfang der Geschichte Tobits. Ich, Tobit, habe mich mein ganzes Leben lang an den Weg der Wahrheit und Gerechtigkeit gehalten und ich habe den Brüdern aus meinem Stamm und meinem Volk, die mit mir zusammen in das Land der Assyrer nach Ninive gekommen waren, aus Barmherzigkeit viel geholfen. Als ich heimkehrte und meine Frau Hanna und mein Sohn Tobias mir wiedergeschenkt waren, veranstaltete man mir zu Ehren am Pfingsttag - dem Fest der Sieben Wochen - ein Festmahl. Man veranstaltete mir zu Ehren am Pfingsttag - dem Fest der Sieben Wochen - ein Festmahl. Ich setzte mich zu Tisch; als ich aber die vielen Speisen sah, sagte ich zu meinem Sohn: Geh zu unseren Brüdern, und wenn du einen Armen findest, der dem Herrn treu geblieben ist, bring ihn her; ich warte auf dich. Er kam zurück und sagte: Auf dem Marktplatz liegt einer von unserem Volk, den man erdrosselt hat. Ich sprang auf, noch ehe ich etwas gegessen hatte, und verbarg den Toten bis zum Sonnenuntergang in einer Hütte. Nach meiner Rückkehr wusch ich mich und aß voll Trauer mein Mahl. Ich erinnerte mich an das Wort des Propheten Amos: Eure Feste sollen sich in Trauer verwandeln und alle eure Freudenlieder in Totenklage. Und ich begann zu weinen. Nach Sonnenuntergang ging ich hinaus, um ein Grab zu schaufeln, und begrub den Toten. Meine Nachbarn aber sagten hämisch: Er hat schon gar keine Angst mehr, wegen dieser Tat hingerichtet zu werden. Eben erst hat er fliehen müssen und schon begräbt er wieder die Toten.

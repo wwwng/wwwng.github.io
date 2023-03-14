@@ -1,8 +1,0 @@
----
-title: 'Montag, 18. Juli : Hl. Ephräm'
-date: 2022-07-18T09:23:00.001+02:00
-draft: false
-url: /2022/07/montag-18-juli-hl-ephram.html
----
-
-Nach all den Zeichen, die unser Herr getan hatte, sagten diese Blinden, die nichts gesehen hatten, zu ihm: „Wir möchten von dir ein Zeichen sehen“. Unser Herr ließ die Könige und Propheten, seine Zeugen, beiseite und wandte sich an die Einwohner von Ninive. \[…\] Jona hatte ihnen die Vernichtung angekündigt, hatte ihnen Furcht eingeflößt und unter ihnen Bestürzung hervorgerufen. Und sie brachten ihm die Garbe der Zerknirschung der Seele und die Früchte der Buße dar. Die fremden Völker wurden also auserwählt, die Unbeschnittenen näherten sich Gott, die Heiden empfingen das Leben, und die Sünder bekehrten sich. \[…\] „Sie forderten von ihm ein Zeichen vom Himmel“ (vgl. Lk 11,16), zum Beispiel gewaltigen Donner wie bei Samuel (vgl. 1 Sam 7,10). \[…\] Sie hatten eine Predigt gehört, die aus der Höhe kam und glaubten nicht; daher stieg die Predigt nun aus der Tiefe herauf. \[…\] „Wie Jona im Bauch des Fisches war, so wird der Menschensohn im Innern der Erde sein“ (vgl. Mt 12,40). \[…\] Jona stieg aus dem Meer und predigte den Leuten von Ninive, die dann Buße taten und gerettet wurden. So sandte auch unser Herr, nachdem er seinen Leib aus dem Reich des Todes hatte auferstehen lassen, seine Apostel zu den Heiden: Und diese wurden vollständig bekehrt und empfingen die Fülle des Lebens.

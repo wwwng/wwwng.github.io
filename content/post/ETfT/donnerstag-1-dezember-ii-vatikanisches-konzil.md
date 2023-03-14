@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 1. Dezember : II. Vatikanisches Konzil'
-date: 2022-12-01T08:23:00.001+01:00
-draft: false
-url: /2022/12/donnerstag-1-dezember-ii-vatikanisches.html
----
-
-Die Christen können, eingedenk des Wortes des Herrn: „Daran werden alle erkennen, dass ihr meine Jünger seid, wenn ihr einander liebt“ (Joh 13,35), nichts sehnlicher wünschen, als den Menschen unserer Zeit immer großherziger und wirksamer zu dienen. Dem Evangelium gewissenhaft folgend und aus seinen Kräften lebend, verbunden mit allen, die die Gerechtigkeit lieben und pflegen, haben sie das große Werk, das sie hier auf Erden zu erfüllen haben, begonnen, über das sie ihm, der am Jüngsten Tag alle richten wird, Rechenschaft geben müssen. Nicht alle, die sagen „Herr, Herr“, werden ins Himmelreich eingehen, sondern die den Willen des Vaters tun (vgl. Mt 7,21) und tatkräftig ans Werk gehen. Der Vater will, dass wir in allen Menschen Christus als Bruder sehen und lieben in Wort und Tat und so der Wahrheit Zeugnis geben und anderen das Geheimnis der Liebe des himmlischen Vaters mitteilen. Auf diese Weise wird in den Menschen überall in der Welt eine lebendige Hoffnung erweckt, die eine Gabe des Heiligen Geistes ist, dass sie am Ende in Frieden und vollkommenem Glück aufgenommen werden in das Vaterland, das von der Herrlichkeit des Herrn erfüllt ist. „Dem aber, der Macht hat, gemäß der in uns wirkenden Kraft weitaus mehr zu tun als alles, was wir erbitten oder ersinnen, ihm sei Ehre in der Kirche und in Christus Jesus durch alle Geschlechter von Ewigkeit zu Ewigkeit. Amen“ (Eph 3,20–21).

@@ -1,8 +1,0 @@
----
-title: 'Freitag, 5. August : Hl. Johannes vom Kreuz'
-date: 2022-08-05T09:23:00.001+02:00
-draft: false
-url: /2022/08/freitag-5-august-hl-johannes-vom-kreuz.html
----
-
-Aus freier Wahl verlor ich mich und ward gewonnen. So handelt die von Liebe zu Gott ergriffene Seele; sie verlangt keinen Gewinn und keine Belohnung, sondern hat nur den einen Wunsch, alles und sich selbst zu verlieren, um Gott anzugehören. Und dieses Verlieren hält sie für Gewinn. Dies ist der Sinn des Ausspruches des heiligen Paulus, der da sagt: Mori lucrum. D.h. geistiger Weise allen Dingen und mir selbst absterben für Christus, das ist mein Gewinn (vgl. Phil 1,21). Darum ruft die Seele aus: „Ich ward gewonnen“. Wer sich nicht so zu verlieren weiß, der gewinnt sich nicht, sondern verliert sich, wie unser Herr im Evangelium spricht: „Wer seine Seele gewinnen will, wird sie verlieren, wer sie aber verliert um meinetwillen, wird sie gewinnen“ (Mt 16,25). Wollen wir nun diesen Vers mehr geistigerweise auffassen, entsprechend dem Zweck unserer Abhandlung, dann hat er folgenden Sinn: Ist die Seele auf ihrem geistlichen Wege dahin gelangt, dass sie sich in ihrem Verkehr mit Gott der natürlichen Mittel und Wege ihrer Tätigkeit nicht mehr bedient, ihn nicht mehr mittels Betrachtungen, Bilder und Wahrnehmungen noch auch mittels anderer Empfindungen von seiten der Geschöpfe und Sinne sucht, sondern dies alles sowie ihre gewohnten Weisen verlässt und im Glauben und in Liebe mit Gott verkehrt, dann kann sie in aller Wahrheit sagen, sie sei für Gott gewonnen. Denn jetzt ist sie in Wirklichkeit für alles verloren, was nicht Gott ist, sowie auch für das, was sie in sich ist.

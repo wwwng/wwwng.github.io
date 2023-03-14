@@ -1,8 +1,0 @@
----
-title: 'Freitag, 14 Januar 2022 : Kommentar Hl. Petrus Chrysologus'
-date: 2022-01-14T09:11:00.001+01:00
-draft: false
-url: /2022/01/freitag-14-januar-2022-kommentar-hl.html
----
-
-Jesus „kam in seine Stadt. Da brachte man auf einer Tragbahre einen Gelähmten zu ihm. Als Jesus“, so heißt es, „ihren Glauben sah, sagte er zu dem Gelähmten: Hab Vertrauen, mein Sohn, deine Sünden sind dir vergeben!“ (Mt 9,1–2). Der Gelähmte vernimmt das Wort „Vergebung“ und schweigt. Er äußert nicht ein Wort des Dankes, weil er mehr nach der Heilung seines Leibes als seiner Seele verlangte. So sehr beweinte er die Schmerzen seines entkräfteten Leibes, die doch nur eine Zeit dauerten, dass er die ewigen Strafen des Seelentodes nicht betrauerte; das zeigt, dass er das jetzige Leben höher einschätzte als das zukünftige. Mit Recht richtete daher der Herr sein Auge auf den Glauben derer, die den Kranken brachten, und sieht nicht auf die Verständnislosigkeit dessen, der daliegt, damit durch die Bitte fremden Glaubens die Seele des Gelähmten eher geheilt würde als der Leib. „Als Jesus ihren Glauben sah“, heißt es. Hier seht ihr, Brüder, dass Gott nicht den Wunsch der Toren sucht, nicht auf den Glauben der Unwissenden schaut, nicht die törichten Wünsche der Kranken erforscht, sondern dass er auf den Glauben eines anderen hin zu Hilfe kommt; denn aus bloßer Gnade spendete er \[seine Hilfe\], da er nicht verweigerte, was er mit seinem göttlichen Willen spenden wollte.

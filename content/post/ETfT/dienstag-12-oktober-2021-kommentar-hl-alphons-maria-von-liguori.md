@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 12 Oktober 2021 : Kommentar Hl. Alphons-Maria von Liguori'
-date: 2021-10-12T10:11:00.001+02:00
-draft: false
-url: /2021/10/dienstag-12-oktober-2021-kommentar-hl.html
----
-
-Lasst uns dies recht verstehen: Unser Herz gehört ganz Gott von dem Tag an, da wir ihm unseren ganzen Willen übergeben und nur noch das wollen, was er will. Dabei will dieser Gott nichts anderes als unser Wohl und unser Glück. „Christus ist gestorben, um Herr zu sein über Tote und Lebende. Leben wir, so leben wir dem Herrn, sterben wir, so sterben wir dem Herrn“ (vgl. Röm 14,8–9). Jesus wollte für uns den Tod erleiden; was hätte er noch mehr tun können, um unsere Liebe zu gewinnen und der alleinige Herr unseres Herzens zu sein? An uns liegt es also, dem Himmel und der Erde durch unser Leben und unseren Tod zu bezeugen, dass wir nicht mehr uns selbst gehören, sondern ganz und gar alleiniger Besitz unseres Gottes sind. Wie sehr sehnt sich Gott danach, ein Herz zu finden, das wirklich ihm gehört! Mit welch glühender Liebe wird er es lieben! Mit wie vielen Zeichen seiner Zärtlichkeit wird er es beschenken, und zwar schon hienieden! Welche Reichtümer, welches Glück, welche Herrlichkeit wird er ihm erst im Himmel bereiten! \[…\] Ihr treuen Seelen, lasst uns Jesus entgegengehen! Wenn es für ihn Glück bedeutet, uns zu besitzen, so ist es unser Glück ihm zu gehören: Der Austausch ist für uns allerdings viel vorteilhafter als für ihn. „Teresa“, sagte der Herr einmal zu dieser Heiligen \[von Avila\], „bis jetzt warst du nicht ganz mein; jetzt, da du ganz mein bist, wisse, dass ich ganz dein bin“ \[…\] Gott brennt darauf, sich mit uns zu vereinen; aber auch wir müssen uns bemühen, uns mit Gott zu vereinen.

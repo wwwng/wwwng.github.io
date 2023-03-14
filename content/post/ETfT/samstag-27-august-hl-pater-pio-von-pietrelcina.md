@@ -1,8 +1,0 @@
----
-title: 'Samstag, 27. August : Hl. Pater Pio von Pietrelcina'
-date: 2022-08-27T09:23:00.001+02:00
-draft: false
-url: /2022/08/samstag-27-august-hl-pater-pio-von.html
----
-
-„Meine Brüder, lasst uns endlich anfangen, denn bis jetzt haben wir nichts fertiggebracht.“ An sich selbst richtete der heilige Franziskus diese Ermahnung; machen wir sie uns demütig zu eigen. Es ist wahr: Wir haben noch nichts oder nur sehr wenig getan! Die Jahre sind vergangen, ohne dass wir uns gefragt hätten, was wir daraus hätten machen können; gab es denn in unserer Lebensführung nichts zu ändern, zu ergänzen oder auszumerzen? Wir haben unbekümmert dahingelebt, als ob der Tag niemals kommen würde, an dem der ewige Richter uns zu sich rufen wird und wir Rechenschaft ablegen müssen über unsere Taten und darüber, was wir mit unserer Zeit angefangen haben. Vergeuden wir nicht unsere Zeit! Was wir heute tun können, sollten wir nicht auf morgen verschieben: Die Gräber quellen über von guten Vorsätzen. Und überhaupt: Wer kann denn sagen, ob wir morgen noch am Leben sein werden? Hören wir auf die Stimme unseres Gewissens; es ist die Stimme des Propheten: „Heute, wenn ihr seine Stimme hört, verhärtet nicht euer Herz“ (vgl. Ps 95(94),7–8 LXX). Wir besitzen nur den gegenwärtigen Augenblick: Seien wir also wachsam und leben wir ihn wie einen Schatz, der uns anvertraut wurde. Die Zeit gehört uns nicht; vergeuden wir sie nicht.

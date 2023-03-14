@@ -1,8 +1,0 @@
----
-title: 'Mittwoch, 15 Dezember 2021 : Kommentar Gregor von Agrigento'
-date: 2021-12-15T09:11:00.001+01:00
-draft: false
-url: /2021/12/mittwoch-15-dezember-2021-kommentar.html
----
-
-Das Licht der Sonne, das wir mit den Augen unseres Leibes sehen, verkündet die geistliche Sonne, die „Sonne der Gerechtigkeit“ (Mal 3,20) \[unseren Herrn Jesus Christus\]. Dies ist wahrlich die süßeste Sonne, die jemals aufgegangen ist für diejenigen, die damals das Glück hatten, seine Jünger zu sein und ihn mit ihren Augen anzuschauen, während er das Leben der Menschen teilte, als wäre er ein gewöhnlicher Mensch. Und doch war er seinem Wesen nach auch wahrer Gott. Deshalb konnte er den Blinden das Augenlicht zurückgeben, die Lahmen gehend machen und den Tauben das Gehör schenken. Er heilte die Aussätzigen und rief mit einem einzigen Wort die Toten ins Leben zurück. Und immer noch gibt es nichts Süßeres, als die Augen unseres Geistes auf ihn zu richten, um seine unaussprechliche und göttliche Schönheit zu betrachten und sich vorzustellen. Es gibt nichts Süßeres, als durch diese Teilhabe und Vereinigung mit dem Licht erleuchtet und geschmückt zu werden, ein sanftes Herz, eine geheiligte Seele zu haben und alle Tage des gegenwärtigen Lebens mit göttlichem Jubel erfüllt zu werden. \[…\] Wahrhaftig, diese Sonne der Gerechtigkeit ist für jene, die sie betrachten, der Freudenbringer, gemäß der Prophezeiung Davids: „Die Gerechten aber freuen sich und jubeln vor Gott; sie jauchzen in heller Freude“ (Ps 68(67),4). Und anderswo: „Ihr Gerechten, jubelt vor dem Herrn; für die Frommen ziemt es sich, Gott zu loben“ (Ps 33(32),1).

@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 31 August 2021 : Kommentar Balduin von Ford'
-date: 2021-08-31T10:11:00.001+02:00
-draft: false
-url: /2021/08/dienstag-31-august-2021-kommentar.html
----
-
-„Denn lebendig ist das Wort Gottes, kraftvoll und schärfer als jedes zweischneidige Schwert“ (Heb 4,12). \[…\] Es wirkt bei der Erschaffung der Welt, bei der Lenkung der Welt und bei ihrer Erlösung. Denn was könnte wirksamer und mächtiger sein? „Wer kann seine großen Taten erzählen, all seinen Ruhm verkünden?“ (vgl. Ps 106(105),2). Die Wirkmächtigkeit des göttlichen Wortes offenbart sich in seinen Werken; sie offenbart sich auch in der Verkündigung. Dieses Wort kehrt nicht zu Gott zurück, ohne seine Wirkung entfaltet zu haben, sondern kommt allen zugute, zu denen es ausgesandt wurde (vgl. Jes 55,11). „Es ist kraftvoll und schärfer als jedes zweischneidige Schwert“, wenn es mit Glauben und Liebe aufgenommen wird. Was wäre unmöglich für den, der glaubt; was wäre schwierig für den, der liebt? Wenn Gottes Worte ertönen, durchdringen sie das Herz des Glaubenden wie „scharfe Pfeile von Kriegerhand“ (Ps 120(119),4). Sie dringen wie Stacheln darin ein und verankern sich in seinem tiefsten Inneren. Ja, dieses Wort ist schärfer als ein zweischneidiges Schwert, denn es ist einschneidender als jede andere Kraft oder Macht, feinsinniger als jede Feinheit menschlichen Genies, schärfer als jede gelehrte Durchdringung des menschlichen Wortes.

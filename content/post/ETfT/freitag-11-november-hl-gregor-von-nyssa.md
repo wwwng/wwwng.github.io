@@ -1,8 +1,0 @@
----
-title: 'Freitag, 11. November : Hl. Gregor von Nyssa'
-date: 2022-11-11T08:23:00.001+01:00
-draft: false
-url: /2022/11/freitag-11-november-hl-gregor-von-nyssa.html
----
-
-Der Herr gab seinen Jüngern wichtige Ratschläge, damit ihr Geist alles Naturhaft-Irdische wie Staub abschüttele und sich zur Sehnsucht nach den übernatürlichen Wirklichkeiten erhebe. Wenn man sich nämlich dem himmlischen Leben zuwendet, gilt es, stärker zu sein als der Schlaf und den Geist stets wachsam zu halten. \[…\] Ich spreche von der Schläfrigkeit derer, die sich in Lebenslügen verstricken durch trügerische Träume von Ehre, Reichtum, Macht, Prunk, durch die Faszination der Vergnügungen, Ehrgeiz, Genusssucht, Eitelkeit und durch all das, wozu oberflächliche Menschen von ihrer Phantasie verleitet werden. All diese Dinge vergehen mit der flüchtigen Natur der Zeit; sie gehören in den Bereich des Scheins \[…\]; kaum sind sie da, verschwinden sie auch schon wieder wie die Wellen auf dem Meer. \[…\] Damit unser Geist von diesen Verblendungen befreit wird, ermuntert uns der Logos – das Wort Gottes –, diesen Tiefschlaf von den Augen unserer Seele abzuschütteln, damit wir nicht dem anhangen, was keinen Bestand hat, und so von der echten Wirklichkeit abgleiten. Deshalb mahnt er uns zur Wachsamkeit und sagt: „Legt euren Gürtel nicht ab, und lasst eure Lampen brennen“ (Lk 12,35). Denn ein helles Licht vor Augen vertreibt den Schlaf, und der straff gebundene Gürtel bewahrt den Leib davor, vom Schlaf überwältigt zu werden. \[…\] Wer mit Mäßigung umgürtet ist, lebt im Licht eines reinen Gewissens; kindliches Vertrauen erhellt sein Leben wie eine Leuchte. \[…\] Wenn wir so leben, werden wir in ein Leben eintreten, das dem der Engel gleicht.

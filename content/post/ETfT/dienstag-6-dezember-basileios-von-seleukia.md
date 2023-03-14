@@ -1,8 +1,0 @@
----
-title: 'Dienstag, 6. Dezember : Basileios von Seleukia'
-date: 2022-12-06T08:23:00.001+01:00
-draft: false
-url: /2022/12/dienstag-6-dezember-basileios-von.html
----
-
-Schauen wir auf Christus, unseren Hirten; erkennen wir, wie lieb er die Menschen hat und wie sanft er sie auf die Weide führt. Er freut sich über die Schafe, die ihn umgeben, und er sucht die, die sich verirrt haben. Berge und Wälder sind kein Hindernis für ihn; er läuft durch das dunkle Tal des \[Todes-\] Schattens, um zu dem Ort zu gelangen, wo sich das verlorene Schaf befindet. Findet er es krank vor, so verachtet er es nicht, sondern pflegt es; er nimmt es auf seine Schultern und heilt das müde Schaf, indem er selbst müde wird. Seine Müdigkeit erfüllte ihn mit Freude, denn er hat das verlorene Schaf ja wiedergefunden, und so hat sich seine Mühe gelohnt. „Wenn einer von euch“, sagt er, „hundert Schafe hat und eines von ihnen sich verirrt, lässt er dann nicht die neunundneunzig auf den Bergen zurück und sucht das verirrte?“ (vgl. Mt 18,12). Der Verlust eines einzigen Schafes trübt die Freude der ganzen Herde, aber die Freude der Wiedervereinigung vertreibt diese Trauer: „Und wenn er es gefunden hat \[…\], ruft er seine Freunde und Nachbarn zusammen und sagt zu ihnen: Freut euch mit mir; ich habe mein Schaf wiedergefunden, das verloren war“ (Lk 15,5−6). Deshalb sagte Christus, der dieser Hirt ist: „Ich bin der gute Hirt“ (Joh 10,11). „Die verlorengegangenen Tiere will ich suchen, die vertriebenen zurückbringen, die verletzten verbinden, die schwachen kräftigen“ (Ez 34,16).

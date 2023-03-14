@@ -1,8 +1,0 @@
----
-title: 'Sonntag, 12 September 2021 : Aus dem Heiligen Evangelium nach Markus - Mk 8,27-35.'
-date: 2021-09-12T09:27:00.001+02:00
-draft: false
-url: /2021/09/sonntag-12-september-2021-aus-dem.html
----
-
-In jener Zeit ging Jesus mit seinen Jüngern in die Dörfer bei Cäsarea Philippi. Unterwegs fragte er die Jünger: Für wen halten mich die Menschen? Sie sagten zu ihm: Einige für Johannes den Täufer, andere für Elija, wieder andere für sonst einen von den Propheten. Da fragte er sie: Ihr aber, für wen haltet ihr mich? Simon Petrus antwortete ihm: Du bist der Messias! Doch er verbot ihnen, mit jemand über ihn zu sprechen. Dann begann er, sie darüber zu belehren, der Menschensohn müsse vieles erleiden und von den Ältesten, den Hohenpriestern und den Schriftgelehrten verworfen werden; er werde getötet, aber nach drei Tagen werde er auferstehen. Und er redete ganz offen darüber. Da nahm ihn Petrus beiseite und machte ihm Vorwürfe. Jesus wandte sich um, sah seine Jünger an und wies Petrus mit den Worten zurecht: Weg mit dir, Satan, geh mir aus den Augen! Denn du hast nicht das im Sinn, was Gott will, sondern was die Menschen wollen. Er rief die Volksmenge und seine Jünger zu sich und sagte: Wer mein Jünger sein will, der verleugne sich selbst, nehme sein Kreuz auf sich und folge mir nach. Denn wer sein Leben retten will, wird es verlieren; wer aber sein Leben um meinetwillen und um des Evangeliums willen verliert, wird es retten.

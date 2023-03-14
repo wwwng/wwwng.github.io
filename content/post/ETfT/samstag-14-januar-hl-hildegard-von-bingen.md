@@ -1,8 +1,0 @@
----
-title: 'Samstag, 14. Januar : Hl. Hildegard von Bingen'
-date: 2023-01-14T08:23:00.001+01:00
-draft: false
-url: /2023/01/samstag-14-januar-hl-hildegard-von.html
----
-
-O Feuer des Heiligen Geistes, Lobpreis sei dir, der du wirkst unter Pauken- und Zitherklang. Wenn Du der Menschen Geist entflammst, Dann wird der Tabernakel ihrer Seele von deiner Kraft erfüllt. Dann erhebt sich der Wille und weckt den Appetit der Seele, Und das Verlangen nach Gott wird ihr Führer. Mit süßen Gesängen ruft dich die Klugheit Und baut dir Tempel der Weisheit, aus denen goldene Werke strömen. Stets trägst du das Schwert, um abzuschneiden, Was geprägt ist vom Frevel der Sündenfrucht. Wenn Wille und Verlangen sich im Nebel verlieren, Und die Seele ziellos umherflattert und wirbelt, Dann bist du, Heiliger Geist, das Band, das Wille und Verlangen zusammenhält. Reckt sich die Seele aber selbst empor, um des Bösen Pupille zu suchen, Und den Rachen der Ausschweifung zu erreichen, so prüfst du sie im Feuer, nach deinem Willen. Gleitet die Vernunft auf dem Abhang des Bösen dahin, Dann drückst und presst du sie und bringst sie durch allerlei Prüfungen zurück, nach deinem Willen. Und wagt es das Böse, sein Schwert gegen dich zu erheben, so wendest du dieses und stößt es ihm mitten ins Herz zurück, Wie du beim ersten gefallenen Engel getan, Dessen Turm des Hochmuts du hinabgeschmettert in die Tiefe der Hölle. Einen anderen Turm aber hast du aufgerichtet für Zöllner und Sünder, Die dir ihre Sünden und Missetaten bekennen. Darum preisen dich alle Geschöpfe, du Leben aller Wesen, Köstlichste Salbe, die du unsere klaffenden und eiternden Wunden In kostbare Edelsteine verwandelst! Und nun versammle uns alle gnädig in dir, Und lenke unsere Schritte auf den rechten Weg. Amen.

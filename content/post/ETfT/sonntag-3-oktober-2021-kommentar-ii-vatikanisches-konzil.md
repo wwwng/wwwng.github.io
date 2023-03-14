@@ -1,8 +1,0 @@
----
-title: 'Sonntag, 3 Oktober 2021 : Kommentar II. Vatikanisches Konzil'
-date: 2021-10-03T10:11:00.001+02:00
-draft: false
-url: /2021/10/sonntag-3-oktober-2021-kommentar-ii.html
----
-
-Da die Eltern ihren Kindern das Leben schenkten, haben sie die überaus schwere Verpflichtung zur Kindererziehung. Daher müssen sie als die ersten und bevorzugten Erzieher ihrer Kinder anerkannt werden. Ihr Erziehungswirken ist so entscheidend, dass es dort, wo es fehlt, kaum zu ersetzen ist. Den Eltern obliegt es, die Familie derart zu einer Heimstätte der Frömmigkeit und Liebe zu Gott und den Menschen zu gestalten, dass die gesamte Erziehung der Kinder nach der persönlichen wie der gesellschaftlichen Seite hin davon getragen wird. So ist die Familie die erste Schule der sozialen Tugenden, \[auf die\] kein gesellschaftliches Gebilde \[verzichten\] kann. Besonders aber sollen in der christlichen Familie, die mit der Gnade und dem Auftrag des Ehesakramentes ausgestattet ist, die Kinder schon von den frühesten Jahren an angeleitet werden, gemäß dem in der Taufe empfangenen Glauben Gott zu erkennen und zu verehren und den Nächsten zu lieben. Was gesunde menschliche Gemeinschaft und was Kirche ist, erfahren die Kinder zum ersten Mal in einer solchen christlichen Familie; durch sie werden sie auch allmählich in die weltliche Gemeinschaft und in das Volk Gottes eingeführt. Daher sollen die Eltern wohl bedenken, wie entscheidend die echt christliche Familie für das Leben und das Wachstum des Gottesvolkes ist.

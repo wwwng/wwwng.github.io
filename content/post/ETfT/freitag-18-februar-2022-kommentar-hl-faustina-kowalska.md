@@ -1,8 +1,0 @@
----
-title: 'Freitag, 18 Februar 2022 : Kommentar Hl. Faustina Kowalska'
-date: 2022-02-18T09:11:00.001+01:00
-draft: false
-url: /2022/02/freitag-18-februar-2022-kommentar-hl.html
----
-
-Mein Jesus, nun sehe ich, dass ich alle Etappen des Lebens gemeinsam mit Dir durchgegangen bin: Die Kindheit, Jugend, Berufung, das apostolische Wirken, Tabor und Ölgarten. Jetzt bin ich mit Dir zusammen auf dem Kalvarienberg. Gern habe ich mich kreuzigen lassen und bin nun gekreuzigt; obwohl ich noch ein wenig umhergehe, bin ich ausgestreckt auf dem Kreuz und fühle ganz eindeutig, dass Kraft von Deinem Kreuz herabfließt und Du Selbst meine Ausdauer bist. Wiederholt höre ich, wie die Stimme der Versuchung mir zuruft: „Steige herab vom Kreuz“, aber Gottes Kraft stärkt mich, obwohl Verlassenheit, Finsternis und verschiedene Leiden an mein Herz schlagen; doch die geheimnisvolle Kraft Gottes stärkt und festigt mich. Ich will den Kelch bis zum letzten Tropfen trinken. Ich vertraue fest, dass Deine Gnade, die mich im Ölgarten stärkte, mich auch jetzt auf Kalvaria stützen wird. O mein Jesus, Meister, meine Wünsche vereinige ich mit Deinen Wünschen, die Du am Kreuz hattest. Ich will Deinen heiligen Willen erfüllen; ich wünsche die Umkehr der Seelen, ich wünsche, dass Deine Barmherzigkeit gepriesen wird. Ich wünsche, dass der Triumph der Kirche beschleunigt wird \[…\] O mein Jesus, jetzt umfange ich die ganze Welt und bitte um Barmherzigkeit für sie.

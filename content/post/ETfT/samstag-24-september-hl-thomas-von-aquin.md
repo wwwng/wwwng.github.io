@@ -1,8 +1,0 @@
----
-title: 'Samstag, 24. September : Hl. Thomas von Aquin'
-date: 2022-09-24T09:23:00.001+02:00
-draft: false
-url: /2022/09/samstag-24-september-hl-thomas-von-aquin.html
----
-
-„Ich aber“, sagt der heilige Paulus, „will mich allein des Kreuzes Jesu Christi, unseres Herrn, rühmen“ (Gal 6,14). Schau, bemerkt der heilige Augustinus, dort, wo ein Weiser dieser Welt Schande zu finden glaubte, entdeckt der Apostel Paulus einen Schatz. Das, was einem anderen wie eine Torheit erschien, wurde für ihn zur Weisheit (vgl. 1 Kor 1,17–18) und zum Ruhmestitel. Jeder zieht nämlich den Ruhm aus dem, was ihn in seinen Augen groß macht. Wenn er sich für einen großen Mann hält, weil er reich ist, rühmt er sich seines Besitzes. Wer dagegen seine Größe nur in Jesus Christus erkennt, der sieht seinen Ruhm in Jesus allein. So war es beim Apostel Paulus: „Nicht mehr ich lebe, sondern Christus lebt in mir“ (Gal 2,20), sagt er. Deshalb rühmt er sich nur in Christus, und vor allem im Kreuz Christi. In diesem sind nämlich alle Beweggründe zusammengefasst, die man dafür haben kann. Es gibt Leute, die rühmen sich der Freundschaft mit den Großen und Mächtigen. Paulus braucht nur das Kreuz Christi, um darin das eindeutigste Zeichen der Freundschaft Gottes zu entdecken. „Gott aber hat seine Liebe zu uns darin erwiesen, dass Christus für uns gestorben ist, als wir noch Sünder waren“ (Röm 5,8). Nein, es gibt nichts, was die Liebe Gottes zu uns mehr zum Ausdruck bringt als der Tod Christi. „Oh unschätzbares Zeugnis der Liebe!“, ruft der heilige Gregor aus. „Um den Knecht zu erlösen, gabst du den Sohn dahin.“

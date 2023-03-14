@@ -1,8 +1,0 @@
----
-title: 'Samstag, 29. Oktober : Hl. Franziskus von Assisi'
-date: 2022-10-29T09:23:00.001+02:00
-draft: false
-url: /2022/10/samstag-29-oktober-hl-franziskus-von.html
----
-
-Darum wollen wir Brüder uns alle hüten vor jeglichem Stolz und eitlem Ruhm. Und wir wollen uns in Acht nehmen vor der Weisheit dieser Welt und vor der Klugheit des Fleisches. Denn der Geist des Fleisches drängt und treibt sehr an, Worte zu machen, wenig aber zum Wirken. Und er sucht nicht die Frömmigkeit und innere Heiligkeit des Geistes, sondern will und ersehnt eine Frömmigkeit und Heiligkeit, die nach außen hin den Menschen auffällt. Und das sind jene, von denen der Herr sagt: „Wahrlich, ich sage euch, sie haben ihren Lohn schon empfangen“ (Mt 6,2). Der Geist des Herrn aber will, dass das Fleisch abgetötet und verachtet sei \[…\]. Und er strebt nach Demut und Geduld, nach reiner Einfalt und dem wahren Frieden des Geistes. Und über alles ersehnt er stets die Gottesfurcht und die göttliche Weisheit und die göttliche Liebe des Vaters und des Sohnes und des Heiligen Geistes. Und alles Gute wollen wir dem Herrn, dem erhabensten und höchsten Gott, zurückerstatten und alles Gute als sein Eigentum anerkennen und für alles Dank sagen ihm, von dem alles Gute herkommt. Und er, der erhabenste und höchste, einzige wahre Gott, möge erhalten, und ihm sollen erwiesen werden, und er möge empfangen alle Ehren und Ehrenbezeugungen, alle Loblieder und Preisungen, allen Dank und alle Herrlichkeit, er, dem jegliches Gute gehört und der allein gut ist.

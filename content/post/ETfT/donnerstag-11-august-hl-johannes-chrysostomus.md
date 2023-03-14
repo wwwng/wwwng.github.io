@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 11. August : Hl. Johannes Chrysostomus'
-date: 2022-08-11T09:23:00.001+02:00
-draft: false
-url: /2022/08/donnerstag-11-august-hl-johannes.html
----
-
-Christus verlangt von uns zweierlei: die eigenen Sünden zu verurteilen und die der anderen zu vergeben. Wir sollen das erste um des zweiten willen tun, das uns dann leichter fällt; denn wer sich seiner Sünden bewusst ist, wird weniger streng gegen seinen Leidensgenossen sein. Und gemeint ist nicht bloß Vergebung mit dem Mund, sondern aus tiefstem Herzen, damit wir die Klinge, mit der wir andere zu durchbohren glauben, nicht gegen uns selbst richten. Welchen Schaden kann dein Feind dir zufügen, der vergleichbar wäre mit dem, was du dir durch deine Verbitterung selber antust? \[…\] Bedenke also, welchen Nutzen du aus einer Kränkung ziehst, die du demütig und sanft annimmst: Als erstes – und das ist das Wichtigste – verdienst du dir so die Vergebung deiner Sünden. Sodann übst du dich in Geduld und Unerschrockenheit. Drittens gewinnst du an Sanftheit und Nächstenliebe; denn wer schon denen nicht grollen kann, die ihm Unrecht zugefügt haben, wird umso barmherziger mit denen umgehen, die ihn lieben. Viertens rottest du den Zorn mit der Wurzel aus deinem Herzen aus, was ein unvergleichlich hohes Gut ist. Wer seine Seele von Zorn befreit, befreit sie gleichzeitig auch von Traurigkeit: Er reibt sich nicht auf durch Gram und fruchtlose Sorgen. Also strafen wir uns selber, wenn wir andere hassen; und wir tun uns selbst Gutes, wenn wir sie lieben. Außerdem werden alle Respekt vor dir haben, sogar deine Feinde, auch wenn es Dämonen sind. Besser noch: Wenn du dich so verhältst, wirst du gar keinen Feind mehr haben.

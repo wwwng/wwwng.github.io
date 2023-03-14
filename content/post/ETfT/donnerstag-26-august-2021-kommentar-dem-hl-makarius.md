@@ -1,8 +1,0 @@
----
-title: 'Donnerstag, 26 August 2021 : Kommentar Dem hl. Makarius'
-date: 2021-08-26T10:11:00.001+02:00
-draft: false
-url: /2021/08/donnerstag-26-august-2021-kommentar-dem.html
----
-
-Unser Gebet darf nicht in körperlichen Gewohnheitsformen, in angewöhntem Schreien oder in gewohnheitsmäßigem Schweigen oder Kniebeugen aufgehen. Wir müssen vielmehr nüchtern, aufmerksamen Sinnes Gott erwarten, bis er kommt und die Seele in all ihren Ausgängen, ihren Stegen und Sinnesorganen heimsucht. \[…\] Wenn der Leib ein Werk vollbringt, so obliegt er ihm ganz und gar und beschäftigt sich nur mit ihm und alle seine Glieder unterstützen sich gegenseitig. So soll auch die Seele ganz und gar ins Gebet und die Liebe zum Herrn versenkt sein, sich nicht von den Gedanken hin und her treiben und tragen lassen, sondern sich mit ganzer Zuversicht Christus hingeben. So wird er sie erleuchten, sie wahres Bitten lehren und ihr ein reines, geistiges, gotteswürdiges Gebet und „die Anbetung im Geiste und in der Wahrheit“ (vgl. Joh 4,24) gewähren. Ein Handelsmann legt sich nicht auf eine Gewinnesart fest, sondern beeilt sich, von überall her den Gewinn zu vermehren und zu vergrößern, kommt bald auf diesen, bald auf jenen Einfall, schlägt dann wiederum einen andern Weg ein, lässt das, was weniger Vorteil bringt, fahren und eilt zu dem, was mehr Gewinn verspricht. So müssen auch wir unsere Seele auf mannigfache Weise und mit Geschick zubereiten, damit wir den wahren und großen Gewinn erlangen, nämlich Gott, der uns in Wahrheit beten lehrt. Denn nur so ruht der Herr in der gutgesinnten Seele, macht sie zum Thron seiner Herrlichkeit, thront und ruht auf ihr.

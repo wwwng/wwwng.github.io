@@ -1,8 +1,0 @@
----
-title: 'Samstag, 22 Januar 2022 : Kommentar Hl. Thomas von Aquin'
-date: 2022-01-22T09:11:00.001+01:00
-draft: false
-url: /2022/01/samstag-22-januar-2022-kommentar-hl.html
----
-
-Die unermesslichen Wohltaten, mit denen der Herr das christliche Volk reichlich beschenkt hat, erheben es zu einer unschätzbaren Würde. Es gibt in der Tat keine Nation, und es hat auch nie eine gegeben, deren Götter so nahe sind, wie unser Gott uns nahe ist (vgl. Dtn 4,7). Weil uns der einziggeborene Sohn Gottes Anteil an seiner Gottheit geben wollte, nahm er unsere Natur an, wurde Mensch, um die Menschen zu vergöttlichen. Mehr noch: Alles, was er von dem Unsrigen annahm, gab er ganz hin für unser Heil. Denn er brachte seinen Leib auf dem Altar des Kreuzes zu unserer Versöhnung Gott, dem Vater, als Opfergabe dar. Er vergoss sein Blut für uns als Lösepreis und als Bad zugleich. So sollten wir von elender Knechtschaft erlöst und durch das Bad der Wiedergeburt von aller Sünde gereinigt werden. Damit uns aber ein fortwährendes Gedächtnis dieser so großen Liebe bleibe, hinterließ er den Glaubenden seinen Leib zur Speise und sein Blut zum Trank, unter den Gestalten von Brot und Wein. O wunderbares und kostbares Gastmahl, heilbringend und voll Wohlgeschmack! Denn was könnte kostbarer sein als dieses Gastmahl? In ihm wird uns nicht das Fleisch von Kälbern und Böcken zur Speise gegeben wie einst unter dem Gesetz, sondern Christus, der wahre Gott.

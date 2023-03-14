@@ -1,8 +1,0 @@
----
-title: 'Samstag, 26 Juni 2021 : Kommentar Hl. Johannes Chrysostomus'
-date: 2021-06-26T10:11:00.001+02:00
-draft: false
-url: /2021/06/samstag-26-juni-2021-kommentar-hl.html
----
-
-„Da es aber Abend geworden war, brachten sie viele Besessene zu ihm und er trieb durch sein Wort die bösen Geister von ihnen aus, und alle, die an einer Krankheit litten, heilte er \[…\]“ Siehst du, wie der Glaube der Leute bereits im Wachsen begriffen war? Sie hielten es nicht für unzeitig, ihre Kranken noch am Abend daherzubringen. Da beachte aber auch, welche Menge von Geheilten die Evangelisten übergehen, ohne uns im Einzelnen alles zu berichten und zu erzählen; mit einem einzigen Wort fassen sie eine Unzahl von Wundern zusammen. Damit du aber nicht wieder ob der Größe des Wunders zu zweifeln beginnst, wenn du hörst, wie Christus eine solche Menge Volkes und so viele Krankheiten in einem Augenblicke vollständig heilte, so bringt der Evangelist den Propheten als Zeugen für das Geschehene, und zeigt, dass uns für alles ein sehr gewichtiger Schriftbeweis zu Gebote steht, der nicht weniger wertvoll ist, als die Wunderzeichen selbst. So macht er darauf aufmerksam, dass auch Isaias dies vorausgesagt mit den Worten: „Er hat unsere Schwachheiten von uns genommen und unsere Krankheiten getragen“ (vgl. Jes 53,4). Er sagte nicht: Er hat sie zunichte gemacht, sondern: „er nahm sie auf sich und trug sie“. Das scheint mir eher von den Sünden gemeint zu sein, in Übereinstimmung mit dem Prophetenwort des Johannes \[des Täufers\]: „Seht, das ist das Lamm Gottes, welches hinwegnimmt die Sünden der Welt!“ (Joh 1,29).
