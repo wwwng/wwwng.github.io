@@ -4,6 +4,7 @@ layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
 date = '2023-03-13 10:00:05 +0100'
+keepImageRatio = 'true'
 +++
 Warum wurde Elija zu einer Zeit, da die ganze Welt von Hungersnot heimgesucht war, zu einer Witwe gesandt? Zwei Frauen werden auf einzigartige Weise begnadet: Zu einer Jungfrau kommt ein Engel, zu einer Witwe ein Prophet; dort Gabriel, hier Elija. Die bedeutendsten unter den Engeln und Propheten sind es, die dazu ausgewählt werden.<!--more--> Aber nicht die Witwenschaft an sich ist es, die Lob verdient, sondern nur, wenn sie mit Tugenden verbunden ist. In der Geschichte mangelt es nicht an Witwen; eine jedoch, die durch ihr großes Beispiel ermutigt, hebt sich von den anderen ab. […] Gott ist für Gastfreundschaft besonders empfänglich: Im Evangelium verspricht er ewigen Lohn für ein Glas frisches Wasser (vgl. Mt 10,42), hier die unendliche Fülle seiner Reichtümer für eine Handvoll Mehl und ein wenig Öl. […]
 

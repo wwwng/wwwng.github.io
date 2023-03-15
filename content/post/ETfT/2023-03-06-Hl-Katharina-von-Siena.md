@@ -4,6 +4,7 @@ layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
 date = '2023-03-06 10:00:04 +0100'
+keepImageRatio = 'true'
 +++
 O unaussprechliche Liebe! Oh süße Liebe! O ewiges Feuer! Du bist das Feuer, das immer brennt! O höchste und ewige Dreifaltigkeit, du bist die Redlichkeit ohne Makel, die Einfachheit ohne Schatten, die Aufrichtigkeit ohne irgendeine Verstellung. Wende den Blick deiner Barmherzigkeit auf deine Geschöpfe.<!--more--> Ich verstehe, dass die Barmherzigkeit dir zu eigen ist, und wohin ich mich auch wende, finde ich nur deine Barmherzigkeit. Darum eile ich zu dir, ich schreie vor deiner Barmherzigkeit: O Gott, hab Erbarmen mit der Welt!
 

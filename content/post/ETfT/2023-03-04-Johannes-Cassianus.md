@@ -4,6 +4,7 @@ layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
 date = '2023-03-04 10:00:05 +0100'
+keepImageRatio = 'true'
 +++
 Das Gebot des Erlösers selbst fordert uns zur Ähnlichkeit mit dem Vater auf: „Ihr sollt also vollkommen sein, wie es auch euer himmlischer Vater ist“ (Mt 5,48). Auf den unteren Stufen [des geistlichen Lebens] wird die Liebe zum Guten zuweilen unterbrochen, wenn Lauheit, Selbstzufriedenheit oder Vergnügungen den Eifer der Seele lockern und sie die Furcht vor der Hölle oder das Verlangen nach dem zukünftigen Glück für eine Weile aus den Augen verliert.<!--more--> Dennoch sind sie wie Stufen in der Entwicklung, ein Lernprozess.
 
