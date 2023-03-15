@@ -33,7 +33,7 @@
         <a href="{{- .Permalink | relURL -}}">
         {{- if .Params.linkedsummaryImage -}}
           {{- $linkedarticleimage := .Params.linkedsummaryImage -}}
-          <img src="/images/{{- $linkedarticleimage -}}" style="width: auto; margin:auto" alt="Symbolbild">
+          <img src="/symbols/{{- $linkedarticleimage -}}" style="width: auto; margin:auto" alt="Symbolbild">
         {{ else }}
           {{ if .Page.Params.keepImageRatio }}
             {{ $w := mul (div $imgWidth 3) 2 }} {{/* is-3by2*/}}
