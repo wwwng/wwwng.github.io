@@ -49,7 +49,7 @@
         {{ if or (eq $home "menu") (eq $home "menu+footer") }}
           <a href="{{ .Site.BaseURL | relLangURL }}" class="navbar-item is-secondary">
             {{- if $showIcons -}}
-              <i class="fa fa-home" style="color:{{- print $mainColour -}};">&nbsp;</i>
+              <!--<i class="fa fa-home" style="color:{{- print $mainColour -}};">--><i><img src="/icons/sakrum.svg">&nbsp;</i>
             {{- end -}}
             {{- if .Site.Params.homepage.linkText -}}
               {{- print .Site.Params.homepage.linkText -}}
