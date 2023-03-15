@@ -43,13 +43,13 @@
     <div id="navbar-menu" class="navbar-menu is-static">
       <!-- <div class="navbar-start"></div> -->
       <div class="navbar-end">
-      <a href="/" class="navbar-item is-secondary"><i class="fa fa-home" style="color:{{- print $mainColour -}};">&nbsp;</i>Start</a>
+      <a href="/" class="navbar-item is-secondary"><i class="fa fa-home" style="color:{{- print $mainColour -}};">&nbsp;</i><img src="/icons/sakrum.svg">&nbsp;Start</a>
         {{- $home    := .Site.Params.homepage.linkPosition -}}
         {{/*  {{- if or (eq $home "menu") (eq $home "menu+footer") -}}  */}}
         {{ if or (eq $home "menu") (eq $home "menu+footer") }}
           <a href="{{ .Site.BaseURL | relLangURL }}" class="navbar-item is-secondary">
             {{- if $showIcons -}}
-              <img src="/icons/sakrum.svg">&nbsp;
+              <i class="fa fa-home" style="color:{{- print $mainColour -}};">&nbsp;</i>
             {{- end -}}
             {{- if .Site.Params.homepage.linkText -}}
               {{- print .Site.Params.homepage.linkText -}}
