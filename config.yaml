@@ -59,6 +59,7 @@ params:
     # option to specify the default image in the summary list
     # the starting folder is configure in "assetDir" of this file
     defaultImage : "/images/defaultsummary.jpg"
+    keepImageRatio: true
   
   # loading options
   loading:
