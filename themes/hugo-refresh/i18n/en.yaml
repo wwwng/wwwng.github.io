@@ -16,5 +16,7 @@
   translation: "Copyright"
 - id: contacts
   translation: "Contacts"
+- id: imprint
+  translation: "Imprint"
 - id: homepage
   translation: "Homepage"
