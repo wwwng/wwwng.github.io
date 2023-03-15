@@ -4,6 +4,7 @@ title = 'Aus dem Heiligen Evangelium nach Matthäus - Mt 23,1-12'
 layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
+linkedsummaryImage = 'evangelist_matthaeus.jpg'
 date = '2023-03-07 09:00:05 +0100'
 +++
 In jener Zeit wandte sich Jesus an das Volk und an seine Jünger

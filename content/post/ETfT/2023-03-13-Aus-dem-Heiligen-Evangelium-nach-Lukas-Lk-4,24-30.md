@@ -4,6 +4,7 @@ title = 'Aus dem Heiligen Evangelium nach Lukas - Lk 4,24-30'
 layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
+linkedsummaryImage = 'evangelist_lukas.jpg'
 date = '2023-03-13 09:00:05 +0100'
 +++
 Und er setzte hinzu: Amen, ich sage euch: Kein Prophet wird in seiner Heimat anerkannt.

@@ -4,6 +4,7 @@ title = 'Aus dem Heiligen Evangelium nach Johannes - Joh 4,5-42'
 layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
+linkedsummaryImage = 'evangelist_johannes.jpg'
 date = '2023-03-12 15:52:58 +0100'
 +++
 In jener Zeit kam Jesus zu einem Ort in Samarien, der Sychar hieß und nahe bei dem Grundstück lag, das Jakob seinem Sohn Josef vermacht hatte.

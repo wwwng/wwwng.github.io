@@ -4,6 +4,7 @@ title = 'Aus dem Heiligen Evangelium nach Matthäus - Mt 5,20-26'
 layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
+linkedsummaryImage = 'evangelist_matthaeus.jpg'
 date = '2023-03-03 09:00:04 +0100'
 +++
 In jener Zeit sprach Jesus zu seinen Jüngern: Wenn eure Gerechtigkeit nicht weit größer ist als die der Schriftgelehrten und der Pharisäer, werdet ihr nicht in das Himmelreich kommen.

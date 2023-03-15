@@ -4,6 +4,7 @@ title = 'Aus dem Heiligen Evangelium nach Lukas - Lk 6,36-38'
 layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
+linkedsummaryImage = 'evangelist_lukas.jpg'
 date = '2023-03-06 09:00:05 +0100'
 +++
 In jener Zeit sprach Jesus zu seinen Jüngern: Seid barmherzig, wie es auch euer Vater ist!

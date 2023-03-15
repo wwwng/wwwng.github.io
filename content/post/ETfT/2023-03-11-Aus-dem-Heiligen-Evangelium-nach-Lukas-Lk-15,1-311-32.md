@@ -4,6 +4,7 @@ title = 'Aus dem Heiligen Evangelium nach Lukas - Lk 15,1-3.11-32'
 layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
+linkedsummaryImage = 'evangelist_lukas.jpg'
 date = '2023-03-11 09:00:05 +0100'
 +++
 In jener Zeit kamen alle Zöllner und Sünder zu Jesus, um ihn zu hören.

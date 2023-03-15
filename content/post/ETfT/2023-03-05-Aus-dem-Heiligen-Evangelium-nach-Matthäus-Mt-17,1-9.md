@@ -4,6 +4,7 @@ title = 'Aus dem Heiligen Evangelium nach Matthäus - Mt 17,1-9'
 layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
+linkedsummaryImage = 'evangelist_matthaeus.jpg'
 date = '2023-03-05 09:00:05 +0100'
 +++
 In jener Zeit nahm Jesus Petrus, Jakobus und dessen Bruder Johannes beiseite und führte sie auf einen hohen Berg.
