@@ -31,16 +31,21 @@
           {{- $image = .Scratch.Get "image" -}}
         {{- end }}
         <a href="{{- .Permalink | relURL -}}">
-        {{ if .Page.Params.keepImageRatio }}
-          {{ $w := mul (div $imgWidth 3) 2 }} {{/* is-3by2*/}}
-          {{ $h := $imgHeight }} 
-          {{ if not (gt $w $h) }}
-            <img src="{{- $image.Permalink | relURL -}}" style="width: auto; margin:auto" alt="">
-          {{ else }}
-            <img src="{{- $image.Permalink | relURL -}}" style="height: auto; margin:auto" alt="">
-          {{ end }}
+        {{- if .Params.linkedsummaryImage -}}
+          {{- $linkedarticleimage := .Params.linkedsummaryImage -}}
+          <img src="/images/{{- $linkedarticleimage -}}" style="width: auto; margin:auto" alt="Symbolbild">
         {{ else }}
-          <img src="{{- $image.Permalink | relURL -}}" alt="">
+          {{ if .Page.Params.keepImageRatio }}
+            {{ $w := mul (div $imgWidth 3) 2 }} {{/* is-3by2*/}}
+            {{ $h := $imgHeight }} 
+            {{ if not (gt $w $h) }}
+              <img src="{{- $image.Permalink | relURL -}}" style="width: auto; margin:auto" alt="">
+            {{ else }}
+              <img src="{{- $image.Permalink | relURL -}}" style="height: auto; margin:auto" alt="">
+            {{ end }}
+          {{ else }}
+            <img src="{{- $image.Permalink | relURL -}}" alt="">
+          {{ end }}
         {{ end }}
         </a>
       </figure>
