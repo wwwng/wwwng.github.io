@@ -3,6 +3,7 @@ title = 'Hl. Jean-Baptiste Marie '
 layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
+keepImageRatio = 'true'
 date = '2023-03-02 10:00:04 +0100'
 +++
 Der Grund, weshalb wir unsere Zuflucht zum Gebet nehmen sollten, ist der, dass sich dadurch alles zu unserem Vorteil wendet. Der liebe Gott will unser Glück und er weiß, dass wir es nur durch das Gebet erlangen können.<!--more--> Außerdem, meine Brüder, welche größere Ehre kann es für ein geringes Geschöpf wie uns geben, dass Gott sich gern ihm herablässt und sich mit ihm so vertraut unterhält, wie ein Freund mit seinem Freund. Seht ihr, wie gütig er ist, wenn er uns erlaubt, ihm unseren Kummer und unsere Sorgen mitzuteilen? Und dieser gute Heiland beeilt sich, uns zu trösten, uns in den Prüfungen zu unterstützen, oder, um es besser zu sagen: Er leidet für uns. Sagt mir, meine Brüder, würde es nicht bedeuten, unser Heil und unser Glück auf Erden aufzugeben, wenn wir nicht beten? Denn ohne das Gebet können wir nur unglücklich sein, mit dem Gebet aber sind wir sicher, alles zu erhalten, was wir für Zeit und Ewigkeit brauchen, wie wir sehen werden.

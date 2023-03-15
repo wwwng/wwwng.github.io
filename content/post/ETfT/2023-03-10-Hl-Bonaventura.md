@@ -3,6 +3,7 @@ title = 'Hl. '
 layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
+keepImageRatio = 'true'
 date = '2023-03-10 10:00:04 +0100'
 +++
 „Ich bin der wahre Weinstock“, sagt Jesus (Joh 15,1). […] Um diesen Weinstock herum werden Gräben ausgehoben, das heißt hinterlistige Fallen gegraben. Wenn man einen Komplott schmiedet, um jemanden in eine Falle zu locken, so ist das, als würde man ihm eine Grube graben. Deshalb klagt der Psalmist: „Sie haben mir eine Grube gegraben“ (Ps 57(56),7).<!--more--> […] Hier ein Beispiel für solche Fallen: „Sie brachten eine Frau, die beim Ehebruch ertappt worden war“ zu Jesus und sagten: „Mose hat uns im Gesetz vorgeschrieben, solche Frauen zu steinigen. Nun, was sagst du?“ (vgl. Joh 8,3–5). […] Und ein weiteres Beispiel: „Ist es nach deiner Meinung erlaubt, dem Kaiser Steuern zu zahlen, oder nicht?“ (Mt 22,17).

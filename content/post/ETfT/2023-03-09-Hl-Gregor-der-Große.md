@@ -3,6 +3,7 @@ title = 'Hl. Gregor der '
 layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
+keepImageRatio = 'true'
 date = '2023-03-09 10:00:05 +0100'
 +++
 „Du hast ihn für eine kurze Zeit stark gemacht, damit er in ein ewiges Leben übergehe“ (vgl. Ijob 14,20 Vulg.). Für kurze Zeit wurde der Mensch stark gemacht, denn für eine bestimmte Zeitspanne erhielt er die Kraft, in dieser Welt zu leben, um dann in ein ewiges Leben einzugehen, wo seinem Leben kein Ende mehr gesetzt wird.<!--more--> Aber in dieser kurzen Zeitspanne, für die er stark gemacht wurde, entscheidet er, ob er in der Ewigkeit entweder immerwährende Freuden oder Qualen finden wird, ohne ihnen jemals entrinnen zu können.

@@ -3,6 +3,7 @@ title = 'Hl. Charles de '
 layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
+keepImageRatio = 'true'
 date = '2023-03-07 10:00:04 +0100'
 +++
 „Nur einer ist euer Meister, ihr alle aber seid Brüder.“ Du sagst es uns deutlich, mein Herr Jesus: Alle Menschen bilden eine große Familie. Alle sind Brüder und Gott ist der gemeinsame Vater. Alle müssen füreinander solche Gedanken, Worte und Werke haben, wie ein guter Vater es sich von seinen Kindern untereinander wünscht.<!--more-->

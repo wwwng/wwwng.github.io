@@ -4,6 +4,7 @@ title = 'Brief des Apostels Paulus an die Römer 5,1-2.5-8'
 layout = 'post'
 categories = ['LECTIO 2']
 tags = ['LECTIO 2']
+keepImageRatio = 'true'
 date = '2023-03-12 08:30:05 +0100'
 +++
 Brüder! Gerecht gemacht aus Glauben, haben wir Frieden mit Gott durch Jesus Christus, unseren Herrn.

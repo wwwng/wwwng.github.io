@@ -5,6 +5,7 @@ layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
 linkedsummaryImage = 'evangelist_matthaeus.jpg'
+keepImageRatio = 'true'
 date = '2023-03-08 09:00:04 +0100'
 +++
 In jener Zeit, als Jesus nach Jerusalem hinaufzog, nahm er unterwegs die zwölf Jünger beiseite und sagte zu ihnen:

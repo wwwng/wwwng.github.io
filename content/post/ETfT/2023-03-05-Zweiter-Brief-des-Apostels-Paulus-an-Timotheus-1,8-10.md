@@ -4,6 +4,7 @@ title = 'Zweiter Brief des Apostels Paulus an Timotheus 1,8-10'
 layout = 'post'
 categories = ['LECTIO 2']
 tags = ['LECTIO 2']
+keepImageRatio = 'true'
 date = '2023-03-05 08:30:04 +0100'
 +++
 Mein Sohn! Leide mit mir für das Evangelium. Gott gibt dazu die Kraft:

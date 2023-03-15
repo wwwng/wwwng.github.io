@@ -5,6 +5,7 @@ layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
 linkedsummaryImage = 'evangelist_matthaeus.jpg'
+keepImageRatio = 'true'
 date = '2023-03-10 09:00:05 +0100'
 +++
 In jener Zeit sprach Jesus zu den Hohenpriestern und den Ältesten des Volkes: Hört noch ein anderes Gleichnis: Es war ein Gutsbesitzer, der legte einen Weinberg an, zog ringsherum einen Zaun, hob eine Kelter aus und baute einen Turm. Dann verpachtete er den Weinberg an Winzer und reiste in ein anderes Land.<!--more-->

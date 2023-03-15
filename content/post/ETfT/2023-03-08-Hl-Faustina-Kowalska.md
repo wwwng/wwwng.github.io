@@ -3,6 +3,7 @@ title = 'Hl. Faustina '
 layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
+keepImageRatio = 'true'
 date = '2023-03-08 10:00:04 +0100'
 +++
 Wenn Schmerz meine Seele befällt, 

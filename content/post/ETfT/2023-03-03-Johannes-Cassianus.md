@@ -3,6 +3,7 @@ title = 'Johannes '
 layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
+keepImageRatio = 'true'
 date = '2023-03-03 10:00:04 +0100'
 +++
 Welcher Art auch immer die Beleidigungen sein mögen, mit denen der Mönch beschimpft wird, so bewahre er doch den Frieden, und zwar nicht nur auf seinen Lippen, sondern auch im Grunde seines Herzens. Wenn er sich auch nur im Geringsten aufgebracht fühlt, hülle er sich in absolutes Schweigen und befolge genau, was der Psalmist sagt: „Ich erschrak und redete nicht“ (Ps 76,5 LXX); „Ich sagte: Wachen will ich über meine Wege, um nicht mit meiner Zunge zu sündigen.<!--more--> Meinem Mund stellte ich eine Wache hin, als sich der Sünder gegen mich aufstellte. Stumm wurde ich und erniedrigt, und ich schwieg selbst über gute Dinge“ (vgl. Ps 38,2–3 LXX).

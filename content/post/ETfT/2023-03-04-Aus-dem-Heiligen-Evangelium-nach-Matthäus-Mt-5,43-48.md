@@ -5,6 +5,7 @@ layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
 linkedsummaryImage = 'evangelist_matthaeus.jpg'
+keepImageRatio = 'true'
 date = '2023-03-04 10:22:32 +0100'
 +++
 In jener Zeit sprach Jesus zu seinen Jüngern: Ihr habt gehört, dass gesagt worden ist: Du sollst deinen Nächsten lieben und deinen Feind hassen.

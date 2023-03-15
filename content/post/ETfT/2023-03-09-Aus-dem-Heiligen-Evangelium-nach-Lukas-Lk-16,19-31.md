@@ -5,6 +5,7 @@ layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
 linkedsummaryImage = 'evangelist_lukas.jpg'
+keepImageRatio = 'true'
 date = '2023-03-09 09:00:05 +0100'
 +++
 In jener Zeit sprach Jesus: Es war einmal ein reicher Mann, der sich in Purpur und feines Leinen kleidete und Tag für Tag herrlich und in Freuden lebte.

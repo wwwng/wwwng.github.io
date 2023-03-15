@@ -5,6 +5,7 @@ layout = 'post'
 categories = ['EVANGELIUM']
 tags = ['EVANGELIUM']
 linkedsummaryImage = 'evangelist_lukas.jpg'
+keepImageRatio = 'true'
 date = '2023-03-11 09:00:05 +0100'
 +++
 In jener Zeit kamen alle Zöllner und Sünder zu Jesus, um ihn zu hören.

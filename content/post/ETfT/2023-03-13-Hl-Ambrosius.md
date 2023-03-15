@@ -3,6 +3,7 @@ title = 'Hl. '
 layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
+keepImageRatio = 'true'
 date = '2023-03-13 10:00:05 +0100'
 keepImageRatio = 'true'
 +++

@@ -3,6 +3,7 @@ title = 'Hl. Gregor von '
 layout = 'post'
 categories = ['MEDITATIO']
 tags = ['MEDITATIO']
+keepImageRatio = 'true'
 date = '2023-03-12 10:00:04 +0100'
 +++
 Wenn uns die Heilige Schrift über die lebenspendende Wirklichkeit belehrt, dann spricht sie zu uns durch ein Wort, das von Gott selbst ausgeht: „Mich hat es [das Volk] verlassen, den Quell des lebendigen Wassers“ (Jer 2,13), oder mit den Worten des Erlösers an die samaritische Frau: „Wenn du wüsstest, worin die Gabe Gottes besteht und wer es ist, der zu dir sagt: Gib mir zu trinken!, dann hättest du ihn gebeten, und er hätte dir lebendiges Wasser gegeben“ (Joh 4,10), oder: „Wer Durst hat, komme zu mir und trinke“, denn: „Wer an mich glaubt, aus dessen Inneren werden Ströme von lebendigem Wasser fließen.<!--more--> Damit meinte er den Geist, den alle empfangen sollten, die an ihn glauben“ (vgl. Joh 7,37.39). In all diesen Fällen wird die göttliche Natur als lebendiges Wasser bezeichnet. 
