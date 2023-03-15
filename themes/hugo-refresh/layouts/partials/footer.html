@@ -39,7 +39,23 @@
                   {{ i18n "credits" }}
                 </a>
                 {{- end -}}
-              </li>
+            </li>
+            <li>
+              {{- with .Site.GetPage "/contact/index" -}}
+              <a href="{{- .RelPermalink -}}">
+                <span class="icon"><i class="fa fa-cube"></i></span>
+                {{ i18n "contacts" }}
+              </a>
+              {{- end -}}
+            </li>
+            <li>
+              {{- with .Site.GetPage "/imprint/index" -}}
+              <a href="{{- .RelPermalink -}}">
+                <span class="icon"><i class="fa fa-cube"></i></span>
+                {{ i18n "imprint" }}
+              </a>
+              {{- end -}}
+            </li>
             <li>
               {{- with .Site.GetPage "tags" -}}
               <a href="{{- .RelPermalink -}}">
